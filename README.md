@@ -5,18 +5,14 @@ A curated collection of the best deals, trending products, and smart buying oppo
 👉 Powered by https://bestdeals4u.trade
 
 ## Collectable Categories
-- Baseball Cards
-- Funko Pops
-- Lego
-- Pokemon Cards
-- Video Games
+- Baseball Cards → https://bestdeals4u.trade/board/rare-and-graded-baseball-card-deals
+- Funko Pops → https://bestdeals4u.trade/board/rare-and-vaulted-funko-pops
+- Lego → https://bestdeals4u.trade/board/lego-collector-finds
+- Pokemon Cards → https://bestdeals4u.trade/board/rare-pokemon-card-vault
+- Video Games → https://bestdeals4u.trade/board/retro-video-game-finds
 
 ## Notes
 We regularly update this list with new opportunities and high-value offers.
-
-## Follow
-- Website: https://bestdeals4u.trade
-- GitHub: https://github.com/bestdeals4u
 
 <!-- RSS:START -->
 ## Latest from BestDeals4U.trade
@@ -50,3 +46,13 @@ We regularly update this list with new opportunities and high-value offers.
 _Auto-updated from RSS feed: https://bestdeals4u.trade/blog/rss.xml_
 <!-- RSS:END -->
 
+## 🚀 What We Do
+- Curate high-value deals and collectibles
+- Track trending products
+- Highlight real opportunities (not fake discounts)
+
+## 🌍 Follow
+- Website: https://bestdeals4u.trade
+- GitHub: https://github.com/bestdeals4u
+
+_Updated automatically from BestDeals4U.trade_
