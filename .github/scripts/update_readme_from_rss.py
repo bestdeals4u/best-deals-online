@@ -2,10 +2,11 @@ import os
 from pathlib import Path
 import html
 import re
+from collections import defaultdict
 import feedparser
 
 RSS_URL = os.getenv("RSS_URL", "").strip()
-MAX_ITEMS = int(os.getenv("MAX_ITEMS", "25"))
+MAX_PER_CATEGORY = int(os.getenv("MAX_PER_CATEGORY", "2"))
 
 README_PATH = Path("README.md")
 
@@ -19,27 +20,94 @@ def clean_text(text: str) -> str:
     return text
 
 
-def build_section(feed_url: str, max_items: int) -> str:
+def detect_category(entry) -> str:
+    # 1) Prefer RSS/Atom categories if present
+    tags = getattr(entry, "tags", []) or []
+    for tag in tags:
+        term = clean_text(getattr(tag, "term", ""))
+        if term:
+            return normalize_category(term)
+
+    # 2) Fallback: infer from title
+    title = clean_text(getattr(entry, "title", ""))
+    return infer_category_from_title(title)
+
+
+def normalize_category(cat: str) -> str:
+    c = cat.lower()
+
+    if "lego" in c:
+        return "🧱 LEGO"
+    if "pokemon" in c or "pokémon" in c:
+        return "🃏 Pokémon Cards"
+    if "baseball" in c:
+        return "⚾ Baseball Cards"
+    if "funko" in c:
+        return "🧸 Funko Pops"
+    if "video game" in c or "gaming" in c or "game" in c:
+        return "🎮 Video Games"
+
+    return f"🔥 {cat.strip()}"
+
+
+def infer_category_from_title(title: str) -> str:
+    t = title.lower()
+
+    if "lego" in t:
+        return "🧱 LEGO"
+    if "pokemon" in t or "pokémon" in t:
+        return "🃏 Pokémon Cards"
+    if "baseball" in t:
+        return "⚾ Baseball Cards"
+    if "funko" in t:
+        return "🧸 Funko Pops"
+    if "video game" in t or "gaming" in t or "game" in t:
+        return "🎮 Video Games"
+
+    return "🔥 Other Finds"
+
+
+def build_section(feed_url: str, max_per_category: int) -> str:
     feed = feedparser.parse(feed_url)
 
-    items = []
-    for entry in feed.entries[:max_items]:
+    grouped = defaultdict(list)
+
+    # feed.entries is already in feed order, usually newest first
+    for entry in feed.entries:
         title = clean_text(getattr(entry, "title", "Untitled"))
         link = getattr(entry, "link", "").strip()
         if not link:
             continue
-        items.append(f"- 🔥 Deal: [{title}]({link})")
 
-    if not items:
-        items = ["- No posts found."]
+        category = detect_category(entry)
 
-    lines = [
-        "## Latest from BestDeals4U.trade",
-        "",
-        *items,
-        "",
-        f"_Auto-updated from RSS feed: {feed_url}_",
+        if len(grouped[category]) < max_per_category:
+            grouped[category].append((title, link))
+
+    preferred_order = [
+        "⚾ Baseball Cards",
+        "🧸 Funko Pops",
+        "🧱 LEGO",
+        "🃏 Pokémon Cards",
+        "🎮 Video Games",
+        "🔥 Other Finds",
     ]
+
+    ordered_categories = [c for c in preferred_order if c in grouped]
+    ordered_categories += sorted(c for c in grouped if c not in preferred_order)
+
+    lines = ["## Latest from BestDeals4U.trade", ""]
+
+    if not ordered_categories:
+        lines.append("- No posts found.")
+    else:
+        for category in ordered_categories:
+            lines.append(f"### {category}")
+            for title, link in grouped[category]:
+                lines.append(f"- [{title}]({link})")
+            lines.append("")
+
+    lines.append(f"_Auto-updated from RSS feed: {feed_url}_")
     return "\n".join(lines)
 
 
@@ -51,7 +119,7 @@ def main() -> None:
         raise FileNotFoundError("README.md not found")
 
     readme = README_PATH.read_text(encoding="utf-8")
-    new_section = build_section(RSS_URL, MAX_ITEMS)
+    new_section = build_section(RSS_URL, MAX_PER_CATEGORY)
 
     replacement = f"{START_MARKER}\n{new_section}\n{END_MARKER}"
 
