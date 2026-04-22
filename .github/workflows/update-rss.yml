@@ -1,0 +1,39 @@
+name: Update README from RSS
+
+on:
+  workflow_dispatch:
+  schedule:
+    - cron: "17 */6 * * *"   # every 6 hours
+
+permissions:
+  contents: write
+
+jobs:
+  update-readme:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Check out repo
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v6
+        with:
+          python-version: "3.11"
+
+      - name: Install dependencies
+        run: pip install feedparser
+
+      - name: Update README from RSS
+        env:
+          RSS_URL: "https://bestdeals4u.trade/feed/"
+          MAX_ITEMS: "5"
+        run: python .github/scripts/update_readme_from_rss.py
+
+      - name: Commit changes
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add README.md
+          git diff --cached --quiet || git commit -m "Update README from RSS"
+          git push
