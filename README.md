@@ -1,6 +1,8 @@
 # Best Deals Online
 
-A curated list of the best deals, discounts, and trending products available online.
+A curated collection of the best deals, trending products, and smart buying opportunities.
+
+👉 Powered by https://bestdeals4u.trade
 
 ## Categories
 - Tech & gadgets
