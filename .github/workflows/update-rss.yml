@@ -27,7 +27,7 @@ jobs:
       - name: Update README from RSS
         env:
           RSS_URL: "https://bestdeals4u.trade/posts/rss.xml"
-          MAX_ITEMS: "25"
+          MAX_PER_CATEGORY: "2"
         run: python .github/scripts/update_readme_from_rss.py
 
       - name: Commit changes
