@@ -4,11 +4,12 @@ A curated collection of the best deals, trending products, and smart buying oppo
 
 👉 Powered by https://bestdeals4u.trade
 
-## Categories
-- Tech & gadgets
-- Software deals
-- Online services
-- Trending products
+## Collectable Categories
+- Baseball Cards
+- Funko Pops
+- Lego
+- Pokemon Cards
+- Video Games
 
 ## Notes
 We regularly update this list with new opportunities and high-value offers.
