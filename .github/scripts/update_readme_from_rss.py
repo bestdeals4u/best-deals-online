@@ -28,7 +28,7 @@ def build_section(feed_url: str, max_items: int) -> str:
         link = getattr(entry, "link", "").strip()
         if not link:
             continue
-        items.append(f"- [{title}]({link})")
+        items.append(f"- 🔥 [{title}]({link})")
 
     if not items:
         items = ["- No posts found."]
