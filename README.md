@@ -18,23 +18,23 @@ We regularly update this list with new opportunities and high-value offers.
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Market Review: 1983 Topps Tony Gwynn #482 PSA 4 Padres Rookie MLB Baseball Card](https://bestdeals4u.trade/post/1983-topps-tony-gwynn-482-psa-4-padres-rookie-mlb-baseball-card)
 - [Shota Imanaga 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-rookie-refractor-499-shota-imanaga-ra-si-psa-9-mint-auto-v9t)
-- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
 
 ### 🧸 Funko Pops
 - [Funko Pop Inosuke Hashibira #875 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-demon-slayer-inosuke-hashibira-flocked-chase-875-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 70802 Bad Cop's Pursuit Sealed](https://bestdeals4u.trade/post/lego-the-lego-movie-bad-cop-s-pursuit-70802-new-in-sealed-box)
-- [LEGO 76261 Spider-Man Final Battle Sealed](https://bestdeals4u.trade/post/lego-76261-marvel-spider-man-final-battle-new-sealed)
+- [LEGO 71201 Back to the Future Level Pack Sealed](https://bestdeals4u.trade/post/new-lego-dimensions-71201-back-to-the-future-marty-mcfly-sealed-box)
+- [Market Review: LEGO Star Wars Kylo Ren's Command Shuttle 75104 Sealed Bags 2-7 Missing Kylo Ren](https://bestdeals4u.trade/post/lego-star-wars-kylo-ren-s-command-shuttle-75104-sealed-bags-2-7-missing-kylo-ren)
 
 ### 🃏 Pokémon Cards
-- [Asc Ascended Heroes Illustration PSA 10 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2026-pokemon-asc-en-ascended-heroes-illustration-rare-246-mawile-psa-10)
-- [Market Review: 1997 Pokémon Japanese Rocket Dark Dragonite Holo #149 NM-MT PSA 8](https://bestdeals4u.trade/post/1997-pok-mon-japanese-rocket-dark-dragonite-holo-149-nm-mt-psa-8)
+- [Fates Collide PSA 8 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2016-pokemon-xy-fates-collide-79-lugia-break-psa-8)
+- [Mew En Ultra CHARIZARD PSA 8 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2023-mew-en-151-ultra-rare-charizard-ex-183-psa-8-rare)
 
 ### 🎮 Video Games
-- [Monster Farm 1997 Sony PlayStation 1 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/1997-ps1-monster-farm-graded-cgc-9-9-a-y-fold-sealed-playstation-tecmo-japan-jp)
-- [Super Monkey Ball, Super Monkey Ball 2 2001, 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/nintendo-gamecube-super-monkey-ball-super-monkey-ball-2-complete-with-manual)
+- [1PCS Mean Well NES-75-12 | 12V Switch Power Supply NES7512 | 12V Seale Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1pcs-mean-well-nes-75-12-12v-switch-power-supply-nes7512-12v-sealed)
+- [Market Review: WATA 9.2 A ESPN Sunday Night Football NFL Super Nintendo SNES Sealed 1994 PSA](https://bestdeals4u.trade/post/wata-9-2-a-espn-sunday-night-football-nfl-super-nintendo-snes-sealed-1994-psa)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
