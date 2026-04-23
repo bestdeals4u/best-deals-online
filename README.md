@@ -18,23 +18,24 @@ We regularly update this list with new opportunities and high-value offers.
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1983 Topps Tony Gwynn #482 PSA 4 Padres Rookie MLB Baseball Card](https://bestdeals4u.trade/post/1983-topps-tony-gwynn-482-psa-4-padres-rookie-mlb-baseball-card)
-- [Shota Imanaga 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-rookie-refractor-499-shota-imanaga-ra-si-psa-9-mint-auto-v9t)
+- [Mickey Moniak 2021 Panini Prizm RC PSA 10](https://bestdeals4u.trade/post/2021-panini-prizm-mickey-moniak-rc-teal-wave-prizm-rookie-auto-50-psa-10-pop-1)
+- [Kumar Rocker 2022 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/kumar-rocker-bgs-9-5-10-2022-1st-bowman-chrome-auto-blue-refractor-150-rc-z2)
 
 ### 🧸 Funko Pops
-- [Funko Pop Inosuke Hashibira #875 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-demon-slayer-inosuke-hashibira-flocked-chase-875-w-protector)
+- [Funko Pop Prince #79 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-prince-purple-rain-diamond-fye-exclusive-79-w-protector)
+- [Funko Pop Hit #315 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-super-hit-315-exclusive-toy-toys-r-us-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 71201 Back to the Future Level Pack Sealed](https://bestdeals4u.trade/post/new-lego-dimensions-71201-back-to-the-future-marty-mcfly-sealed-box)
-- [Market Review: LEGO Star Wars Kylo Ren's Command Shuttle 75104 Sealed Bags 2-7 Missing Kylo Ren](https://bestdeals4u.trade/post/lego-star-wars-kylo-ren-s-command-shuttle-75104-sealed-bags-2-7-missing-kylo-ren)
+- [LEGO 10252 Volkswagen Beetle Sealed](https://bestdeals4u.trade/post/nisb-lego-creator-expert-volkswagen-beetle-10252-retired)
+- [LEGO 21329 Fender Stratocaster Sealed](https://bestdeals4u.trade/post/brand-new-lego-21329-fender-stratocaster-factory-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Fates Collide PSA 8 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2016-pokemon-xy-fates-collide-79-lugia-break-psa-8)
-- [Mew En Ultra CHARIZARD PSA 8 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2023-mew-en-151-ultra-rare-charizard-ex-183-psa-8-rare)
+- [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint)
+- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
-- [1PCS Mean Well NES-75-12 | 12V Switch Power Supply NES7512 | 12V Seale Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1pcs-mean-well-nes-75-12-12v-switch-power-supply-nes7512-12v-sealed)
-- [Market Review: WATA 9.2 A ESPN Sunday Night Football NFL Super Nintendo SNES Sealed 1994 PSA](https://bestdeals4u.trade/post/wata-9-2-a-espn-sunday-night-football-nfl-super-nintendo-snes-sealed-1994-psa)
+- [18 Wheeler American Pro Trucker GameCube at $17.38 - Buy Now or Wait?](https://bestdeals4u.trade/post/complete-18-wheeler-american-pro-trucker-gamecube)
+- [Market Review: The Settlers Rise of an Empire PC Complete in Box](https://bestdeals4u.trade/post/the-settlers-rise-of-an-empire-pc-complete-in-box)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
