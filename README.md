@@ -1,3 +1,5 @@
+![Updated](https://img.shields.io/badge/updated-daily-brightgreen)
+![Deals](https://img.shields.io/badge/deals-live-blue)
 # Best Deals Online
 
 Discover the best deals, trending collectibles, and smart buying opportunities across multiple categories.
