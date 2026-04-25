@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1973 Topps Rickey Clark California Angels High Number 636](https://bestdeals4u.trade/post/1973-topps-baseball-rickey-clark-california-angels-high-numbered-card-636)
-- [Miguel Cabrera 2022 Topps Finest PSA 10](https://bestdeals4u.trade/post/miguel-cabrera-2022-topps-finest-gold-refractor-auto-44-50-psa-10-card-fa-mc)
+- [1982 Topps Steve Bedrosian / Brett Butler #502 SGC 8 Rookie Baseball Card](https://bestdeals4u.trade/post/1982-topps-steve-bedrosian-brett-butler-502-graded-sgc-8-rookie-baseball-card)
+- [Kumar Rocker 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-kumar-rocker-auto-ra-kr-aqua-wave-199-rc-au-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop Ursula #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-trains-disney-ursula-funko-exclusive-17-with-protector)
-- [Funko Pop! Marvel Red Hulk GITD Glow Chase Hot Topic Exclusive #854 — Market Review](https://bestdeals4u.trade/post/funko-pop-marvel-red-hulk-gitd-glow-chase-hot-topic-exclusive-854-w-protector)
+- [Funko Pop Zatanna #316](https://bestdeals4u.trade/post/funko-pop-zatanna-316-dc-super-heroes-le-2020-eccc)
+- [The Boys: The Deep ~ 2021 ECCC Exclusive ~ Official Con Funko Pop #985 at $59.99, with recent sales closer to $72.25](https://bestdeals4u.trade/post/funko-pop-the-boys-the-deep-985-2021-eccc-exclusive-official-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO Super Heroes: Batman: the Animated Series Gotham City (76271) at $460.00, below recent comps](https://bestdeals4u.trade/post/lego-super-heroes-batman-the-animated-series-gotham-city-76271-new-sealed)
-- [LEGO 75368 Darth Vader Mech Sealed](https://bestdeals4u.trade/post/lego-star-wars-darth-vader-mech-75368-new-sealed-box-2)
+- [LEGO Creator Expert: Grand Emporium (10211) FREE SHIPPING at $415.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/lego-creator-expert-grand-emporium-10211-new-sealed-free-shipping)
+- [LEGO 70750 Ninja DB X Sealed](https://bestdeals4u.trade/post/lego-70750-ninjago-ninja-db-x-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [How Good of a Deal Is This Marshadow Mega Evolution Illustration PSA 10?](https://bestdeals4u.trade/post/2025-pokemon-marshadow-mega-evolution-illustration-rare-146-psa-10-b)
-- [Mewtwo Promo Pokken PSA 9](https://bestdeals4u.trade/post/psa-9-shadow-dark-mewtwo-pokken-tournament-japanese-pokemon-card-2016)
+- [Market Review: Pokemon Diglett Base Set Shadowless 1st Edition #47 PSA 7](https://bestdeals4u.trade/post/pokemon-diglett-base-set-shadowless-1st-edition-47-psa-7)
+- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
 
 ### 🎮 Video Games
-- [Market Review: The Bridge PS4 Brand New Factory Sealed](https://bestdeals4u.trade/post/the-bridge-ps4-brand-new-factory-sealed-puzzle-game-hard-copy-games-rare)
-- [Thinking About Buying Backyard Baseball 2003 Complete w/ Manual WORKS for GameCube? Read This First](https://bestdeals4u.trade/post/backyard-baseball-nintendo-gamecube-2003-complete-w-manual-tested-works)
+- [Is 8Doors: Arum's Afterlife Adventure for Nintendo Switch Factory Sealed Priced Fairly at $52.80?](https://bestdeals4u.trade/post/8doors-arum-s-afterlife-adventure-for-nintendo-switch-brand-new-factory-sealed)
+- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
