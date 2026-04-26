@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Abimelec Ortiz 2024 Bowman's Best PSA 10](https://bestdeals4u.trade/post/2024-bowman-s-best-abimelec-ortiz-auto-gold-mini-diamond-refractor-50-psa-10)
-- [PSA 10 1984 DONRUSS TOM BRUNANSKY MINNESOTA TWINS Vtg Graded Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/psa-10-1984-donruss-tom-brunansky-242-minnesota-twins-vtg-graded-baseball-card)
+- [Lisbel Diaz 2024 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-lisbel-diaz-150-1st-rc-auto-blue-ref-cpa-ldi-psa-10)
+- [Leo De Vries 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-mega-box-leo-de-vries-150-auto-blue-refractor-mint-psa-9)
 
 ### 🧸 Funko Pops
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
-- [Funko Pop! Marvel Red Hulk GITD Glow Chase Hot Topic Exclusive #854 — Market Review](https://bestdeals4u.trade/post/funko-pop-marvel-red-hulk-gitd-glow-chase-hot-topic-exclusive-854-w-protector)
+- [Market Review: Funko Pop! My Hero Academia Minoru Mineta #1480 Glow Chase Chalice Exclusive](https://bestdeals4u.trade/post/funko-pop-my-hero-academia-minoru-mineta-1480-glow-chase-chalice-exclusive)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
-- [LEGO 41364 Stephanie's Buggy & Trailer Sealed](https://bestdeals4u.trade/post/lego-friends-stephanie-s-buggy-trailer-41364-retired-set-sealed-new)
+- [LEGO 7662 Trade Federation MTT Sealed](https://bestdeals4u.trade/post/lego-star-wars-trade-federation-mtt-7662-in-2007-new-retired-sealed)
+- [LEGO 21109 Exo Suit Sealed](https://bestdeals4u.trade/post/lego-ideas-21109-exo-suit-brand-new-factory-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Is This Pristine Cgc Jolteon a Good Buy?](https://bestdeals4u.trade/post/pristine-cgc-10-jolteon-v-079-eevee-heroes-alt-art-japanese-pokemon)
-- [Mewtwo 150 PSA 8](https://bestdeals4u.trade/post/psa-8-1996-japanese-bandai-carddass-vending-mewtwo-prism-150-nm-mt-pokemon)
+- [Market Review: Pokemon Diglett Base Set Shadowless 1st Edition #47 PSA 7](https://bestdeals4u.trade/post/pokemon-diglett-base-set-shadowless-1st-edition-47-psa-7)
+- [Market Review: 2023 POKEMON PAR EN-PARADOX RIFT SPECIAL ILLUSTRATION RARE ALTARIA EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-par-en-paradox-rift-special-illustration-rare-altaria-ex-psa-10)
 
 ### 🎮 Video Games
-- [Scarlet And Violet Miraidon Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/pokemon-tcg-scarlet-and-violet-miraidon-base-set-etb-sealed)
-- [WWE 2K22 - Xbox Series X|S - - - Fast Shipping - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/wwe-2k22-xbox-series-x-s-brand-new-factory-sealed-fast-shipping)
+- [The Legend of Zelda 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-collector-s-edition-nintendo-gamecube-2003)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
