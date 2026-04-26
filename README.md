@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [1982 Topps Steve Bedrosian / Brett Butler #502 SGC 8 Rookie Baseball Card](https://bestdeals4u.trade/post/1982-topps-steve-bedrosian-brett-butler-502-graded-sgc-8-rookie-baseball-card)
-- [Kumar Rocker 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-kumar-rocker-auto-ra-kr-aqua-wave-199-rc-au-psa-9)
+- [Jacob Wilson 2025 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/jacob-wilson-2025-bowman-chrome-melt-mashers-rookie-auto-99-psa-10-athletics)
+- [Hurston Waldrep 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/hurston-waldrep-2025-topps-chrome-rc-auto-blue-refractor-150-psa-9-braves-s6)
 
 ### 🧸 Funko Pops
-- [Funko Pop Zatanna #316](https://bestdeals4u.trade/post/funko-pop-zatanna-316-dc-super-heroes-le-2020-eccc)
-- [The Boys: The Deep ~ 2021 ECCC Exclusive ~ Official Con Funko Pop #985 at $59.99, with recent sales closer to $72.25](https://bestdeals4u.trade/post/funko-pop-the-boys-the-deep-985-2021-eccc-exclusive-official-con-sticker)
+- [Animation Demon Slayer Tengen Uzui Chase Limited Funko Pop #1533 at $30.00, with recent sales closer to $31.75](https://bestdeals4u.trade/post/funko-pop-animation-demon-slayer-tengen-uzui-chase-limited-edition-box-1533)
+- [Funko Pop Prince #79 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-prince-purple-rain-diamond-fye-exclusive-79-w-protector)
 
 ### 🧱 LEGO
-- [LEGO Creator Expert: Grand Emporium (10211) FREE SHIPPING at $415.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/lego-creator-expert-grand-emporium-10211-new-sealed-free-shipping)
-- [LEGO 70750 Ninja DB X Sealed](https://bestdeals4u.trade/post/lego-70750-ninjago-ninja-db-x-new-sealed-retired)
+- [LEGO 8169 Lamborghini Gallarod Lp560-4 Sealed](https://bestdeals4u.trade/post/8169-new-sealed-retired-lego-racers-lamborghini-gallarod-lp560-4-8169)
+- [LEGO Harry Potter: Hogsmeade Village Visit (76388) in Box at $77.00, below recent comps](https://bestdeals4u.trade/post/lego-harry-potter-hogsmeade-village-visit-76388-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Pokemon Diglett Base Set Shadowless 1st Edition #47 PSA 7](https://bestdeals4u.trade/post/pokemon-diglett-base-set-shadowless-1st-edition-47-psa-7)
-- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+- [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
+- [Market Review: Pokémon TCG Surfing Pikachu Evolutions Secret Rare 111/108 PSA 10 2016](https://bestdeals4u.trade/post/pok-mon-tcg-surfing-pikachu-evolutions-secret-rare-111-108-psa-10-2016)
 
 ### 🎮 Video Games
-- [Is 8Doors: Arum's Afterlife Adventure for Nintendo Switch Factory Sealed Priced Fairly at $52.80?](https://bestdeals4u.trade/post/8doors-arum-s-afterlife-adventure-for-nintendo-switch-brand-new-factory-sealed)
-- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
+- [Market Review: Sega Genesis HERZOG ZWEI Wata 9.6 Factory Sealed](https://bestdeals4u.trade/post/sega-genesis-herzog-zwei-wata-9-6-a-new-factory-sealed-game-vga-cgc-rare)
+- [Call of Duty: Modern Warfare 2 2009 Microsoft Xbox 360 Sealed VGA 85](https://bestdeals4u.trade/post/call-of-duty-modern-warfare-2-xbox-360-2009-vga-85-nm-sealed-not-psa-wata)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
