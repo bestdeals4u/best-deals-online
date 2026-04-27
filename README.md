@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Lisbel Diaz 2024 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-lisbel-diaz-150-1st-rc-auto-blue-ref-cpa-ldi-psa-10)
-- [Leo De Vries 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-mega-box-leo-de-vries-150-auto-blue-refractor-mint-psa-9)
+- [Tyler Black 2021 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2021-bowman-draft-chrome-pick-green-refractor-23-99-tyler-black-psa-10-auto-12xm)
+- [Luis Castillo 2018 Topps Clearly Authentic Autographs BGS 9.5](https://bestdeals4u.trade/post/2018-topps-clearly-authentic-black-75-luis-castillo-bgs-9-5-gem-mint-auto-n0c)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop! My Hero Academia Minoru Mineta #1480 Glow Chase Chalice Exclusive](https://bestdeals4u.trade/post/funko-pop-my-hero-academia-minoru-mineta-1480-glow-chase-chalice-exclusive)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Market Review: Funko Pop! Vinyl The Incredibles Mr. Incredible B&W Chase #1509 (w/ Protector)](https://bestdeals4u.trade/post/funko-pop-vinyl-the-incredibles-mr-incredible-b-w-chase-1509-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 7662 Trade Federation MTT Sealed](https://bestdeals4u.trade/post/lego-star-wars-trade-federation-mtt-7662-in-2007-new-retired-sealed)
-- [LEGO 21109 Exo Suit Sealed](https://bestdeals4u.trade/post/lego-ideas-21109-exo-suit-brand-new-factory-sealed-retired)
+- [LEGO Harry Potter Hogwarts Wizard's Chess Set 76392 876 New Sealed Ret at $115.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-wizard-s-chess-set-76392-876-new-sealed-retired-nib)
+- [LEGO 75347 TIE Bomber Sealed](https://bestdeals4u.trade/post/lego-star-wars-tie-bomber-75347-brand-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Pokemon Diglett Base Set Shadowless 1st Edition #47 PSA 7](https://bestdeals4u.trade/post/pokemon-diglett-base-set-shadowless-1st-edition-47-psa-7)
-- [Market Review: 2023 POKEMON PAR EN-PARADOX RIFT SPECIAL ILLUSTRATION RARE ALTARIA EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-par-en-paradox-rift-special-illustration-rare-altaria-ex-psa-10)
+- [Market Review: Mewtwo - 1999 Holo Rare Shadowless PSA 6](https://bestdeals4u.trade/post/mewtwo-10-102-1999-holo-rare-base-set-shadowless-pokemon-card-psa-6)
+- [Market Review: 2021 Pokemon Celebrations Classic Collection #24 Birthday Pikachu Holo PSA 9](https://bestdeals4u.trade/post/2021-pokemon-celebrations-classic-coll-24-birthday-pikachu-holo-psa-9)
 
 ### 🎮 Video Games
-- [The Legend of Zelda 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-collector-s-edition-nintendo-gamecube-2003)
+- [Is LEGO - Nintendo Entertainment System Mario TV Set 71374 Priced Fairly at $325.00?](https://bestdeals4u.trade/post/lego-nintendo-entertainment-system-mario-tv-set-71374-new-sealed)
+- [18 Wheeler American Pro Trucker GameCube at $17.38 - Buy Now or Wait?](https://bestdeals4u.trade/post/complete-18-wheeler-american-pro-trucker-gamecube)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
