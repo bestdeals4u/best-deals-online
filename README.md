@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: GIL GARRIDO 1972 TOPPS BASEBALL CARD #758 Atlanta Braves High Number](https://bestdeals4u.trade/post/gil-garrido-1972-topps-baseball-card-758-atlanta-braves-high-number)
-- [Tyler Skaggs 2013 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/2013-chrome-red-refractor-rookie-21-25-tyler-skaggs-bgs-9-5-gem-mint-auto-5w7)
+- [Alex Guerrero 2014 Bowman RC BGS 9](https://bestdeals4u.trade/post/2014-bowman-rookie-chrome-gold-refractor-14-50-alex-guerrero-bgs-9-mint-auto-2e6)
+- [Lewis Brinson 2017 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2017-bowman-chrome-prospect-blue-refractor-47-150-lewis-brinson-bgs-9-5-auto-7m3)
 
 ### 🧸 Funko Pops
-- [MOCKINGBIRD MARVEL Disney ULTRA 1/ Pcs WEST COAST Funko Pop #3220 at $25.00, with recent sales closer to $27.75](https://bestdeals4u.trade/post/mockingbird-funko-pop-marvel-disney-ultra-1-3220-pcs-west-coast-avengers-rare)
-- [Market Review: Ichigo Funko Pop! #1479 Bleach Fall Convention 2023 Exclusive](https://bestdeals4u.trade/post/ichigo-funko-pop-1479-bleach-fall-convention-2023-exclusive)
+- [Black Asta #1556 EE GITD Exclusive, Low End of Recent Sales](https://bestdeals4u.trade/post/funko-pop-black-asta-1556-black-clover-gitd-ee-exclusive-animation)
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 
 ### 🧱 LEGO
-- [LEGO 75273 Poe Dameron's X-wing Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-poe-dameron-s-x-wing-fighter-75273-new-sealed-retired-2021)
-- [LEGO 70810 MetalBeard's Sea Cow Sealed](https://bestdeals4u.trade/post/lego-70810-the-lego-movie-metalbeard-s-sea-cow-2741pcs-retired-sealed-new)
+- [LEGO 6437512 Disney Hocus Pocus: the Sanderson Sisters' Cottage Sealed](https://bestdeals4u.trade/post/lego-ideas-21341-disney-hocus-pocus-the-sanderson-sisters-cottage-new-sealed)
+- [LEGO 76261 Spider-Man Final Battle Sealed](https://bestdeals4u.trade/post/lego-76261-marvel-spider-man-final-battle-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Ivysaur PSA 10 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/ivysaur-134-ir-illustration-rare-mega-evolutions-2025-pokemon-psa-10-143029403)
-- [Mewtwo Holo PSA 9 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2023-mewtwo-052-holo-black-star-promo-151-ultra-premium-collection-psa-9)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Pokémon Base Set Unlimited Ivysaur 30/102 - PSA 7 NM! WOTC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-base-set-unlimited-ivysaur-30-102-psa-7-nm-wotc)
 
 ### 🎮 Video Games
-- [V-Rally Edition 99 (Nintendo Game Boy Color, 1999) GBC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/v-rally-edition-99-nintendo-game-boy-color-1999-gbc-cartridge-only-cib)
-- [Tekken Hybrid 2011 Sony PlayStation 3 Sealed](https://bestdeals4u.trade/post/brand-new-sealed-tekken-hybrid-tekken-tag-tournament-hd-ps3-sony-playstation-3)
+- [The Legend of Zelda 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-collector-s-edition-nintendo-gamecube-2003)
+- [ARC THE LAD 1 & II 1996 for Sony PlayStation 1](https://bestdeals4u.trade/post/lot-2-arc-the-lad-1-ii-2-set-playstation-ps-ps1-japan-version-tested-used)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
