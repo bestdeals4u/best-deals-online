@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jose Albertos 2018 Bowman's Best PSA 9](https://bestdeals4u.trade/post/2018-bowman-s-best-of-gold-refractor-31-50-jose-albertos-psa-9-mint-auto-8d2)
-- [Fleer Ultra Derek Jeter Gold Medallion Rookie Yankees PSA 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/fleer-ultra-derek-jeter-386-gold-medallion-rookie-yankees-psa-8-baseball-card)
+- [Jack Kochanowicz 2025 Topps Chrome RC PSA 8](https://bestdeals4u.trade/post/2025-topps-chrome-jack-kochanowicz-199-auto-autograph-rookie-card-psa-8-rc-sp)
+- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
-- [Funko Pop, Red Hulk #854 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-marvel-red-hulk-854-hot-topic-exclusive-glow-chase-w-protector)
+- [Market Review: Funko Pop! Pongo (Facet) #1723 101 Dalmatians w/ Protector ECCC Exc IN HAND](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-101-dalmatians-w-protector-eccc-exc-in-hand)
+- [Funko Pop Vinyl Robocop 2 Metallic CHASE #1989 – Brand New Listing](https://bestdeals4u.trade/post/funko-pop-vinyl-robocop-2-metallic-chase-1989-brand-new)
 
 ### 🧱 LEGO
-- [LEGO 21329 Fender Stratocaster Sealed](https://bestdeals4u.trade/post/brand-new-lego-21329-fender-stratocaster-factory-sealed-retired)
-- [Market Review: LEGO Harry Potter Expecto Patronum 75945 New Sealed](https://bestdeals4u.trade/post/lego-harry-potter-expecto-patronum-brand-new-sealed-75945)
+- [LEGO 76417 Gringotts Bank Collector Edition New](https://bestdeals4u.trade/post/lego-76417-gringotts-bank-brand-new-collector-s-edition-sealed-harry-potter)
+- [LEGO 75979 Harry Potter Hedwig 630-Piece Set · New Sealed · Seller Confidence Overview](https://bestdeals4u.trade/post/lego-75979-harry-potter-hedwig-building-set-retired-new-sealed-630-pieces)
 
 ### 🃏 Pokémon Cards
-- [Unseen Forces Gold Star PSA 4 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2005-ex-unseen-forces-gold-star-113-entei-holo-psa-4-minty-desc)
+- [Jolteon Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/pokemon-jolteon-v-eevee-heroes-japanese-full-alt-art-079-cgc-10-pristine)
+- [Market Review: Pokémon Umbreon 17/17 Gold Star Classic Collection PSA 9 2021 Celebrations](https://bestdeals4u.trade/post/pok-mon-umbreon-17-17-gold-star-classic-collection-psa-9-2021-celebrations)
 
 ### 🎮 Video Games
-- [Ascended Heroes Elite Trainer Box ETB Box Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/ascended-heroes-elite-trainer-box-etb-factory-sealed-brand-new-box)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [The Legend of Zelda 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-collector-s-edition-nintendo-gamecube-2003)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
