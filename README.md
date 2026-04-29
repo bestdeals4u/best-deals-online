@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Lisbel Diaz 2024 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-lisbel-diaz-150-1st-rc-auto-blue-ref-cpa-ldi-psa-10)
-- [Alex Guerrero 2014 Bowman RC BGS 9](https://bestdeals4u.trade/post/2014-bowman-rookie-chrome-gold-refractor-14-50-alex-guerrero-bgs-9-mint-auto-2e6)
+- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
+- [Oswald Peraza 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-oswald-peraza-auto-purple-refractor-250-1st-bowman-psa-10)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop! Pinocchio - Blue Fairy #1027 Chase](https://bestdeals4u.trade/post/funko-pop-pinocchio-blue-fairy-1027-chase)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop Wolverine #1576](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc-7)
+- [One Piece Jewelry Bonney Glow CHASE Limited Edition DMG Funko Pop #2255 at $29.99, below recent comps](https://bestdeals4u.trade/post/funko-pop-one-piece-jewelry-bonney-2255-glow-chase-limited-edition-dmg)
 
 ### 🧱 LEGO
-- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
-- [LEGO 40530 Jane Goodall Tribute Sealed](https://bestdeals4u.trade/post/lego-gwp-40530-jane-goodall-tribute-new-factory-sealed)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
+- [Is This LEGO Star Wars: Inquisitor Transport Scythe (75336) | New, Sealed, ret a Good Deal Right Now?](https://bestdeals4u.trade/post/lego-star-wars-inquisitor-transport-scythe-75336-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
-- [Pokémon Base Set Unlimited Ivysaur 30/102 - PSA 7 NM! WOTC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-base-set-unlimited-ivysaur-30-102-psa-7-nm-wotc)
+- [Fates Collide PSA 8 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2016-pokemon-xy-fates-collide-79-lugia-break-psa-8)
 
 ### 🎮 Video Games
-- [Far Cry 4 - Limited Edition (Microsoft Xbox One, 2015) Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/far-cry-4-limited-edition-microsoft-xbox-one-2015-factory-sealed)
-- [Is LEGO - Nintendo Entertainment System Mario TV Set 71374 Priced Fairly at $325.00?](https://bestdeals4u.trade/post/lego-nintendo-entertainment-system-mario-tv-set-71374-new-sealed)
+- [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
+- [Is This Turok: Evolution (2002) No Manual for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/turok-evolution-nintendo-gamecube-2002-no-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
