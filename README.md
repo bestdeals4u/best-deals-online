@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jesus Lopez 2025 Bowman PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-jesus-lopez-1st-auto-green-grass-refractor-99-psa-10-gem)
-- [2024 Flawless 1st On Print #1/10 Auto Jacob Wilson Gold Jumbo Patch Rookie Card](https://bestdeals4u.trade/post/2024-flawless-1st-on-print-1-10-auto-jacob-wilson-gold-jumbo-patch-rookie-card)
+- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
+- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
 
 ### 🧸 Funko Pops
-- [Funko Pop Romeo #708 Chase](https://bestdeals4u.trade/post/funko-pop-romeo-juliet-vinyl-figure-chase-708-limited-edition-vaulted)
-- [Dungeons & Dragons Brass Dragon Wyrmling ECCC Funko Pop #1201 LE 8000 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/funko-pop-dungeons-dragons-1201-brass-dragon-wyrmling-le-8000-eccc-shared)
+- [Funko Pop, Zuko #538 Chase](https://bestdeals4u.trade/post/funko-pop-avatar-the-last-airbender-zuko-538-chase-limited-edition-vinyl)
+- [Funko Pop Brass Dragon Wyrmling #1201 – 2026 ECCC Shared LE 8000](https://bestdeals4u.trade/post/funko-pop-brass-dragon-wyrmling-1201-2026-eccc-shared-le-8000-in-hand)
 
 ### 🧱 LEGO
-- [Lego Creator 31077 3-in-1 Modular Sweet Surprises Sealed New In Box, Retired](https://bestdeals4u.trade/post/lego-creator-31077-3-in-1-modular-sweet-surprises-sealed-new-in-box-retired)
-- [LEGO 75178 Jakku Quadjumper Sealed](https://bestdeals4u.trade/post/lego-star-wars-jakku-quadjumper-75178-factory-sealed-and-retired)
+- [LEGO 40530 Jane Goodall Tribute Sealed](https://bestdeals4u.trade/post/lego-gwp-40530-jane-goodall-tribute-new-factory-sealed)
+- [LEGO 21109 Exo Suit Sealed](https://bestdeals4u.trade/post/lego-ideas-21109-exo-suit-brand-new-factory-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Star Promo Greninja-Celebrations Gold Star PSA 8 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2021-pokemon-swsh-black-star-promo-greninja-gold-star-celebrations-144-psa-8)
-- [Unseen Forces Gold Star PSA 4 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2005-ex-unseen-forces-gold-star-113-entei-holo-psa-4-minty-desc)
+- [Is Game PSA 3 Priced Fairly at $44.99?](https://bestdeals4u.trade/post/1999-pokemon-game-7-hitmonchan-holo-psa-3)
+- [Cape of Toughness 200/185 Vivid Voltage 2020 Gold Secret Rare](https://bestdeals4u.trade/post/cape-of-toughness-200-185-2020-vivid-voltage-2020-pokemon-card-gold-secret-rare)
 
 ### 🎮 Video Games
 - [Market Review: Complete Lara Croft: Tomb Raider -- Legend (Nintendo GameCube, 2006) CIB Tested](https://bestdeals4u.trade/post/complete-lara-croft-tomb-raider-legend-nintendo-gamecube-2006-cib-tested)
-- [Old School Rally (PlayStation 5,2026) Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/old-school-rally-playstation-5-2026-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
