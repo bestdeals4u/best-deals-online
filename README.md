@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [HENDRY MENDEZ 2022 BOWMAN CHROME PROSPECT AUTOGRAPHS RC PSA 10](https://bestdeals4u.trade/post/hendry-mendez-2022-bowman-1st-ref-rc-auto-499-psa-10-gem-mint)
-- [Dustin Harris 2022 Bowman PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-gold-refractor-43-50-dustin-harris-psa-10-auto)
+- [Max Meyer 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-logofractor-max-meyer-autograph-green-rookie-99-rcamm-psa-10)
+- [Asbel Gonzalez 2025 Bowman PSA 10](https://bestdeals4u.trade/post/2025-bowman-asbel-gonzalez-1st-green-refractor-autograph-99-cpa-ag-psa-10)
 
 ### 🧸 Funko Pops
 - [Marvel Lilith SDCC 2023 Exclusive Funko Pop #1264 at $11.99, with recent sales closer to $13.71](https://bestdeals4u.trade/post/funko-pop-marvel-lilith-1264-sdcc-2023-exclusive-vinyl-figure-new)
 - [Is This Franny Ice Skater PCs Funko Pop #385 LE 1900 a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-digital-festival-of-fun-385-franny-ice-skater-legendary-le-1900-pcs)
 
 ### 🧱 LEGO
-- [LEGO Star Wars 75370 Stormtrooper Mech 138 PCS at $25.84, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-75370-stormtrooper-mech-sealed-new-138-pcs-retired-q)
-- [LEGO 10218 Pet Shop Sealed](https://bestdeals4u.trade/post/lego-10218-expert-creator-pet-shop-new-in-sealed-box)
+- [LEGO 10757 Raptor Rescue Truck Sealed](https://bestdeals4u.trade/post/lego-10757-juniors-raptor-rescue-truck-new-sealed-retired-jurassic-dinosaur)
+- [LEGO 40488 Coffee Cart Sealed](https://bestdeals4u.trade/post/lego-creator-coffee-cart-40488-retired-limited-edition-gwp-brand-new-sealed-2022)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Pikachu TG05 Lost Origin Trainer Gallery PSA 9 Pokemon Card](https://bestdeals4u.trade/post/pikachu-tg05-lost-origin-trainer-gallery-psa-9-pokemon-card)
-- [Unseen Forces Gold Star PSA 4 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2005-ex-unseen-forces-gold-star-113-entei-holo-psa-4-minty-desc)
-
-### 🎮 Video Games
-- [Deadpool PS3 VGA 90 Factory Sealed Mint Wata Overview](https://bestdeals4u.trade/post/deadpool-ps3-vga-90-factory-sealed-mint-wata)
+- [Poliwrath Holo PSA 7 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/poliwrath-1999-base-set-holo-13-102-psa-7-near-mint-pokemon-tcg)
+- [Is This Pfl Phantasmal Flames Illustration PSA 10 a Good Deal Right Now?](https://bestdeals4u.trade/post/2025-pokemon-pfl-en-phantasmal-flames-illustration-rare-095-ludicolo-psa-10)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
