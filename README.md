@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Panini Stars And Stripes Max Meyer Red Ink Rookie Patch Auto + 25 Mlb Cards Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2020-panini-stars-and-stripes-max-meyer-red-ink-rookie-patch-auto-25-mlb-cards)
 - [Market Review: 1966 Topps Rub-Offs Set-Break Detroit Tigers Baseball Pennant Card SGC 7](https://bestdeals4u.trade/post/1966-topps-rub-offs-set-break-detroit-tigers-baseball-pennant-card-sgc-7)
-- [Max Meyer 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-1st-bowman-draft-chrome-max-meyer-purple-refractor-auto-250-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, The 4th Doctor, The Fourth Doctor #232 Exclusive](https://bestdeals4u.trade/post/funko-pop-doctor-who-fourth-doctor-232-tom-baker-w-jelly-vaulted-exclusive)
-- [Funko Pop, Games Persona #523 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-persona-5-arsene-523-gamestop-exclusive-figure-with-protector)
+- [Funko Pop, Beggar So #236 Exclusive](https://bestdeals4u.trade/post/funko-pop-asia-beggar-so-beggar-so-236-mindstyle-exclusive-vaulted)
+- [Funko Pop, Arsene #523 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-persona-5-arsene-523-gamestop-exclusive-figure-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 75387 Tantive IV Sealed](https://bestdeals4u.trade/post/lego-star-wars-75387-boarding-the-tantive-iv-new-sealed-free-postage)
-- [LEGO Volkswagen T1 Camper Van - Retired NIB Sealed](https://bestdeals4u.trade/post/lego-creator-volkswagen-t1-camper-van-10220-nib-new-sealed-unopened-retired)
+- [LEGO 79109 Colby City Showdown Sealed](https://bestdeals4u.trade/post/new-sealed-rare-lego-79109-the-lone-ranger-colby-city-showdown-retired)
+- [LEGO 21109 Exo Suit Sealed](https://bestdeals4u.trade/post/lego-ideas-21109-exo-suit-brand-new-factory-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [Is This Pokémon Shadowless Alakazam Holo 1/102 PSA 5 Actually a Good Value?](https://bestdeals4u.trade/post/1999-pok-mon-shadowless-alakazam-holo-1-102-psa-5)
 - [Chansey 003/102 Base Set Holo PSA 7 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/chansey-003-102-base-set-holo-psa-7)
-- [Market Review: 2025 Pokémon DRI EN-DESTINED RIVALS Ultra Team Rocket's Mewtwo EX PSA 10](https://bestdeals4u.trade/post/2025-pokemon-dri-en-destined-rivals-ultra-rare-team-rocket-s-mewtwo-ex-psa-10)
 
 ### 🎮 Video Games
 - [Thinking About Buying 3D Pandora Wifi Saga EX Box 8000 in 1 DIY Kit Arcade Retro Video game? Read This First](https://bestdeals4u.trade/post/3d-pandora-wifi-saga-ex-box-8000-in-1-diy-kit-arcade-retro-video-game-console)
