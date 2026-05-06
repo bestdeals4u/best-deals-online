@@ -36,24 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
-- [Aaron Blair 2013 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-draft-gold-refractor-17-50-aaron-blair-bgs-9-5-gem-mint-auto-2m4)
+- [2018 Leaf Baseball Ohtani #ST-01 Rookie Card PSA 8 – Free Shipping](https://bestdeals4u.trade/post/2018-leaf-baseball-ohtani-st-01-shohei-ohtani-rookie-card-psa-8)
+- [Joshua Baez 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/joshua-baez-2022-bowman-chrome-cpajb-1st-true-blue-refractor-auto-150-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, ! Vinyl: #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982)
-- [Funko Pop, Tatsumaki #721 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-terrible-tornado-glow-chase-721)
+- [Funko Pop, Spikey #933 Exclusive](https://bestdeals4u.trade/post/funko-pop-933-spikey-blacklight-killer-klowns-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75357 Ghost & Phantom II Sealed](https://bestdeals4u.trade/post/lego-star-wars-ghost-phantom-ii-75357-new-sealed-retired-set-box-shelf-wear)
-- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
+- [LEGO Ideas Typewriter 21327 at $299.99, below recent comps](https://bestdeals4u.trade/post/lego-ideas-typewriter-21327-sealed)
+- [Lego Super Mario Series 6 Character Pack 71413 Mystery Box bags at $12.99, below recent comps](https://bestdeals4u.trade/post/lego-super-mario-series-6-character-pack-71413-mystery-box-new-sealed-bags)
 
 ### 🃏 Pokémon Cards
-- [Is This Inferno PSA 10 a Good Buy?](https://bestdeals4u.trade/post/2025-pokemon-jpn-m2-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
-- [Pikachu PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/psa-10-pikachu-pokemon-25th-anniversary-collection-promo-pokemon-card)
+- [Pokémon Charizard ex 223/197 Obsidian Flames PSA 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-charizard-ex-223-197-obsidian-flames-special-illustration-rare-psa-8)
 
 ### 🎮 Video Games
-- [Yoshi's Island DS Nintendo DS Graded WATA PSA 9.6 A+ - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/yoshi-s-island-ds-nintendo-ds-new-sealed-graded-wata-psa-9-6-a)
-- [Yu-Gi-Oh Duelists Magical Hero Box 1st Edition Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/yu-gi-oh-legendary-duelists-magical-hero-box-1st-edition-factory-sealed)
+- [Microsoft Xbox 360 E Console 4GB, Black, Model 1538, Working at $70.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/microsoft-xbox-360-e-console-4gb-black-model-1538-tested-working)
+- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
