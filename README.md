@@ -36,22 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Don Mattingly 1984 Topps Baseball #8 PSA 7 Near Mint Yankees Rookie Card](https://bestdeals4u.trade/post/don-mattingly-rookie-card-1984-topps-baseball-8-psa-7-near-mint-ny-yankees-rc)
 - [2018 Leaf Baseball Ohtani #ST-01 Rookie Card PSA 8 – Free Shipping](https://bestdeals4u.trade/post/2018-leaf-baseball-ohtani-st-01-shohei-ohtani-rookie-card-psa-8)
-- [Joshua Baez 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/joshua-baez-2022-bowman-chrome-cpajb-1st-true-blue-refractor-auto-150-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Spikey #933 Exclusive](https://bestdeals4u.trade/post/funko-pop-933-spikey-blacklight-killer-klowns-gamestop-exclusive-w-protector)
+- [Market Review: Funko Pop Brass Dragon Wyrmling 1201 ECCC 2026 Exclusive LE 8000 with Protector](https://bestdeals4u.trade/post/funko-pop-brass-dragon-wyrmling-1201-eccc-2026-exclusive-le-8000-with-protector)
+- [Funko Pop Prince #79 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-prince-purple-rain-diamond-fye-exclusive-79-w-protector)
 
 ### 🧱 LEGO
-- [LEGO Ideas Typewriter 21327 at $299.99, below recent comps](https://bestdeals4u.trade/post/lego-ideas-typewriter-21327-sealed)
-- [Lego Super Mario Series 6 Character Pack 71413 Mystery Box bags at $12.99, below recent comps](https://bestdeals4u.trade/post/lego-super-mario-series-6-character-pack-71413-mystery-box-new-sealed-bags)
+- [LEGO 76200 Bro Thor’s New Asgard Sealed](https://bestdeals4u.trade/post/lego-76200-marvel-infinity-saga-bro-thor-s-new-asgard-new-sealed-retired-2)
+- [LEGO Star Wars: Clone Trooper Command Station (40558) at $27.99, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-clone-trooper-command-station-40558-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Pokémon Charizard ex 223/197 Obsidian Flames PSA 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-charizard-ex-223-197-obsidian-flames-special-illustration-rare-psa-8)
+- [Mewtwo Promo Pokken PSA 9](https://bestdeals4u.trade/post/psa-9-shadow-dark-mewtwo-pokken-tournament-japanese-pokemon-card-2016)
+- [Blaziken VMAX PSA 10 at $800.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/pokemon-2021-blaziken-vmax-201-198-alt-art-chilling-reign-gem-mint-psa-10)
 
 ### 🎮 Video Games
-- [Microsoft Xbox 360 E Console 4GB, Black, Model 1538, Working at $70.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/microsoft-xbox-360-e-console-4gb-black-model-1538-tested-working)
-- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
+- [Mario Golf: Toadstool Tour (2003),SUPER RARE, cond for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/mario-golf-toadstool-tour-nintendo-gamecube-2003-super-rare-very-good-cond)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
