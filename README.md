@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Don Mattingly 1984 Topps Baseball #8 PSA 7 Near Mint Yankees Rookie Card](https://bestdeals4u.trade/post/don-mattingly-rookie-card-1984-topps-baseball-8-psa-7-near-mint-ny-yankees-rc)
-- [2018 Leaf Baseball Ohtani #ST-01 Rookie Card PSA 8 – Free Shipping](https://bestdeals4u.trade/post/2018-leaf-baseball-ohtani-st-01-shohei-ohtani-rookie-card-psa-8)
+- [Denzer Guzman 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-228-499-denzer-guzman-psa-9-mint-auto-03ox)
+- [David Price 2007 Bowman Sterling BGS 9.5](https://bestdeals4u.trade/post/2007-bowman-sterling-prospects-refractor-david-price-bgs-9-5-gem-mint-auto-0w4i)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop Brass Dragon Wyrmling 1201 ECCC 2026 Exclusive LE 8000 with Protector](https://bestdeals4u.trade/post/funko-pop-brass-dragon-wyrmling-1201-eccc-2026-exclusive-le-8000-with-protector)
-- [Funko Pop Prince #79 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-prince-purple-rain-diamond-fye-exclusive-79-w-protector)
+- [Market Review: Funko Pop! Vinyl: Marvel - Jubilee (Chase) #1536](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-jubilee-chase-1536)
+- [Funko Pop, ! Vinyl: #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982-2)
 
 ### 🧱 LEGO
-- [LEGO 76200 Bro Thor’s New Asgard Sealed](https://bestdeals4u.trade/post/lego-76200-marvel-infinity-saga-bro-thor-s-new-asgard-new-sealed-retired-2)
-- [LEGO Star Wars: Clone Trooper Command Station (40558) at $27.99, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-clone-trooper-command-station-40558-new-sealed)
+- [LEGO 10332 Town Square Sealed](https://bestdeals4u.trade/post/lego-icons-medieval-town-square-village-10332-brand-new-sealed-retired-nib)
+- [LEGO 75085 Hailfire Droid Sealed](https://bestdeals4u.trade/post/lego-75085-star-wars-hailfire-droid-2015-retired-nib-sealed)
 
 ### 🃏 Pokémon Cards
-- [Mewtwo Promo Pokken PSA 9](https://bestdeals4u.trade/post/psa-9-shadow-dark-mewtwo-pokken-tournament-japanese-pokemon-card-2016)
-- [Blaziken VMAX PSA 10 at $800.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/pokemon-2021-blaziken-vmax-201-198-alt-art-chilling-reign-gem-mint-psa-10)
+- [2023 Pokémon SVP Black Star Promo 151 Ultra-Premium Collection Mewtwo PSA 9](https://bestdeals4u.trade/post/2023-pokemon-svp-en-sv-black-star-promo-151-ultra-prem-coll-052-mewtwo-psa-9)
+- [1999 Pokemon English Charizard Base Set Unlimited 4/102 - EX / NM Condition](https://bestdeals4u.trade/post/v1-336221582371-0-1999-pokemon-english-charizard-base-set-unlimited-4-102-ex-nm-condition)
 
 ### 🎮 Video Games
-- [Mario Golf: Toadstool Tour (2003),SUPER RARE, cond for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/mario-golf-toadstool-tour-nintendo-gamecube-2003-super-rare-very-good-cond)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
+- [Market Review: Atari Anniversary Advance Nintendo Game Boy Advance GBA CIB Boxed Complete PAL](https://bestdeals4u.trade/post/atari-anniversary-advance-nintendo-game-boy-advance-gba-cib-boxed-complete-pal)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
