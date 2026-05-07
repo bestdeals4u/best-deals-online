@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Framber Valdez 2019 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2019-topps-chrome-rookie-auto-blue-wave-refractor-150-framer-valdez-psa-10-gem)
-- [Noah Schultz 2022 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/bowman-2022-draft-chrome-noah-schultz-refractor-rookie-auto-499-psa-9)
+- [Is Signed Katie Horstman 1995 Fritsch AAGPBL Baseball Rookie Card HOF Rookie Priced Fairly at $99.99?](https://bestdeals4u.trade/post/signed-katie-horstman-1995-fritsch-aagpbl-baseball-rookie-card-hof-rc-auto-psa)
+- [Topps Diamond Icons Jumbo Patch Auto /25 San Diego Padres MLB - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/2023-topps-diamond-icons-jumbo-patch-auto-25-san-diego-padres-baseball-card-mlb)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop! Vinyl DC Universe Trigon (SDCC, No Box)](https://bestdeals4u.trade/post/funko-pop-vinyl-dc-universe-trigon-san-diego-comic-con-funko-no-box)
-- [Funko Pop, Edgar Allan Poe #21 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-edgar-allan-poe-21-glow-in-dark-exclusive-figure-barnes-and-noble)
+- [Animation One Piece Jewelry Bonney Limited Glow Chase Funko Pop #2255 at $29.99, below recent sales](https://bestdeals4u.trade/post/funko-pop-animation-one-piece-jewelry-bonney-2255-limited-glow-chase-brand-new)
+- [Funko Pop, Speed Racer #737 Chase](https://bestdeals4u.trade/post/funko-pop-speed-racer-737-chase-nightmare-variant-vaulted-mint-w-protect)
 
 ### 🧱 LEGO
-- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-1540-pieces-set-new-sealed-in-box)
+- [LEGO 21325 Blacksmith Sealed](https://bestdeals4u.trade/post/lego-ideas-blacksmith-set-21325-sealed-new-in-box-fits-great-w-castle-theme)
 - [LEGO 75390 Luke Skywalker X-Wing Mech Sealed](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-x-wing-mech-75390-retired-set-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Thinking About Buying GEM Dark Feraligatr HOLO PSA 9? Read This First](https://bestdeals4u.trade/post/psa-9-gem-mint-dark-feraligatr-5-105-holo-neo-destiny-1st-edition-pokemon-card)
-- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
+- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
+- [Topps Chrome PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/2000-topps-chrome-pokemon-t-v-132-ditto-psa-10-gem-mint-modern-grade-stunner)
 
 ### 🎮 Video Games
-- [Taiko no Tatsujin Wii Ketteiban 2/3 Daime Set (Lot of 4) – Japan Wii Import](https://bestdeals4u.trade/post/lot-4-taiko-no-tatsujin-wii-ketteiban-2-3-daime-set-nintendo-wii-japan-import)
-- [Market Review: Microsoft Xbox 360 S 4GB Console Gaming System Black 1439](https://bestdeals4u.trade/post/microsoft-xbox-360-s-4gb-console-gaming-system-black-1439)
+- [Scarlet And Violet Miraidon Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/pokemon-tcg-scarlet-and-violet-miraidon-base-set-etb-sealed)
+- [Market Review: Pokemon Iron Valiant EX Collection Box New Factory Sealed](https://bestdeals4u.trade/post/pokemon-iron-valiant-ex-collection-box-new-factory-sealed-fast-shipping)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
