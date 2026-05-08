@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Is Signed Katie Horstman 1995 Fritsch AAGPBL Baseball Rookie Card HOF Rookie Priced Fairly at $99.99?](https://bestdeals4u.trade/post/signed-katie-horstman-1995-fritsch-aagpbl-baseball-rookie-card-hof-rc-auto-psa)
-- [Topps Diamond Icons Jumbo Patch Auto /25 San Diego Padres MLB - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/2023-topps-diamond-icons-jumbo-patch-auto-25-san-diego-padres-baseball-card-mlb)
+- [Jordan Diaz 2021 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2021-bowman-chrome-orange-shimmer-refractor-20-25-jordan-diaz-psa-9-auto-w5p)
+- [Jett Williams 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-jett-williams-refractor-auto-499-cda-jws-psa-10)
 
 ### 🧸 Funko Pops
-- [Animation One Piece Jewelry Bonney Limited Glow Chase Funko Pop #2255 at $29.99, below recent sales](https://bestdeals4u.trade/post/funko-pop-animation-one-piece-jewelry-bonney-2255-limited-glow-chase-brand-new)
-- [Funko Pop, Speed Racer #737 Chase](https://bestdeals4u.trade/post/funko-pop-speed-racer-737-chase-nightmare-variant-vaulted-mint-w-protect)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 21325 Blacksmith Sealed](https://bestdeals4u.trade/post/lego-ideas-blacksmith-set-21325-sealed-new-in-box-fits-great-w-castle-theme)
-- [LEGO 75390 Luke Skywalker X-Wing Mech Sealed](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-x-wing-mech-75390-retired-set-new-sealed)
+- [LEGO 71043 Hogwarts Castle New in Box](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-castle-71043-brand-new-sealed)
+- [LEGO 75273 Poe Dameron's X-wing Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-poe-dameron-s-x-wing-fighter-75273-new-sealed-retired-2021)
 
 ### 🃏 Pokémon Cards
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
-- [Topps Chrome PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/2000-topps-chrome-pokemon-t-v-132-ditto-psa-10-gem-mint-modern-grade-stunner)
+- [PSA 7 Light Dragonite Japanese Neo 4 Holo 149 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/psa-7-near-mint-light-dragonite-japanese-neo-4-holo-149)
+- [Is This Zapdos Holo PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-1999-zapdos-holo-16-102-psa-7)
 
 ### 🎮 Video Games
-- [Scarlet And Violet Miraidon Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/pokemon-tcg-scarlet-and-violet-miraidon-base-set-etb-sealed)
-- [Market Review: Pokemon Iron Valiant EX Collection Box New Factory Sealed](https://bestdeals4u.trade/post/pokemon-iron-valiant-ex-collection-box-new-factory-sealed-fast-shipping)
+- [Nintendo The Legend of Zelda Collector's Edition NTSC-U/C 2003 Manual for at $80.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-collector-s-edition-gamecube-ntsc-u-c-2003-manual)
+- [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
