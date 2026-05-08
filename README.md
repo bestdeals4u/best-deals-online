@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jordan Diaz 2021 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2021-bowman-chrome-orange-shimmer-refractor-20-25-jordan-diaz-psa-9-auto-w5p)
-- [Jett Williams 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-jett-williams-refractor-auto-499-cda-jws-psa-10)
+- [Jordan Westburg 2024 Topps Tribute RC PSA 9](https://bestdeals4u.trade/post/2024-topps-tribute-jordan-westburg-rc-auto-orange-sp-25-psa-9-rookie-all-star)
+- [Mitch Keller 2017 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2017-bowman-chrome-prospect-green-refractor-11-99-mitch-keller-psa-9-auto-k0w)
 
 ### 🧸 Funko Pops
-- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
+- [Funko Pop, Enel #2236 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-one-piece-enel-2236-chase-target-exclusive-w-protector)
+- [Market Review: Funko Pop! Animation Naruto Shippuden Hidan 1505 Chase Limited Edition Figure](https://bestdeals4u.trade/post/funko-pop-animation-naruto-shippuden-hidan-1505-chase-limited-edition-figure)
 
 ### 🧱 LEGO
-- [LEGO 71043 Hogwarts Castle New in Box](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-castle-71043-brand-new-sealed)
-- [LEGO 75273 Poe Dameron's X-wing Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-poe-dameron-s-x-wing-fighter-75273-new-sealed-retired-2021)
+- [LEGO 76957 Velociraptor Escape Sealed](https://bestdeals4u.trade/post/lego-76957-jurassic-world-velociraptor-escape-new-sealed-rare-retired)
+- [LEGO 40603 Wintertime Carriage Ride Sealed](https://bestdeals4u.trade/post/lego-holiday-christmas-40603-wintertime-carriage-ride-retired-set-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [PSA 7 Light Dragonite Japanese Neo 4 Holo 149 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/psa-7-near-mint-light-dragonite-japanese-neo-4-holo-149)
-- [Is This Zapdos Holo PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-1999-zapdos-holo-16-102-psa-7)
+- [Is Venusaur 015/102 Base Set (Shadowless) Holo Priced Fairly at $199.99?](https://bestdeals4u.trade/post/venusaur-015-102-base-set-shadowless-holo)
+- [Gym Blaine'S Charizard Holo PSA 5 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1999-pokemon-japanese-gym-2-blaine-s-charizard-holo-006-psa-5)
 
 ### 🎮 Video Games
-- [Nintendo The Legend of Zelda Collector's Edition NTSC-U/C 2003 Manual for at $80.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-collector-s-edition-gamecube-ntsc-u-c-2003-manual)
-- [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
+- [Sonic Hedgehog Sega All Stars Racing for Wii – Factory Sealed](https://bestdeals4u.trade/post/sonic-hedgehog-sega-all-stars-racing-new-factory-sealed-nintendo-wii)
+- [Mario Tennis Fever | Nintendo Switch 2 | PSA 9.8 A++ Graded](https://bestdeals4u.trade/post/mario-tennis-fever-nintendo-switch-2-psa-graded-9-8-a-wata-cgc-vga)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
