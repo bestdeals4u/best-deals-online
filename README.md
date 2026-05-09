@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Robert Hassell, Robert Hassell III 2020 Bowman's Best RC PSA 10](https://bestdeals4u.trade/post/2020-bowman-s-best-robert-hassell-refractor-auto-psa-10-gem-mint-nationals-rc)
-- [Is Topps Roger Clemens Graded PSA 8 Rookie Rookie Card Priced Fairly at $28.98?](https://bestdeals4u.trade/post/1985-topps-roger-clemens-181-graded-psa-8-rookie-baseball-card-rc)
+- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
+- [TOPPS SERIES 1 BASEBALL Guaranteed Relic/Auto/Patch Card FAT HOT PACK at $26.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/2026-topps-series-1-baseball-guaranteed-relic-auto-patch-card-fat-hot-pack)
 
 ### 🧸 Funko Pops
-- [Market Review: Demon Slayer #1409 Susamaru GLOW CHASE Funko Pop](https://bestdeals4u.trade/post/demon-slayer-1409-susamaru-glow-chase-funko-pop)
-- [Is This D&D Brass Dragon Wyrmling ECCC 2026 EX + Protector Funko Pop #1201 LE Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-1201-d-d-brass-dragon-wyrmling-eccc-2026-ex-le-8000-protector)
+- [Funko Pop #692 Venomized The Thing Metallic Chase w/ Protector](https://bestdeals4u.trade/post/funko-pop-692-venomized-the-thing-metallic-marvel-chase-w-protector)
+- [X-Men Wolverine Classic Unmasked ECCC Shared Funko Pop #2026 LE 5000 at $54.99, with recent sales closer to $61.97](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-classic-unmasked-le-5000-eccc-2026-shared-new-sealed)
 
 ### 🧱 LEGO
-- [Market Review: Lego Star Wars 4+ SEALED SET 75268 Snowspeeder w/ Wedge Antilles & Speeder Bike!](https://bestdeals4u.trade/post/lego-star-wars-4-sealed-set-75268-snowspeeder-w-wedge-antilles-speeder-bike)
-- [LEGO 75361 Spider Tank Sealed](https://bestdeals4u.trade/post/lego-75361-star-wars-spider-tank-new-sealed-retired)
+- [Market Review: LEGO Star Wars 10225 R2-D2 UCS New Sealed Retired](https://bestdeals4u.trade/post/lego-star-wars-10225-r2-d2-ucs-new-sealed-retired)
+- [LEGO 75308 R2-D2 Sealed](https://bestdeals4u.trade/post/lego-75308-star-wars-r2-d2-retired-50th-anniversary-edition-new-sealed-2314-pc-2)
 
 ### 🃏 Pokémon Cards
-- [Market Review: CGC 10 Umbreon Celebrations 17/17 Classic Collection Pokemon Card Gold Star 2021](https://bestdeals4u.trade/post/cgc-10-umbreon-celebrations-17-17-classic-collection-pokemon-card-gold-star-2021)
-- [PSA 7 1st Edition Shadowless Rattata 61/102 Pokémon 1999 Base Set Wotc TCG Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-7-1st-edition-shadowless-rattata-61-102-pok-mon-1999-base-set-wotc-tcg)
+- [Thinking About Buying Shield Vstar PSA 10? Read This First](https://bestdeals4u.trade/post/2022-pokemon-jpn-sword-shield-vstar-universe-221-full-art-mewtwo-vstar-psa-10)
+- [Market Review: Pokemon Wartortle 171/165 Secret Rare Scarlet Violet PSA 9](https://bestdeals4u.trade/post/pokemon-card-wartortle-171-165-secret-rare-scarlet-violet-pokemon-151-psa-9)
 
 ### 🎮 Video Games
-- [Market Review: Pokemon TCG Mega Dream Ex M2a Booster Box Japanese IN STOCK - FACTORY SEALED](https://bestdeals4u.trade/post/pokemon-tcg-mega-dream-ex-m2a-booster-box-japanese-in-stock-factory-sealed)
+- [Market Review: Nintendo Game & Watch The Legend of Zelda Sealed VGA 85+ Near Mint NES PSA](https://bestdeals4u.trade/post/nintendo-game-watch-the-legend-of-zelda-sealed-vga-85-near-mint-nes-psa)
+- [Crazy Taxi 2 (Sega Dreamcast, 2001); in Box (); Tested Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/crazy-taxi-2-sega-dreamcast-2001-complete-in-box-cib-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
