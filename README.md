@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
-- [TOPPS SERIES 1 BASEBALL Guaranteed Relic/Auto/Patch Card FAT HOT PACK at $26.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/2026-topps-series-1-baseball-guaranteed-relic-auto-patch-card-fat-hot-pack)
+- [Is Topps Rod Gaspar York Mets Rookie PSA 5 /DNA AUTO Rookie Card Priced Fairly at $39.74?](https://bestdeals4u.trade/post/1970-topps-371-rod-gaspar-new-york-mets-rookie-baseball-card-psa-5-dna-auto-rc)
+- [Kumar Rocker 2022 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/kumar-rocker-bgs-9-5-10-2022-1st-bowman-chrome-auto-blue-refractor-150-rc-z2)
 
 ### 🧸 Funko Pops
-- [Funko Pop #692 Venomized The Thing Metallic Chase w/ Protector](https://bestdeals4u.trade/post/funko-pop-692-venomized-the-thing-metallic-marvel-chase-w-protector)
-- [X-Men Wolverine Classic Unmasked ECCC Shared Funko Pop #2026 LE 5000 at $54.99, with recent sales closer to $61.97](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-classic-unmasked-le-5000-eccc-2026-shared-new-sealed)
+- [Funko Pop! Marvel Doctor Doom 591 Fantastic Four ECCC + Free Protector](https://bestdeals4u.trade/post/funko-pop-marvel-doctor-doom-591-fantastic-four-eccc-free-protector-vaulted)
+- [Market Review: Funko Pop! X-Men Wolverine (Classic Unmasked) ECCC #1576 LE 5000 PCS](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-classic-unmasked-eccc-1576-le-5000-pcs)
 
 ### 🧱 LEGO
-- [Market Review: LEGO Star Wars 10225 R2-D2 UCS New Sealed Retired](https://bestdeals4u.trade/post/lego-star-wars-10225-r2-d2-ucs-new-sealed-retired)
-- [LEGO 75308 R2-D2 Sealed](https://bestdeals4u.trade/post/lego-75308-star-wars-r2-d2-retired-50th-anniversary-edition-new-sealed-2314-pc-2)
+- [LEGO 40602 Market Stall Sealed](https://bestdeals4u.trade/post/lego-creator-40602-christmas-winter-market-stall-271-pieces-retired-sealed-new)
+- [LEGO Harry Potter: Hogsmeade Village Visit (76388) in Box at $77.00, below recent comps](https://bestdeals4u.trade/post/lego-harry-potter-hogsmeade-village-visit-76388-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Thinking About Buying Shield Vstar PSA 10? Read This First](https://bestdeals4u.trade/post/2022-pokemon-jpn-sword-shield-vstar-universe-221-full-art-mewtwo-vstar-psa-10)
-- [Market Review: Pokemon Wartortle 171/165 Secret Rare Scarlet Violet PSA 9](https://bestdeals4u.trade/post/pokemon-card-wartortle-171-165-secret-rare-scarlet-violet-pokemon-151-psa-9)
+- [PSA 3 Latias & Latios GX Alt Art 170/181 (2019 Team Up) – Graded Ultra Rare](https://bestdeals4u.trade/post/psa-3-latias-latios-gx-alt-art-170-181-2019-team-up-ultra-rare-pokemon-card)
+- [Is This Gengar Chilling Reign Holo 057/198 PSA 10 *LOW POP* Actually a Good Value?](https://bestdeals4u.trade/post/2021-gengar-chilling-reign-holo-rare-057-198-psa-10-low-pop)
 
 ### 🎮 Video Games
-- [Market Review: Nintendo Game & Watch The Legend of Zelda Sealed VGA 85+ Near Mint NES PSA](https://bestdeals4u.trade/post/nintendo-game-watch-the-legend-of-zelda-sealed-vga-85-near-mint-nes-psa)
-- [Crazy Taxi 2 (Sega Dreamcast, 2001); in Box (); Tested Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/crazy-taxi-2-sega-dreamcast-2001-complete-in-box-cib-tested)
+- [Danganronpa Decadence Collector's Edition 2021 Nintendo Switch Sealed](https://bestdeals4u.trade/post/danganronpa-decadence-collector-s-edition-nintendo-switch-2021-new-sealed)
+- [Market Review: Valykyrie Elysium - Sony PlayStation 4 PS4 - Brand New Factory Sealed US Ver.](https://bestdeals4u.trade/post/valykyrie-elysium-sony-playstation-4-ps4-brand-new-factory-sealed-us-ver)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
