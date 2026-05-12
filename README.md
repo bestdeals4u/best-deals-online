@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jeter Martinez 2024 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/jeter-martinez-2024-1st-bowman-chrome-auto-blue-refractor-150-psa-9-mint-rc-h6)
-- [Dansby Swanson 2017 Bowman RC BGS 9.5](https://bestdeals4u.trade/post/2017-bowman-chrome-rookie-auto-dansby-swanson-cra-ds-bgs-9-5-gem-mint-4-50-gold)
+- [Tyler Soderstrom 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-tyler-soderstrom-true-orange-auto-25-rc-rookie-sp-ssp-psa-9)
+- [Luke Keaschall 2023 Bowman Chrome Draft Sapphire Edition RC PSA 9](https://bestdeals4u.trade/post/2023-topps-bowman-draft-sapphire-luke-keaschall-rookie-auto-199-psa-9-twins)
 
 ### 🧸 Funko Pops
-- [Funko Pop Zatanna #316](https://bestdeals4u.trade/post/funko-pop-zatanna-316-dc-super-heroes-le-2020-eccc)
-- [Market Review: Funko Pop! Batman Bat Manga ECCC 2026 Sticker Exclusive #621 LE 5000](https://bestdeals4u.trade/post/funko-pop-batman-bat-manga-eccc-2026-sticker-exclusive-621-le-5000)
+- [Funko Pop, Sigmund #853 Exclusive](https://bestdeals4u.trade/post/funko-pop-sigmund-853-sdcc-exclusive-sigmund-and-the-sea-monsters-protector)
+- [Naked Snake Big Boss Exclusive + Protector Funko Pop #1159 at $22.99, with recent sales closer to $27.39](https://bestdeals4u.trade/post/funko-pop-naked-snake-big-boss-1159-exclusive-vinyl-figure-protector)
 
 ### 🧱 LEGO
-- [LEGO 70735 Ronin R.E.X. Sealed](https://bestdeals4u.trade/post/lego-70735-ninjago-ronin-r-e-x-airjitzu-flyer-new-sealed-nib-retired-ghost-ninj)
-- [LEGO 76394 Fawkes Dumbledore's Phoenix Sealed](https://bestdeals4u.trade/post/lego-harry-potter-fawkes-dumbledore-s-phoenix-76394-retired-factory-sealed)
+- [LEGO LOTR Rivendell Icons 10316 Sealed Set](https://bestdeals4u.trade/post/lego-icons-the-lord-of-the-rings-rivendell-10316-factory-sealed)
+- [Market Review: LEGO 76386 Harry Potter Hogwarts Polyjuice Potion Mistake, New and Sealed](https://bestdeals4u.trade/post/lego-76386-harry-potter-hogwarts-polyjuice-potion-mistake-new-and-sealed)
 
 ### 🃏 Pokémon Cards
-- [Is This Charizard Ultra Holo PSA 10 a Good Deal Right Now?](https://bestdeals4u.trade/post/2023-pokemon-charizard-ex-obsidian-flames-ultra-rare-holo-psa-10-215)
-- [BREAKpoint Meganium Reverse Holo at $10.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/breakpoint-meganium-3-122-reverse-holo-pokemon-league-cgc-8)
+- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
+- [Is Lugia Vivid Voltage Reverse Holo Priced Fairly at $129.95?](https://bestdeals4u.trade/post/cgc-10-lugia-132-185-2020-pokemon-vivid-voltage-reverse-holo-109-pop-19-psa)
 
 ### 🎮 Video Games
-- [Is Charlie and the Chocolate Factory (2005) for GameCube Priced Fairly at $22.00?](https://bestdeals4u.trade/post/charlie-and-the-chocolate-factory-nintendo-gamecube-2005)
-- [Market Review: WCW/NWO Revenge w/ Poster Nintendo 64 N64 Complete in Box CIB](https://bestdeals4u.trade/post/wcw-nwo-revenge-w-poster-nintendo-64-n64-complete-in-box-cib)
+- [Moving Out (Playstation 4 PS4) Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/moving-out-playstation-4-ps4-brand-new-factory-sealed)
+- [Market Review: Sega Genesis Mighty Morphin POWER RANGERS Wata 9.4 A+ RARE Variant New Sealed](https://bestdeals4u.trade/post/sega-genesis-mighty-morphin-power-rangers-wata-9-4-a-rare-variant-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
