@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Trent Grisham 2020 Topps Definitive Collection RC PSA 9](https://bestdeals4u.trade/post/2020-topps-definitive-trent-grisham-au-rc-tg-rookie-auto-50-psa-mint-9)
-- [Walker Jenkins 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/2025-walker-jenkins-bowman-chrome-prospect-true-blue-auto-150-psa-9-twins-rc)
+- [Oswald Peraza 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-oswald-peraza-auto-purple-refractor-250-1st-bowman-psa-10)
+- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
 
 ### 🧸 Funko Pops
-- [Yu-Gi-Oh! Dark Paladin NYCC 2025 Official Con Sticker Funko Pop #2056 at $27.50, with recent sales closer to $35.44](https://bestdeals4u.trade/post/funko-pop-yu-gi-oh-dark-paladin-2056-nycc-2025-official-con-sticker)
-- [Duck Dodgers Marvin the Martian SDCC Exclusive 1000 PC Funko Pop #143 at $249.98, below recent sales](https://bestdeals4u.trade/post/funko-pop-duck-dodgers-marvin-the-martian-143-sdcc-exclusive-1000-pc-neon-green)
+- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
+- [Animation Demon Slayer Tengen Uzui Chase Limited Funko Pop #1533 at $30.00, with recent sales closer to $31.75](https://bestdeals4u.trade/post/funko-pop-animation-demon-slayer-tengen-uzui-chase-limited-edition-box-1533)
 
 ### 🧱 LEGO
-- [LEGO 76048 Iron Skull Sub Attack Sealed](https://bestdeals4u.trade/post/brand-new-sealed-lego-marvel-super-heroes-iron-skull-sub-attack-76048-retired)
-- [LEGO 40461 Tulips Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-botanicals-tulips-40461)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [Market Review: LEGO 21342 Ideas: The Insect Collection NEW SEALED](https://bestdeals4u.trade/post/lego-21342-ideas-the-insect-collection-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [Scr Stellar Crown Illustration PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2024-pokemon-scr-en-stellar-crown-illustration-rare-143-bulbasaur-psa-10)
 - [Is This PSA10 Dancer SR Fusion Arts Dancer Fusion Arts Charizard Mew Mewtwo Gengar Actually a Good Value?](https://bestdeals4u.trade/post/psa10-dancer-sr-fusion-arts-dancer-fusion-arts-charizard-mew-mewtwo-gengar)
-- [PSA 9 Mew ex SV Black Star Promo SVP053](https://bestdeals4u.trade/post/psa-9-mint-pokemon-mew-ex-scarlet-violet-black-star-promo-holo-svp053)
 
 ### 🎮 Video Games
 - [Market Review: Atari Anniversary Advance Nintendo Game Boy Advance GBA CIB Boxed Complete PAL](https://bestdeals4u.trade/post/atari-anniversary-advance-nintendo-game-boy-advance-gba-cib-boxed-complete-pal)
