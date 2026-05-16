@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Oswald Peraza 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-oswald-peraza-auto-purple-refractor-250-1st-bowman-psa-10)
-- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
+- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
+- [Fleer Ryne Sandberg Rookie Chicago Cubs PSA 6 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/1983-fleer-ryne-sandberg-507-rookie-chicago-cubs-psa-6-ex-mt-baseball-card)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
-- [Animation Demon Slayer Tengen Uzui Chase Limited Funko Pop #1533 at $30.00, with recent sales closer to $31.75](https://bestdeals4u.trade/post/funko-pop-animation-demon-slayer-tengen-uzui-chase-limited-edition-box-1533)
+- [Funko Pop, Eddie Guerrero #284 Exclusive](https://bestdeals4u.trade/post/wwe-eddie-guerrero-with-low-rider-gamestop-exclusive-284-w-pop-protector-new)
+- [Funko Pop L #219 Exclusive](https://bestdeals4u.trade/post/funko-pop-death-note-l-with-cake-with-protector-219-hot-topic-exclusive)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [Market Review: LEGO 21342 Ideas: The Insect Collection NEW SEALED](https://bestdeals4u.trade/post/lego-21342-ideas-the-insect-collection-new-sealed)
+- [LEGO 4842 Hogwarts Castle Sealed](https://bestdeals4u.trade/post/lego-4842-harry-potter-hogwarts-castle-2010-edition-new-sealed-retired)
+- [Lego Icons 10321 Chevrolet Corvette 1961 at $169.00, below recent comps](https://bestdeals4u.trade/post/lego-icons-10321-chevrolet-corvette-1961-new-sealed-us-fast-ship)
 
 ### 🃏 Pokémon Cards
-- [Scr Stellar Crown Illustration PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2024-pokemon-scr-en-stellar-crown-illustration-rare-143-bulbasaur-psa-10)
-- [Is This PSA10 Dancer SR Fusion Arts Dancer Fusion Arts Charizard Mew Mewtwo Gengar Actually a Good Value?](https://bestdeals4u.trade/post/psa10-dancer-sr-fusion-arts-dancer-fusion-arts-charizard-mew-mewtwo-gengar)
+- [Is Illustration Psyduck Mew PSA 10 Priced Fairly at $359.99?](https://bestdeals4u.trade/post/pokemon-151-english-illustration-rare-psa-10-psyduck-card-175-165-mew-en-2023)
+- [Articuno 2/110 Legendary Collection Holo 2002 PSA 8 Pokémon TCG POP 239 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/articuno-2-110-legendary-collection-holo-rare-2002-psa-8-pok-mon-tcg-pop-239)
 
 ### 🎮 Video Games
-- [Market Review: Atari Anniversary Advance Nintendo Game Boy Advance GBA CIB Boxed Complete PAL](https://bestdeals4u.trade/post/atari-anniversary-advance-nintendo-game-boy-advance-gba-cib-boxed-complete-pal)
-- [Yoshi's Cookie for SUPER NES Complete](https://bestdeals4u.trade/post/yoshi-s-cookie-super-nintendo-snes-complete-in-box-cib)
+- [How Good of a Deal Is This Legend of Spyro: A Beginning (2006) for GameCube?](https://bestdeals4u.trade/post/legend-of-spyro-a-new-beginning-nintendo-gamecube-2006)
+- [F-Zero GX 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/f-zero-gx-nintendo-gamecube-cib-complete-tested-working-great-condition)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
