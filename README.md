@@ -36,24 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
-- [Fleer Ryne Sandberg Rookie Chicago Cubs PSA 6 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/1983-fleer-ryne-sandberg-507-rookie-chicago-cubs-psa-6-ex-mt-baseball-card)
-
-### 🧸 Funko Pops
-- [Funko Pop, Eddie Guerrero #284 Exclusive](https://bestdeals4u.trade/post/wwe-eddie-guerrero-with-low-rider-gamestop-exclusive-284-w-pop-protector-new)
-- [Funko Pop L #219 Exclusive](https://bestdeals4u.trade/post/funko-pop-death-note-l-with-cake-with-protector-219-hot-topic-exclusive)
+- [Bowman Shohei Ohtani Angels Rookie Rookie Card PSA 9 Graded Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2018-bowman-shohei-ohtani-49-angels-rookie-rc-psa-9-graded-baseball-card)
+- [Eduardo Herrera 2024 Bowman PSA 10](https://bestdeals4u.trade/post/psa-10-2024-bowman-chrome-eduardo-herrera-auto-green-m-b-refractor-99-white-sox)
 
 ### 🧱 LEGO
-- [LEGO 4842 Hogwarts Castle Sealed](https://bestdeals4u.trade/post/lego-4842-harry-potter-hogwarts-castle-2010-edition-new-sealed-retired)
-- [Lego Icons 10321 Chevrolet Corvette 1961 at $169.00, below recent comps](https://bestdeals4u.trade/post/lego-icons-10321-chevrolet-corvette-1961-new-sealed-us-fast-ship)
+- [LEGO 66787 Jedi Masters Gift Set Sealed](https://bestdeals4u.trade/post/lego-66787-star-wars-galactic-gift-set-new-sealed-retired-walmart-exclusive)
+- [LEGO 40695 Borgin and Burkes: Floo Network Sealed](https://bestdeals4u.trade/post/lego-harry-potter-borgin-and-burkes-floo-network-40695-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Is Illustration Psyduck Mew PSA 10 Priced Fairly at $359.99?](https://bestdeals4u.trade/post/pokemon-151-english-illustration-rare-psa-10-psyduck-card-175-165-mew-en-2023)
-- [Articuno 2/110 Legendary Collection Holo 2002 PSA 8 Pokémon TCG POP 239 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/articuno-2-110-legendary-collection-holo-rare-2002-psa-8-pok-mon-tcg-pop-239)
+- [Is This Treecko Holo Gold Star PSA 3 a Good Buy?](https://bestdeals4u.trade/post/psa-3-2004-treecko-gold-star-011-084-holo-pokemon-card-japanese-vintage-rare)
+- [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint)
 
 ### 🎮 Video Games
-- [How Good of a Deal Is This Legend of Spyro: A Beginning (2006) for GameCube?](https://bestdeals4u.trade/post/legend-of-spyro-a-new-beginning-nintendo-gamecube-2006)
-- [F-Zero GX 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/f-zero-gx-nintendo-gamecube-cib-complete-tested-working-great-condition)
+- [1PCS Mean Well NES-75-48 Switch Power Supply NES7548 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1pcs-mean-well-nes-75-48-switch-power-supply-nes7548-sealed)
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
