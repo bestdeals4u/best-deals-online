@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [David Price 2007 Bowman Sterling BGS 9.5](https://bestdeals4u.trade/post/2007-bowman-sterling-prospects-refractor-david-price-bgs-9-5-gem-mint-auto-0w4i)
-- [Brayan Bello 2022 Bowman PSA 9](https://bestdeals4u.trade/post/brayan-bello-2022-bowman-chrome-1st-refractor-red-sox-auto-499-psa-9-q0358)
+- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-10-dodgers-rc-z6)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Eddie Guerrero #284 Exclusive](https://bestdeals4u.trade/post/wwe-eddie-guerrero-with-low-rider-gamestop-exclusive-284-w-pop-protector-new)
+- [Funko Pop, Ichigo #1087 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-bleach-ichigo-chase-aaa-anime-exclusive-vinyl-figure-1087)
+- [Funko Pop, Crota #241 Chase Glow](https://bestdeals4u.trade/post/destiny-crota-funko-pop-limited-edition-glow-chase-241)
 
 ### 🧱 LEGO
-- [LEGO 10715 Bricks on a Roll Sealed](https://bestdeals4u.trade/post/lego-classic-set-10715-limited-edition-60th-anniversary-new-sealed-box)
-- [LEGO 75396 Desert Skiff & Sarlacc Pit Sealed](https://bestdeals4u.trade/post/lego-75396-star-wars-desert-skiff-sarlacc-retired-sealed-new)
+- [Market Review: LEGO Harry Potter Dobby the House-Elf (Set 76421) – RETIRED – Brand New Sealed](https://bestdeals4u.trade/post/lego-harry-potter-dobby-the-house-elf-set-76421-retired-brand-new-sealed)
+- [LEGO 21109 Exo Suit Sealed](https://bestdeals4u.trade/post/lego-ideas-21109-exo-suit-brand-new-factory-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Is This Paldea Evolved Illustration FLAMIGO PSA 8 a Good Buy?](https://bestdeals4u.trade/post/pokemon-2023-paldea-evolved-illustration-rare-flamigo-227-psa-8-rare)
-- [Is This Treecko Holo Gold Star PSA 3 a Good Buy?](https://bestdeals4u.trade/post/psa-3-2004-treecko-gold-star-011-084-holo-pokemon-card-japanese-vintage-rare)
+- [Is Pokémon TCG Charizard EX Scarlet & Violet Holo Ultra Card 183/165 PSA 10 Priced Fairly at $207.98?](https://bestdeals4u.trade/post/pok-mon-tcg-charizard-ex-scarlet-violet-holo-ultra-rare-card-183-165-psa-10)
+- [Thinking About Buying Pikachu V PSA 9? Read This First](https://bestdeals4u.trade/post/2022-pokemon-sword-shield-lost-origin-tg16-full-art-pikachu-v-psa-9)
 
 ### 🎮 Video Games
-- [Is This Jimmy Neutron: Boy Genius (2002), Working for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/jimmy-neutron-boy-genius-nintendo-gamecube-2002-tested-working)
-- [MotorStorm 2011 Sony PlayStation 2 Sealed](https://bestdeals4u.trade/post/motorstorm-sony-playstation-3-2007-brand-new-factory-sealed)
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
+- [Crash Nitro Kart (2003) for GameCube Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/crash-nitro-kart-nintendo-gamecube-2003-cib-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
