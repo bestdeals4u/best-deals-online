@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Gabriel Hughes 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/gabriel-hughes-psa-10-2022-1st-bowman-chrome-auto-prospect-gold-refractor-50-z2)
-- [Jose Albertos 2018 Bowman's Best BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-s-best-gold-refractor-33-50-jose-albertos-bgs-9-5-gem-mint-auto-7m3)
+- [Market Review: Duane Pillette 1954 Topps PSA 4 Card #107](https://bestdeals4u.trade/post/duane-pillette-psa-4-1954-topps-baltimore-orioles-baseball-set-card-107)
+- [Payton Henry 2019 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-47-99-payton-henry-psa-10-auto-8d2)
 
 ### 🧸 Funko Pops
-- [Funko POP! Bleach Fully-Hollowfied Ichigo CHASE #1104 Glow in the Dark – Condition & Listing Overview](https://bestdeals4u.trade/post/funko-pop-bleach-fully-hollowfied-ichigo-chase-1104-glow-in-the-dark)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 - [Funko Pop, Shrek #278 Exclusive](https://bestdeals4u.trade/post/funko-pop-shrek-278-chalice-collectible-exclusive-le9000-with-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 3180 Tank Truck Sealed](https://bestdeals4u.trade/post/lego-3180-city-tank-truck-octan-gas-semi-traffic-series-retired-2010-sealed-new)
-- [LEGO Ideas 21304 DOCTOR WHO in Box at $216.75, below recent comps](https://bestdeals4u.trade/post/lego-ideas-21304-doctor-who-new-in-sealed-box-retired)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
 
 ### 🃏 Pokémon Cards
-- [Topps Chrome PSA 10 at $499.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/2000-topps-chrome-pokemon-t-v-93-haunter-psa-10-gem-mint-low-pop-modern-grade)
-- [Pokémon TCG Base Set Charizard Holo Card 1999 Unlimited, PSA 7 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-tcg-base-set-charizard-holo-rare-card-1999-unlimited-psa-7-nm)
+- [Thinking About Buying Nidorino Shadowless PSA 7? Read This First](https://bestdeals4u.trade/post/1999-pokemon-nidorino-shadowless-psa-7)
+- [Koga's Ditto Holo PSA 8 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2000-pokemon-gym-challenge-1st-edition-10-koga-s-ditto-holo-psa-8-nm-mt)
 
 ### 🎮 Video Games
-- [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
+- [Market Review: Atari Anniversary Advance Nintendo Game Boy Advance GBA CIB Boxed Complete PAL](https://bestdeals4u.trade/post/atari-anniversary-advance-nintendo-game-boy-advance-gba-cib-boxed-complete-pal)
+- [Is Scarlet Nexus - Microsoft Xbox Series X Xbox One Priced Fairly at $6.99?](https://bestdeals4u.trade/post/scarlet-nexus-microsoft-xbox-series-x-xbox-one-brand-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
