@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Is This Willie Mays 1954 Bowman SGC 2.5 Vintage Graded Giants MLB HOF #89 a Good Deal Right Now?](https://bestdeals4u.trade/post/willie-mays-1954-bowman-sgc-2-5-baseball-card-vintage-graded-giants-mlb-hof-89)
-- [Jose Adolis Garcia, Adolis Garcia 2018 Bowman PSA 9](https://bestdeals4u.trade/post/adolis-garcia-2018-bowman-chrome-1st-auto-refractor-499-psa-9-mint)
+- [Gabriel Hughes 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/gabriel-hughes-psa-10-2022-1st-bowman-chrome-auto-prospect-gold-refractor-50-z2)
+- [Jose Albertos 2018 Bowman's Best BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-s-best-gold-refractor-33-50-jose-albertos-bgs-9-5-gem-mint-auto-7m3)
 
 ### 🧸 Funko Pops
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Freddy On Engine Royalty PCs Funko Pop #387 LE 2300 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/funko-pop-digital-festival-of-fun-387-freddy-on-engine-royalty-le-2300-pcs-new)
+- [Funko POP! Bleach Fully-Hollowfied Ichigo CHASE #1104 Glow in the Dark – Condition & Listing Overview](https://bestdeals4u.trade/post/funko-pop-bleach-fully-hollowfied-ichigo-chase-1104-glow-in-the-dark)
+- [Funko Pop, Shrek #278 Exclusive](https://bestdeals4u.trade/post/funko-pop-shrek-278-chalice-collectible-exclusive-le9000-with-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 40676 The Phantom Sealed](https://bestdeals4u.trade/post/lego-star-wars-the-phantom-menace-brickheadz-40676-retired-factory-sealed-2)
-- [Is This LEGO Ninjago Ninja Tuner Car 71710 Retired 419 pieces Sealed a Good Deal Right Now?](https://bestdeals4u.trade/post/lego-ninjago-ninja-tuner-car-71710-retired-419-pieces-sealed)
+- [LEGO 3180 Tank Truck Sealed](https://bestdeals4u.trade/post/lego-3180-city-tank-truck-octan-gas-semi-traffic-series-retired-2010-sealed-new)
+- [LEGO Ideas 21304 DOCTOR WHO in Box at $216.75, below recent comps](https://bestdeals4u.trade/post/lego-ideas-21304-doctor-who-new-in-sealed-box-retired)
 
 ### 🃏 Pokémon Cards
-- [Celebrations Classic Collection PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2021-pokemon-celebrations-classic-collection-17-umbreon-gold-star-psa-10)
-- [Market Review: 1999 POKEMON JUNGLE 1ST ED #20 JOLTEON PSA 7](https://bestdeals4u.trade/post/1999-pokemon-jungle-1st-ed-20-jolteon-psa-7)
+- [Topps Chrome PSA 10 at $499.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/2000-topps-chrome-pokemon-t-v-93-haunter-psa-10-gem-mint-low-pop-modern-grade)
+- [Pokémon TCG Base Set Charizard Holo Card 1999 Unlimited, PSA 7 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-tcg-base-set-charizard-holo-rare-card-1999-unlimited-psa-7-nm)
 
 ### 🎮 Video Games
-- [Tekken Hybrid 2011 Sony PlayStation 3 Sealed](https://bestdeals4u.trade/post/brand-new-sealed-tekken-hybrid-tekken-tag-tournament-hd-ps3-sony-playstation-3)
-- [Is This Tak The Great Juju Challenge Complete in Box Complete & Tested for a Good Deal Right Now?](https://bestdeals4u.trade/post/tak-the-great-juju-challenge-playstation-2-ps2-2005-cib-complete-tested)
+- [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
