@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Angel Martinez 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/angel-martinez-2021-bowman-chrome-speckle-refractor-auto-299-psa-10-guardians)
-- [Rayner Arias 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-prospect-refractor-499-rayner-arias-psa-10-gem-mt-auto-yj0-2)
+- [Hyeseong Kim 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/hyeseong-kim-2025-topps-chrome-purple-speckle-refractor-rc-autograph-299-psa-10)
+- [George Valera 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-george-valera-1st-rookie-refractor-auto-d-237-499-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, ! HOCKEY #90 Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-90-jarome-iginla-calgary-flames-canada-exclusive-w-protector)
-- [Is This X-Men Wolverine LE /5000 Shared ECCC Exclusive New IN HAND Funko Pop a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-1576-le-5000-shared-eccc-exclusive-new-in-hand)
+- [Funko Pop, Darth Maul #832 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-the-crow-inquisitor-exclusive-832-protector)
 
 ### 🧱 LEGO
-- [ARCHITECTURE: Venice (21026) - Bricks - (bagged)** at $29.99, below recent comps](https://bestdeals4u.trade/post/architecture-venice-21026-complete-bricks-new-sealed-bagged)
-- [LEGO 41603 Brick Headz Star Wars Kylo Ren 26 Sealed](https://bestdeals4u.trade/post/lego-brick-headz-star-wars-kylo-ren-26-41603-retired-sealed-box-2018)
+- [LEGO 7197 Venice Sealed](https://bestdeals4u.trade/post/lego-indiana-jones-venice-boat-chase-7197-factory-sealed-2009-vintage-new-rare)
+- [LEGO 10218 Pet Shop Sealed](https://bestdeals4u.trade/post/lego-10218-expert-creator-pet-shop-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Obf Ultra Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2023-pokemon-obf-en-obsidian-flames-ultra-rare-215-charizard-ex-psa-gem-mt-10)
-- [Blastoise ex 200/165 Scarlet Violet 151 Special Illustration](https://bestdeals4u.trade/post/blastoise-ex-200-165-scarlet-violet-151-special-illustration-rare-pokemon-nm)
+- [PSA 9 Torchic Gold Star EX Team Rocket Returns](https://bestdeals4u.trade/post/pokemon-psa-9-torchic-gold-star-holo-2004-108-109-ex-team-rocket-returns-eng)
+- [Mew En Ultra Full PSA 9 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/pokemon-2023-mew-en-151-ultra-rare-full-art-charizard-ex-183-psa-9-mint-rare)
 
 ### 🎮 Video Games
-- [Sony SCPH-39000 Console Blue and Naruto Game & Working for PlayStation 2 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/sony-playstation-2-scph-39000-console-blue-and-naruto-game-ps2-tested-working)
-- [Space Harrier 2 2005 for Sony PlayStation 2](https://bestdeals4u.trade/post/ps2-sega-ages-2500-vol20-space-harrier-2-playstation-2)
+- [Strider Returns Journey From Darkness Sega Genesis at $29.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/strider-returns-journey-from-darkness-sega-genesis-complete-in-box-tested)
+- [NES Remix Pack Nintendo Wii U Nintendo Selects - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/nes-remix-pack-nintendo-wii-u-nintendo-selects-brand-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
