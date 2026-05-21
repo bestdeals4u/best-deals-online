@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Hyeseong Kim 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/hyeseong-kim-2025-topps-chrome-purple-speckle-refractor-rc-autograph-299-psa-10)
-- [George Valera 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-george-valera-1st-rookie-refractor-auto-d-237-499-psa-10)
+- [Aki Sasaki Dodgers PSA 10 MLB - Excellent Condition - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/aki-sasaki-dodgers-baseball-card-psa-10-mlb-trading-card-excellent-condition)
+- [Terrin Vavra 2019 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-83-99-terrin-vavra-psa-9-auto-w5p)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Darth Maul #832 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-the-crow-inquisitor-exclusive-832-protector)
+- [Vinyl: Evil Dead - Ash Funko Pop #1142 at $24.00, with recent sales closer to $28.40](https://bestdeals4u.trade/post/funko-pop-vinyl-evil-dead-ash-1142)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 7197 Venice Sealed](https://bestdeals4u.trade/post/lego-indiana-jones-venice-boat-chase-7197-factory-sealed-2009-vintage-new-rare)
-- [LEGO 10218 Pet Shop Sealed](https://bestdeals4u.trade/post/lego-10218-expert-creator-pet-shop-new-in-sealed-box)
+- [LEGO 75036 Utapau Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-75036-utapau-troopers-battle-pack-212th-clones-misb-rare)
+- [LEGO 70599 Cole's Dragon Sealed](https://bestdeals4u.trade/post/lego-ninjago-70599-coles-dragon-skybound-retired-rare-vintage-set-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [PSA 9 Torchic Gold Star EX Team Rocket Returns](https://bestdeals4u.trade/post/pokemon-psa-9-torchic-gold-star-holo-2004-108-109-ex-team-rocket-returns-eng)
-- [Mew En Ultra Full PSA 9 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/pokemon-2023-mew-en-151-ultra-rare-full-art-charizard-ex-183-psa-9-mint-rare)
+- [Graded JP PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/graded-2023-pokemon-jp-sv2a-charizard-ex-185-super-rare-japanese-card-psa-10)
+- [Is Mesprit PSA 10 Priced Fairly at $119.98?](https://bestdeals4u.trade/post/pokemon-surging-sparks-mesprit-204-illustration-rare-psa-10)
 
 ### 🎮 Video Games
-- [Strider Returns Journey From Darkness Sega Genesis at $29.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/strider-returns-journey-from-darkness-sega-genesis-complete-in-box-tested)
-- [NES Remix Pack Nintendo Wii U Nintendo Selects - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/nes-remix-pack-nintendo-wii-u-nintendo-selects-brand-new-factory-sealed)
+- [Tiger Woods PGA Tour 06 (2005) for GameCube Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/tiger-woods-pga-tour-06-nintendo-gamecube-2005-brand-new-sealed)
+- [Market Review: The Settlers Rise of an Empire PC Complete in Box](https://bestdeals4u.trade/post/the-settlers-rise-of-an-empire-pc-complete-in-box)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
