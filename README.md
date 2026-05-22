@@ -36,19 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Leandro Arias 2023 Bowman PSA 9](https://bestdeals4u.trade/post/leandro-arias-psa-9-2023-1st-bowman-chrome-auto-sapphire-green-refractor-50-z1-2)
-- [Rylan Bannon 2019 Bowman PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-prospect-refractor-499-rylan-bannon-psa-10-gem-mt-auto-16r2-2)
+- [Braylon Payne 2024 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-chrome-braylon-payne-1st-bowman-auto-refractor-499-psa-9)
+- [Shane McClanahan 2018 Bowman Draft BGS 10](https://bestdeals4u.trade/post/2018-bowman-draft-gold-wave-refractor-21-50-shane-mcclanahan-bgs-10-auto-07i7)
+
+### 🧸 Funko Pops
+- [Batman (Bat - Manga!) ECCC LE 5000 Funko Pop #5000 with Protector, Below Recent Sales](https://bestdeals4u.trade/post/funko-pop-batman-bat-manga-with-pop-protector-eccc-le-5000)
 
 ### 🧱 LEGO
-- [LEGO 76015 Doc Ock Truck Heist Sealed](https://bestdeals4u.trade/post/lego-76015-marvel-doc-ock-truck-heist-new-sealed-retired-spider-man)
-- [LEGO 10236 Ewok Village Sealed](https://bestdeals4u.trade/post/lego-star-wars-10236-ewok-village-ucs-style-retired-new-sealed-17-minifigures)
+- [LEGO 40775 Mini Knight's Castle Sealed](https://bestdeals4u.trade/post/lego-40775-mini-knight-s-castle-gwp-new-in-sealed-box)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
-- [CGC Pristine Umbreon Point Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/cgc-10-pristine-umbreon-point-salad-eevee-edition-2019-pokemon-ships-fast)
-- [Market Review: PSA 7 2006 Pokemon Crystal Guardians 2/100 Blastoise Delta Species Holo](https://bestdeals4u.trade/post/psa-7-2006-pokemon-crystal-guardians-2-100-blastoise-delta-species-holo)
+- [PSA 10 Bulbasaur Illustration 143/142 - 2024 Pokémon Sv06 Stellar Crown Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-10-bulbasaur-illustration-rare-143-142-2024-pok-mon-sv06-stellar-crown)
+- [Thinking About Buying Pokémon TCG Dratini Base Set Shadowless 1st Edition PSA 7 26/102 English? Read This First](https://bestdeals4u.trade/post/pok-mon-tcg-dratini-base-set-shadowless-1st-edition-psa-7-26-102-english)
 
 ### 🎮 Video Games
-- [How Good of a Deal Is This 1PCS Mean Well NES-100-36 | 36V Switch Power Supply NES10036 | 36V Sea?](https://bestdeals4u.trade/post/1pcs-mean-well-nes-100-36-36v-switch-power-supply-nes10036-36v-sealed)
+- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003-w-insert-windwaker-gc)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
