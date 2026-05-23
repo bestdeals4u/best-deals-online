@@ -36,22 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Braylon Payne 2024 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-chrome-braylon-payne-1st-bowman-auto-refractor-499-psa-9)
-- [Shane McClanahan 2018 Bowman Draft BGS 10](https://bestdeals4u.trade/post/2018-bowman-draft-gold-wave-refractor-21-50-shane-mcclanahan-bgs-10-auto-07i7)
+- [Braden Shewmake 2019 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2019-bowman-draft-green-refractor-14-99-braden-shewmake-psa-10-gem-mt-auto-9hx)
+- [Cam Smith 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-cam-smith-refractor-rc-auto-psa-10-astros)
 
 ### 🧸 Funko Pops
-- [Batman (Bat - Manga!) ECCC LE 5000 Funko Pop #5000 with Protector, Below Recent Sales](https://bestdeals4u.trade/post/funko-pop-batman-bat-manga-with-pop-protector-eccc-le-5000)
+- [Market Review: Funko Pop Demon Slayer Muzan Kibutsuji #2196 Metallic ECCC 2026 Exclusive](https://bestdeals4u.trade/post/funko-pop-demon-slayer-muzan-kibutsuji-2196-metallic-eccc-2026-exclusive)
+- [Funko Pop, ! LILLY #01](https://bestdeals4u.trade/post/funko-pop-lilly-01-you-are-one-of-one-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 40775 Mini Knight's Castle Sealed](https://bestdeals4u.trade/post/lego-40775-mini-knight-s-castle-gwp-new-in-sealed-box)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 75031 Tie Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75031-tie-interceptor-microfighters-sealed-retired-rare)
+- [LEGO 76261 Spider-Man Final Battle Sealed](https://bestdeals4u.trade/post/lego-marvel-spider-man-final-battle-76261-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [PSA 10 Bulbasaur Illustration 143/142 - 2024 Pokémon Sv06 Stellar Crown Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-10-bulbasaur-illustration-rare-143-142-2024-pok-mon-sv06-stellar-crown)
-- [Thinking About Buying Pokémon TCG Dratini Base Set Shadowless 1st Edition PSA 7 26/102 English? Read This First](https://bestdeals4u.trade/post/pok-mon-tcg-dratini-base-set-shadowless-1st-edition-psa-7-26-102-english)
+- [Is This Mewtwo Svp Ultra-Premium PSA 9 a Good Buy?](https://bestdeals4u.trade/post/mewtwo-052-psa-9-pokemon-svp-promo-151-ultra-premium-collection)
+- [Charizard 006 Shining Darkness PSA 9](https://bestdeals4u.trade/post/2007-pokemon-japanese-shining-darkness-006-charizard-holo-1st-ed-psa-9)
 
 ### 🎮 Video Games
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003-w-insert-windwaker-gc)
+- [Harvest Moon: Magical Melody 2005 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-magical-melody-gamecube-2005-new-sealed)
+- [Super Smash Bros. Melee 2001 for Gamecube Manual included](https://bestdeals4u.trade/post/super-smash-bros-melee-gamecube-2001)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
