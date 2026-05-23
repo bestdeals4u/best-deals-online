@@ -36,20 +36,18 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Braden Shewmake 2019 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2019-bowman-draft-green-refractor-14-99-braden-shewmake-psa-10-gem-mt-auto-9hx)
-- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
+- [Shohei Ohtani PSA10 Topps Now 2024, Japan Price Check - Worth It or Not?](https://bestdeals4u.trade/post/shohei-ohtani-psa10-topps-now-2024-743-baseball-card-near-mint-japan)
+- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Pegasus #26 Exclusive](https://bestdeals4u.trade/post/pegasus-funko-pop-myths-vinyl-26-funko-exclusive-limited-edition-figure)
-- [Market Review: Funko Pop Demon Slayer Muzan Kibutsuji #2196 Metallic ECCC 2026 Exclusive](https://bestdeals4u.trade/post/funko-pop-demon-slayer-muzan-kibutsuji-2196-metallic-eccc-2026-exclusive)
+- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 21057 Singapore Sealed](https://bestdeals4u.trade/post/lego-architecture-singapore-21057-new-sealed-retired-safe-shipping)
-- [LEGO 76155 In Arishem’s Shadow Sealed](https://bestdeals4u.trade/post/lego-76155-in-arishem-s-shadow-marvel-new-sealed-retired)
+- [LEGO Ideas: Blacksmith 21325 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/lego-ideas-blacksmith-21325-new-sealed-retired)
+- [LEGO 40577 Hogwarts: Grand Staircase Sealed](https://bestdeals4u.trade/post/lego-40577-harry-potter-hogwarts-grand-staircase-gwp-brand-new-sealed-224pcs)
 
 ### 🃏 Pokémon Cards
 - [Inferno PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-japanese-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
-- [Is This Mewtwo Svp Ultra-Premium PSA 9 a Good Buy?](https://bestdeals4u.trade/post/mewtwo-052-psa-9-pokemon-svp-promo-151-ultra-premium-collection)
 
 ### 🎮 Video Games
 - [Market Review: The Settlers Rise of an Empire PC Complete in Box](https://bestdeals4u.trade/post/the-settlers-rise-of-an-empire-pc-complete-in-box)
