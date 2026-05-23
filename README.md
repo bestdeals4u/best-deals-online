@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Shohei Ohtani PSA10 Topps Now 2024, Japan Price Check - Worth It or Not?](https://bestdeals4u.trade/post/shohei-ohtani-psa10-topps-now-2024-743-baseball-card-near-mint-japan)
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+- [Kyle Teel 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-kyle-teel-cpa-kt-purple-refractor-250-auto-rc-psa-10)
+- [Best Donnie Sadler Auto Autograph Card Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/1996-best-donnie-sadler-auto-autograph-card)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
+- [My Hero Academia Burnin FYE Exclusive Glow Chase Funko Pop #1148 at $145.00, with recent sales closer to $175.92](https://bestdeals4u.trade/post/funko-pop-my-hero-academia-burnin-fye-exclusive-1148-glow-chase)
 
 ### 🧱 LEGO
-- [LEGO Ideas: Blacksmith 21325 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/lego-ideas-blacksmith-21325-new-sealed-retired)
-- [LEGO 40577 Hogwarts: Grand Staircase Sealed](https://bestdeals4u.trade/post/lego-40577-harry-potter-hogwarts-grand-staircase-gwp-brand-new-sealed-224pcs)
+- [LEGO 76414 Expecto Patronum Sealed](https://bestdeals4u.trade/post/76414-brand-new-sealed-retired-set-lego-harry-potter-expecto-patronum-76414)
+- [LEGO 66712 Monster Jam Collection Sealed](https://bestdeals4u.trade/post/lego-technic-monster-jam-collection-66712-brand-new-in-sealed-box-retired-set)
 
 ### 🃏 Pokémon Cards
-- [Inferno PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-japanese-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
+- [Topps Star Wars Sapphire Queen Amidala Sapphire Selections Gold /50 PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2024-topps-star-wars-sapphire-queen-amidala-sapphire-selections-gold-50-psa-10)
+- [Is Black Star PSA 8 Priced Fairly at $41.98?](https://bestdeals4u.trade/post/2021-pokemon-swsh-black-star-promo-144-greninja-gold-star-psa-8)
 
 ### 🎮 Video Games
-- [Market Review: The Settlers Rise of an Empire PC Complete in Box](https://bestdeals4u.trade/post/the-settlers-rise-of-an-empire-pc-complete-in-box)
-- [Madden 96 Sega Genesis Videogame Football – Market Review](https://bestdeals4u.trade/post/madden-96-sega-genesis-videogame-football-new-factory-sealed-excellent-rare)
+- [Market Review: Atari Anniversary Advance Nintendo Game Boy Advance GBA CIB Boxed Complete PAL](https://bestdeals4u.trade/post/atari-anniversary-advance-nintendo-game-boy-advance-gba-cib-boxed-complete-pal)
+- [Namco Museum 50th Anniversary (2005) Nice Disc for GameCube at $27.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/namco-museum-50th-anniversary-nintendo-gamecube-2005-cib-tested-nice-disc)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
