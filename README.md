@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
-- [Luis Guanipa 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-luis-guanipa-atomic-refractor-auto-100-psa-10)
+- [Angel Martinez 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-angel-martinez-true-blue-refractor-auto-150-psa-10)
+- [Market Review: 1955 TOPPS Baseball Card #155 ED Eddie MATHEWS Milwaukee Braves SGC 4.5](https://bestdeals4u.trade/post/1955-topps-baseball-card-155-ed-eddie-mathews-milwaukee-braves-sgc-4-5)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-hot-topic-exclusive-w-protector-new)
 - [Funko Pop, ! Vinyl: #203 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-wwe-john-cena-walmart-exclusive-203-protector)
 
 ### 🧱 LEGO
-- [LEGO 71813 Wolf Mask Shadow Dojo Sealed](https://bestdeals4u.trade/post/lego-ninjago-71813-wolf-mask-shadow-dojo-dragons-rising-s2-new-sealed-retired)
-- [LEGO 21329 Fender Stratocaster Sealed](https://bestdeals4u.trade/post/brand-new-lego-21329-fender-stratocaster-factory-sealed-retired)
+- [Is This LEGO Star Wars: Droids Battle Pack (7654) (Never Opened) Actually a Good Value?](https://bestdeals4u.trade/post/new-lego-star-wars-droids-battle-pack-7654-sealed-never-opened-1)
+- [LEGO (40290) 60 Years of the Brick - Castle Ship Space Train at $29.99, below recent comps](https://bestdeals4u.trade/post/lego-40290-60-years-of-the-brick-new-sealed-retired-castle-ship-space-train)
 
 ### 🃏 Pokémon Cards
-- [Wht White Flare Illustration PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2025-pokemon-wht-en-white-flare-illustration-rare-103-chandelure-psa-10)
-- [Mewtwo PSA 6 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/psa-6-mewtwo-202-2015-battle-festa-xy-promo-japanese-pokemon-card)
+- [Evolutions Holo PSA 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pokemon-xy-evolutions-holo-2016-m-charizard-ex-full-art-101-108-psa-8)
+- [Expedition Skarmory Holo PSA 7 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2002-pokemon-expedition-27-skarmory-holo-psa-7-new-cert-full-swirl-on-wing)
+
+### 🎮 Video Games
+- [Is Farmagia Day One Edition Nintendo Switch w/ Soundtrack CD & Art Book Priced Fairly at $45.00?](https://bestdeals4u.trade/post/farmagia-day-one-edition-nintendo-switch-w-soundtrack-cd-art-book-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
