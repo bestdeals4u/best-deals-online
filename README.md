@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [JR Ritchie 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-jr-ritchie-1st-bowman-refractor-auto-499-psa-10-cda-jr)
-- [Chris Dominguez 2009 Donruss Elite Extra Edition RC BGS 9.5](https://bestdeals4u.trade/post/2009-donruss-elite-extra-edition-rookie-599-719-chris-dominguez-bgs-9-5-auto-0a1)
+- [Kodi Medeiros 2014 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-draft-orange-refractor-20-25-kodi-medeiros-bgs-9-5-gem-mint-auto-fm0)
+- [Luis Garcia 2021 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/luis-garcia-2021-topps-chrome-rc-auto-orange-wave-refractor-25-psa-9-g6)
 
 ### 🧸 Funko Pops
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
-- [Market Review: New Sealed Wolverine #1576 Funko Pop! with Protector LE 5000 2026 Shared ECCC](https://bestdeals4u.trade/post/new-sealed-wolverine-1576-funko-pop-with-protector-le-5000-2026-shared-eccc)
+- [Market Review: Funko Pop! Robocop Metallic Chase #1989](https://bestdeals4u.trade/post/funko-pop-robocop-metallic-chase-1989)
+- [Funko Pop, Moss Man #568 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-motu-568-moss-man-flocked-toys-r-us-exclusive-pop-protector-read)
 
 ### 🧱 LEGO
-- [LEGO 31109 Pirate Ship Sealed](https://bestdeals4u.trade/post/lego-creator-3-in-1-set-31109-pirate-ship-new-sealed-retired-set)
-- [LEGO 75176 Star Wars: Resistance Transport Pod - Sealed](https://bestdeals4u.trade/post/lego-star-wars-resistance-transport-pod-75176-new-sealed)
+- [LEGO 9675 Sebulba's Podracer & Tatooine Sealed](https://bestdeals4u.trade/post/lego-star-wars-9675-sebulba-s-podracer-tatooine-2012-new-sealed-box)
+- [LEGO 40769 Sonic The Hedgehog Sealed](https://bestdeals4u.trade/post/lego-sega-genesis-controller-sonic-the-hedgehog-40769-new-sealed-box)
 
 ### 🃏 Pokémon Cards
+- [How Good of a Deal Is This Lugia PSA 5?](https://bestdeals4u.trade/post/2000-pokemon-lugia-neo-genesis-holo-rare-9-111-unlimited-psa-5-new-slab)
 - [Lugia PSA Magazine November at $10.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/pokemon-lugia-psa-magazine-2024-november-volume-no-8)
-- [Gengar Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/gengar-poke-ball-0302-07-gem-pack-vol-3-chinese-pokemon-tcg)
 
 ### 🎮 Video Games
+- [Is One Piece Card Game: Illustration Box Vol.5 (English) Priced Fairly at $62.83?](https://bestdeals4u.trade/post/one-piece-card-game-illustration-box-vol-5-english-new-factory-sealed)
 - [Sonic the Hedgehog for Sonic the Hedgehog](https://bestdeals4u.trade/post/sega-dreamcast-japan-karaoke-dc-segakara-system-hkt-4301-from-japan)
-- [Is Farmagia Day One Edition Nintendo Switch w/ Soundtrack CD & Art Book Priced Fairly at $45.00?](https://bestdeals4u.trade/post/farmagia-day-one-edition-nintendo-switch-w-soundtrack-cd-art-book-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
