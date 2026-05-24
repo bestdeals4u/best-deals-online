@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Angel Martinez 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-angel-martinez-true-blue-refractor-auto-150-psa-10)
-- [Market Review: 1955 TOPPS Baseball Card #155 ED Eddie MATHEWS Milwaukee Braves SGC 4.5](https://bestdeals4u.trade/post/1955-topps-baseball-card-155-ed-eddie-mathews-milwaukee-braves-sgc-4-5)
+- [JR Ritchie 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-jr-ritchie-1st-bowman-refractor-auto-499-psa-10-cda-jr)
+- [Chris Dominguez 2009 Donruss Elite Extra Edition RC BGS 9.5](https://bestdeals4u.trade/post/2009-donruss-elite-extra-edition-rookie-599-719-chris-dominguez-bgs-9-5-auto-0a1)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-hot-topic-exclusive-w-protector-new)
-- [Funko Pop, ! Vinyl: #203 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-wwe-john-cena-walmart-exclusive-203-protector)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
+- [Market Review: New Sealed Wolverine #1576 Funko Pop! with Protector LE 5000 2026 Shared ECCC](https://bestdeals4u.trade/post/new-sealed-wolverine-1576-funko-pop-with-protector-le-5000-2026-shared-eccc)
 
 ### 🧱 LEGO
-- [Is This LEGO Star Wars: Droids Battle Pack (7654) (Never Opened) Actually a Good Value?](https://bestdeals4u.trade/post/new-lego-star-wars-droids-battle-pack-7654-sealed-never-opened-1)
-- [LEGO (40290) 60 Years of the Brick - Castle Ship Space Train at $29.99, below recent comps](https://bestdeals4u.trade/post/lego-40290-60-years-of-the-brick-new-sealed-retired-castle-ship-space-train)
+- [LEGO 31109 Pirate Ship Sealed](https://bestdeals4u.trade/post/lego-creator-3-in-1-set-31109-pirate-ship-new-sealed-retired-set)
+- [LEGO 75176 Star Wars: Resistance Transport Pod - Sealed](https://bestdeals4u.trade/post/lego-star-wars-resistance-transport-pod-75176-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Evolutions Holo PSA 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pokemon-xy-evolutions-holo-2016-m-charizard-ex-full-art-101-108-psa-8)
-- [Expedition Skarmory Holo PSA 7 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2002-pokemon-expedition-27-skarmory-holo-psa-7-new-cert-full-swirl-on-wing)
+- [Lugia PSA Magazine November at $10.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/pokemon-lugia-psa-magazine-2024-november-volume-no-8)
+- [Gengar Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/gengar-poke-ball-0302-07-gem-pack-vol-3-chinese-pokemon-tcg)
 
 ### 🎮 Video Games
+- [Sonic the Hedgehog for Sonic the Hedgehog](https://bestdeals4u.trade/post/sega-dreamcast-japan-karaoke-dc-segakara-system-hkt-4301-from-japan)
 - [Is Farmagia Day One Edition Nintendo Switch w/ Soundtrack CD & Art Book Priced Fairly at $45.00?](https://bestdeals4u.trade/post/farmagia-day-one-edition-nintendo-switch-w-soundtrack-cd-art-book-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
