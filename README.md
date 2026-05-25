@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
-- [Joendry Vargas 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-10-dodgers-rc-z4-2)
+- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
+- [Cal Raleigh 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-cal-raleigh-blue-refractor-rookie-auto-150-psa-10-gem-mint)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop! Deluxe: Marvel - The Lizard - Target (Exclusive) #1180](https://bestdeals4u.trade/post/funko-pop-deluxe-marvel-the-lizard-target-exclusive-1180)
-- [Funko Pop, Vegeta #712 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-vegeta-galick-gun-712-chase-chalice-exclusive)
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
-- [LEGO Ideas Exo Suit 21109 - Green Classic Space Minifigs at $69.95, below recent comps](https://bestdeals4u.trade/post/new-lego-ideas-exo-suit-21109-green-classic-space-minifigs-retired-sealed)
+- [LEGO 10265 Ford Mustang Sealed](https://bestdeals4u.trade/post/lego-creator-expert-ford-mustang-10265-new-sealed-retired-set)
+- [LEGO 21324 123 Sesame Street Sealed](https://bestdeals4u.trade/post/lego-21324-ideas-123-sesame-street-new-in-box-sealed-retired)
+
+### 🃏 Pokémon Cards
+- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
 
 ### 🎮 Video Games
-- [V-Rally Edition 99 (Nintendo Game Boy Color, 1999) GBC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/v-rally-edition-99-nintendo-game-boy-color-1999-gbc-cartridge-only-cib)
-- [Perfect Order Elite Trainer Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/pokemon-perfect-order-elite-trainer-box-etb-factory-sealed-mega-evolution-tyrunt)
+- [Intellivision Lives! (2004) Complete / / Black Label for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/intellivision-lives-nintendo-gamecube-2004-complete-cib-black-label)
+- [Call of Duty: Modern Warfare 2 2009 Microsoft Xbox 360 Sealed VGA 85](https://bestdeals4u.trade/post/call-of-duty-modern-warfare-2-xbox-360-2009-vga-85-nm-sealed-not-psa-wata)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
