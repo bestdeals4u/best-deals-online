@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Brandon Neely 2024 Bowman PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-chrome-brandon-neely-auto-yellow-refractor-75-psa-9-red-sox)
 - [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-10-dodgers-rc-z4-2)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-exclusive-hot-topic-protector)
-- [Funko Pop, Batman Arkham #52 Exclusive](https://bestdeals4u.trade/post/funko-pop-batman-52-arkham-asylum-hot-topic-exclusive-w-protector)
+- [Market Review: Funko Pop! Deluxe: Marvel - The Lizard - Target (Exclusive) #1180](https://bestdeals4u.trade/post/funko-pop-deluxe-marvel-the-lizard-target-exclusive-1180)
+- [Funko Pop, Vegeta #712 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-vegeta-galick-gun-712-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 40338 Christmas Tree Sealed](https://bestdeals4u.trade/post/lego-seasonal-christmas-tree-40338-new-sealed-retired-set)
-- [LEGO 6076795 NASA Mars Science Laboratory Curiosity Rover Sealed](https://bestdeals4u.trade/post/lego-21104-ideas-nasa-mars-curiosity-rover-new-sealed-rare-retired-2014-robot)
-
-### 🃏 Pokémon Cards
-- [Market Review: 2021 Pokemon Celebrations Classic Collection #24 Birthday Pikachu Holo PSA 9](https://bestdeals4u.trade/post/2021-pokemon-celebrations-classic-coll-24-birthday-pikachu-holo-psa-9)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
+- [LEGO Ideas Exo Suit 21109 - Green Classic Space Minifigs at $69.95, below recent comps](https://bestdeals4u.trade/post/new-lego-ideas-exo-suit-21109-green-classic-space-minifigs-retired-sealed)
 
 ### 🎮 Video Games
+- [V-Rally Edition 99 (Nintendo Game Boy Color, 1999) GBC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/v-rally-edition-99-nintendo-game-boy-color-1999-gbc-cartridge-only-cib)
 - [Perfect Order Elite Trainer Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/pokemon-perfect-order-elite-trainer-box-etb-factory-sealed-mega-evolution-tyrunt)
-- [Market Review: Far Cry 6 - Sony PlayStation 4 PS4 - Brand New Factory Sealed US Version](https://bestdeals4u.trade/post/far-cry-6-sony-playstation-4-ps4-brand-new-factory-sealed-us-version)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
