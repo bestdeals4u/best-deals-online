@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Corbin Carroll 2023 Topps Finest PSA 10](https://bestdeals4u.trade/post/2023-topps-finest-green-refractor-25-99-corbin-carroll-psa-10-gem-mt-auto-04cw)
-- [Conner Capel 2018 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2018-bowman-chrome-prospect-gold-refractor-20-50-conner-capel-psa-10-auto-l5r)
+- [Brody Hopkins 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/brody-hopkins-2025-bowman-chrome-1st-refractor-auto-499-psa-10-gem-mt-cpabh)
+- [Gabriel Hughes 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/gabriel-hughes-psa-10-2022-1st-bowman-chrome-auto-prospect-gold-refractor-50-z2)
 
 ### 🧸 Funko Pops
-- [Thinking About Buying Jewelry Bonney Glow Chase One Piece Figure 2255 Funko Pop? Read This First](https://bestdeals4u.trade/post/funko-pop-jewelry-bonney-glow-chase-one-piece-figure-2255)
-- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
+- [Funko Pop, The Last Ronin #46 Exclusive](https://bestdeals4u.trade/post/funko-pop-comics-the-last-ronin-46-b-n-exclusive-w-protector)
+- [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 75243 Slave I – 20th Anniversary Edition Sealed](https://bestdeals4u.trade/post/lego-star-wars-75243-slave-1-20th-anniversary-edition-retired-new-sealed)
-- [LEGO 75244 Tantive IV Sealed](https://bestdeals4u.trade/post/lego-star-wars-tantive-iv-75244-set-brand-new-factory-sealed-retired)
+- [LEGO 31118 Surfer Beach House Sealed](https://bestdeals4u.trade/post/lego-creator-3-in-1-surfer-beach-house-31118-or-build-lighthouse-new-sealed-box)
+- [LEGO Ideas: Seinfeld (21328) SET NEVER OPENED Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/lego-ideas-seinfeld-21328-retired-set-new-in-sealed-box-never-opened)
 
 ### 🎮 Video Games
-- [Resident Evil Zero GameCube - Black Label - Works - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/resident-evil-zero-gamecube-authentic-black-label-cib-tested-works)
-- [Omikron: The Nomad Soul for Sega Dreamcast Complete](https://bestdeals4u.trade/post/omikron-the-nomad-soul-sega-dreamcast-cib-complete-in-box-tested)
+- [Screamer 2026 Sony PlayStation 5 Sealed](https://bestdeals4u.trade/post/screamer-echo-edition-steelbook-playstation-5-ps5-brand-new-sealed)
+- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-gamecube-complete)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
