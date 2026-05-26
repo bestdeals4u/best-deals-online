@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
-- [Cal Raleigh 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-cal-raleigh-blue-refractor-rookie-auto-150-psa-10-gem-mint)
+- [Yohendrick Pinango 2021 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2021-bowman-chrome-yohendrick-pinango-choice-refractor-auto-cpayp-psa-9-150)
+- [Julio Pablo Martinez 2019 Bowman PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-prospect-refractor-499-julio-pablo-martinez-psa-10-auto-1n4o)
 
 ### 🧸 Funko Pops
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop, Beru #2022 Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-animation-2022-beru-glow-new-solo-leveling-special-edition-2)
+- [Funko Pop, Jin Kazama #176 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-tekken-devil-jin-gamestop-exclusive-176-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 10265 Ford Mustang Sealed](https://bestdeals4u.trade/post/lego-creator-expert-ford-mustang-10265-new-sealed-retired-set)
-- [LEGO 21324 123 Sesame Street Sealed](https://bestdeals4u.trade/post/lego-21324-ideas-123-sesame-street-new-in-box-sealed-retired)
+- [LEGO 41398 Stephanie's House Sealed](https://bestdeals4u.trade/post/lego-friends-4-stephanie-s-house-41398-brand-new-sealed)
+- [LEGO 21329 Fender Stratocaster Sealed](https://bestdeals4u.trade/post/brand-new-lego-21329-fender-stratocaster-factory-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
+- [Is Masterball Reverse Holo Priced Fairly at $3.00?](https://bestdeals4u.trade/post/gengar-0305-07-masterball-reverse-holo-pokemon-tcg-chinese-vol-3-gem-nm)
+- [Pikachu PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/psa-10-pikachu-001-sv-p-2022-pokemon-chinese-scarlet-violet-pre-order-promo)
 
 ### 🎮 Video Games
-- [Intellivision Lives! (2004) Complete / / Black Label for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/intellivision-lives-nintendo-gamecube-2004-complete-cib-black-label)
-- [Call of Duty: Modern Warfare 2 2009 Microsoft Xbox 360 Sealed VGA 85](https://bestdeals4u.trade/post/call-of-duty-modern-warfare-2-xbox-360-2009-vga-85-nm-sealed-not-psa-wata)
+- [Harvest Moon: A Wonderful Life 2004 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-a-wonderful-life-nintendo-gamecube-new-factory-sealed-2004)
+- [Super Smash Bros. Melee 2001 for Nintendo GameCube](https://bestdeals4u.trade/post/super-smash-bros-melee-gamecube-2001-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
