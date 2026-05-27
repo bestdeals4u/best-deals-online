@@ -36,16 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Wyatt Langford 2024 Topps RC PSA 9](https://bestdeals4u.trade/post/2024-topps-baseball-wyatt-langford-black-baseball-stars-rc-auto-199-psa-9)
-- [Henry Davis 2024 Topps Chrome RC SGC 9.5](https://bestdeals4u.trade/post/2024-topps-chrome-henry-davis-ra-had-gold-refractor-auto-50-sgc-9-5-pirates-rc)
+- [Brayan Rocchio 2019 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2019-bowman-chrome-prospects-refractor-499-brayan-rocchio-psa-9-mint-auto-sc2)
+- [Konnor Pilkington 2019 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-prospects-refractor-499-konnor-pilkington-bgs-9-5-auto-8at)
 
 ### 🧸 Funko Pops
-- [Muzan Kibutsuji - ECCC (Shared Metallic) w / PROTECTOR Funko Pop #2196 at $20.00, with recent sales closer to $25.80](https://bestdeals4u.trade/post/funko-pop-muzan-kibutsuji-2196-eccc-shared-metallic-w-protector)
-- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
+- [Funko Pop, Kylo Ren #758 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-star-wars-rey-kylo-ren-758-moment-gitd-target-con-exclusive-nib)
+- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-f2)
 
 ### 🧱 LEGO
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
-- [LEGO 41616 Hermione Granger Sealed](https://bestdeals4u.trade/post/lego-brickheadz-harry-potter-hermione-granger-41616-new-sealed)
+- [LEGO 7251 Darth Vader Transformation Sealed](https://bestdeals4u.trade/post/lego-star-wars-darth-vader-transformation-7251-new-complete-in-sealed-box)
+- [LEGO 75946 Hungarian Horntail Triwizard Challenge Sealed](https://bestdeals4u.trade/post/lego-75946-hungarian-horntail-harry-potter-new-sealed-retired-set-2)
+
+### 🃏 Pokémon Cards
+- [Jolteon Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/pokemon-jolteon-v-eevee-heroes-japanese-full-alt-art-079-cgc-10-pristine)
+- [Edition Shining Raichu PSA 9 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2002-pokemon-neo-destiny-1st-edition-shining-raichu-111-psa-9)
 
 ### 🎮 Video Games
 - [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
