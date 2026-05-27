@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Manny Margot 2014 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-chrome-prospect-refractor-manny-margot-bgs-9-5-gem-mint-auto-2a9)
-- [Zach Neto 2022 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/zach-neto-bowman-draft-chrome-1st-auto-rc-purple-refractor-250-cda-zn-psa-9)
+- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
+- [Wyatt Langford 2024 Topps Baseball Stars Autographs RC PSA 9](https://bestdeals4u.trade/post/wyatt-langford-rangers-rc-2024-topps-baseball-stars-autograph-psa-9-20-199)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Mr. Burns #1162 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-1162-glowing-mr-burns-the-simpsons-chase-px-exclusive-w-protector)
 - [Market Review: Funko Pop! Vinyl Batman Earth-44 Murder Machine #360 Glow Chase Hot Topic](https://bestdeals4u.trade/post/funko-pop-vinyl-batman-earth-44-murder-machine-360-glow-chase-hot-topic)
 
 ### 🧱 LEGO
-- [LEGO 76440 Triwizard Tournament: the Arrival Sealed](https://bestdeals4u.trade/post/lego-harry-potter-triwizard-tournament-the-arrival-76440-new-sealed-retired)
-- [LEGO 21054 The White House Sealed](https://bestdeals4u.trade/post/lego-architecture-the-white-house-21054-new-sealed-box-retired-set-nisb)
+- [LEGO 7101 Lightsaber Duel Sealed](https://bestdeals4u.trade/post/lego-star-wars-lightsaber-duel-7101-nrfb-new-sealed-excellent)
+- [LEGO 70819 Bad Cop Car Chase Sealed](https://bestdeals4u.trade/post/lego-70819-bad-cop-car-chase-the-lego-movie-retired-2015-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWORD & SHIELD EVOLVING SKIES #189 FULL ART/UMBREON V PSA 10](https://bestdeals4u.trade/post/2021-pokemon-sword-shield-evolving-skies-189-full-art-umbreon-v-psa-10)
-- [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
+- [Market Review: PSA 10 Mega Gengar ex RR MBG_003/021](https://bestdeals4u.trade/post/psa-10-pokemon-card-mega-gengar-ex-rr-mbg-003-021)
+- [Market Review: 2023 POKEMON MEW EN-151 SPECIAL ILLUSTRATION RARE #198 VENUSAUR EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-special-illustration-rare-198-venusaur-ex-psa-10)
+
+### 🎮 Video Games
+- [Market Review: Atari Anniversary Advance Nintendo Game Boy Advance GBA CIB Boxed Complete PAL](https://bestdeals4u.trade/post/atari-anniversary-advance-nintendo-game-boy-advance-gba-cib-boxed-complete-pal)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
