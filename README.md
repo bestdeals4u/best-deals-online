@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Brody Hopkins 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/brody-hopkins-2025-bowman-chrome-1st-refractor-auto-499-psa-10-gem-mt-cpabh)
-- [Gabriel Hughes 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/gabriel-hughes-psa-10-2022-1st-bowman-chrome-auto-prospect-gold-refractor-50-z2)
+- [Wyatt Langford 2024 Topps RC PSA 9](https://bestdeals4u.trade/post/2024-topps-baseball-wyatt-langford-black-baseball-stars-rc-auto-199-psa-9)
+- [Henry Davis 2024 Topps Chrome RC SGC 9.5](https://bestdeals4u.trade/post/2024-topps-chrome-henry-davis-ra-had-gold-refractor-auto-50-sgc-9-5-pirates-rc)
 
 ### 🧸 Funko Pops
-- [Funko Pop, The Last Ronin #46 Exclusive](https://bestdeals4u.trade/post/funko-pop-comics-the-last-ronin-46-b-n-exclusive-w-protector)
-- [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
+- [Muzan Kibutsuji - ECCC (Shared Metallic) w / PROTECTOR Funko Pop #2196 at $20.00, with recent sales closer to $25.80](https://bestdeals4u.trade/post/funko-pop-muzan-kibutsuji-2196-eccc-shared-metallic-w-protector)
+- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 
 ### 🧱 LEGO
-- [LEGO 31118 Surfer Beach House Sealed](https://bestdeals4u.trade/post/lego-creator-3-in-1-surfer-beach-house-31118-or-build-lighthouse-new-sealed-box)
-- [LEGO Ideas: Seinfeld (21328) SET NEVER OPENED Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/lego-ideas-seinfeld-21328-retired-set-new-in-sealed-box-never-opened)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 41616 Hermione Granger Sealed](https://bestdeals4u.trade/post/lego-brickheadz-harry-potter-hermione-granger-41616-new-sealed)
 
 ### 🎮 Video Games
-- [Screamer 2026 Sony PlayStation 5 Sealed](https://bestdeals4u.trade/post/screamer-echo-edition-steelbook-playstation-5-ps5-brand-new-sealed)
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-gamecube-complete)
+- [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
