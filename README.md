@@ -36,22 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [A.J. Puk 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-18-99-aj-puk-bgs-9-5-auto-2a9-2)
-- [Starlyn Nunez 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/starlyn-nunez-2024-1st-bowman-chrome-auto-green-refractor-99-psa-9-red-sox-z4-2)
+- [Jo Adell 2018 Leaf Metal Draft Auto 01/15 Rookie Card Los Angeles Angels On - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/jo-adell-2018-leaf-metal-draft-auto-01-15-rc-los-angeles-angels-on-card)
+- [Jackson Merrill 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/jackson-merrill-2022-bowman-chrome-refractor-auto-499-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
-- [Funko Pop, Brutus, Brutus (Call of Duty) #71 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-call-of-duty-brutus-71-gamestop-exclusive-vaulted)
+- [Funko Pop, Star Wars #126 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-hooded-luke-galactic-convention-exclusive-126-w-protector)
+- [Funko Pop Whis, Cell #1089, 947 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-whis-cell-dragon-ball-exclusive-glow-1089-947-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 31156 Tropical Ukulele Sealed](https://bestdeals4u.trade/post/lego-31156-tropical-ukulele-creator-3-in-1-retired-new-sealed-collectable)
-- [LEGO 21331 Sonic the Hedgehog - Green Hill Zone Sealed](https://bestdeals4u.trade/post/lego-ideas-039-set-21331-sonic-the-hedgehog-green-hill-zone-factory-sealed-new)
-
-### 🃏 Pokémon Cards
-- [Market Review: 1999 Pokemon Base Set Gyarados Holo #6 PSA 7](https://bestdeals4u.trade/post/1999-pokemon-base-set-gyarados-holo-6-psa-7)
+- [LEGO 75304 Darth Vader Helmet Sealed](https://bestdeals4u.trade/post/as-is-lego-star-wars-75304-darth-vader-helmet-new-sealed-retired-set)
+- [LEGO 60005 Fire Boat Sealed](https://bestdeals4u.trade/post/lego-60005-city-fire-boat-new-sealed-retired-rescue-racing-town-fireman)
 
 ### 🎮 Video Games
-- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
+- [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
+- [Market Review: TMNT (Nintendo GameCube, 2007) Sealed Brand New CIB](https://bestdeals4u.trade/post/tmnt-nintendo-gamecube-2007-sealed-brand-new-cib-complete-mutant-ninja)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
