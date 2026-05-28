@@ -36,16 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jo Adell 2018 Leaf Metal Draft Auto 01/15 Rookie Card Los Angeles Angels On - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/jo-adell-2018-leaf-metal-draft-auto-01-15-rc-los-angeles-angels-on-card)
-- [Jackson Merrill 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/jackson-merrill-2022-bowman-chrome-refractor-auto-499-psa-10)
+- [Carlos Colmenarez 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-invicta-autograph-carlos-colmenarez-gold-refractor-50-psa-10)
+- [Ralphy Velazquez 2023 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2023-bowman-draft-ralphy-velazquez-chrome-prospect-auto-refractor-499-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Star Wars #126 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-hooded-luke-galactic-convention-exclusive-126-w-protector)
-- [Funko Pop Whis, Cell #1089, 947 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-whis-cell-dragon-ball-exclusive-glow-1089-947-vinyl)
+- [Funko Pop, Energizer Bunny #73](https://bestdeals4u.trade/post/funko-pop-ad-icons-energizer-bunny-73-vaulted-protector)
+- [Is This D&D Brass Dragon Wyrmling ECCC 2026 EX + Protector Funko Pop #1201 LE Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-1201-d-d-brass-dragon-wyrmling-eccc-2026-ex-le-8000-protector)
 
 ### 🧱 LEGO
-- [LEGO 75304 Darth Vader Helmet Sealed](https://bestdeals4u.trade/post/as-is-lego-star-wars-75304-darth-vader-helmet-new-sealed-retired-set)
-- [LEGO 60005 Fire Boat Sealed](https://bestdeals4u.trade/post/lego-60005-city-fire-boat-new-sealed-retired-rescue-racing-town-fireman)
+- [LEGO 76203 Iron Man Mech Armor Sealed](https://bestdeals4u.trade/post/lego-marvel-avengers-iron-man-mech-armor-76203-130-pcs-retired-factory-sealed)
+- [LEGO 75350 Clone Commander Cody Helmet Sealed](https://bestdeals4u.trade/post/lego-star-wars-clone-commander-cody-75350-retired-new-sealed-box)
+
+### 🃏 Pokémon Cards
+- [Market Review: PSA 1 Leafeon VMAX (Alt Art) 205/203 Evolving Skies Secret Rare Pokemon Card](https://bestdeals4u.trade/post/psa-1-leafeon-vmax-alt-art-205-203-evolving-skies-secret-rare-pokemon-card)
+- [Market Review: Pokémon TCG Surfing Pikachu Evolutions Secret Rare 111/108 PSA 10 2016](https://bestdeals4u.trade/post/pok-mon-tcg-surfing-pikachu-evolutions-secret-rare-111-108-psa-10-2016)
 
 ### 🎮 Video Games
 - [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
