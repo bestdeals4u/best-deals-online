@@ -36,23 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Ryan Holgate 2021 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2021-bowman-draft-chrome-pick-blue-refractor-150-ryan-holgate-psa-10-auto-1o5e)
-- [Anfernee Grier 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-green-refractor-81-99-anfernee-grier-bgs-9-5-gem-mint-auto-4k8-2)
+- [A.J. Puk 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-18-99-aj-puk-bgs-9-5-auto-2a9-2)
+- [Starlyn Nunez 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/starlyn-nunez-2024-1st-bowman-chrome-auto-green-refractor-99-psa-9-red-sox-z4-2)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
 - [Funko Pop, Brutus, Brutus (Call of Duty) #71 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-call-of-duty-brutus-71-gamestop-exclusive-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 21334 Jazz Quartet Sealed](https://bestdeals4u.trade/post/lego-ideas-jazz-quartet-21334-new-in-sealed-box-free-shipping-box-not-perfect)
-- [LEGO 21329 Fender Stratocaster Sealed](https://bestdeals4u.trade/post/brand-new-lego-21329-fender-stratocaster-factory-sealed-retired)
+- [LEGO 31156 Tropical Ukulele Sealed](https://bestdeals4u.trade/post/lego-31156-tropical-ukulele-creator-3-in-1-retired-new-sealed-collectable)
+- [LEGO 21331 Sonic the Hedgehog - Green Hill Zone Sealed](https://bestdeals4u.trade/post/lego-ideas-039-set-21331-sonic-the-hedgehog-green-hill-zone-factory-sealed-new)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 1999 Pokemon Base Set Gyarados Holo #6 PSA 7](https://bestdeals4u.trade/post/1999-pokemon-base-set-gyarados-holo-6-psa-7)
 
 ### 🎮 Video Games
 - [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
-- [Nintendo Super Smash Bros. Melee 2001 T Rated Manual Included for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/nintendo-super-smash-bros-melee-gamecube-2001-t-rated-manual-included)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
