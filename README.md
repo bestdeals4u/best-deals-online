@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Noah Schultz 2024 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-chrome-1st-true-blue-refractor-auto-150-noah-schultz-psa-10)
-- [Tommy Troy 2023 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/tommy-troy-2023-bowman-draft-chrome-1st-auto-rc-blue-wave-refractor-150-psa-9)
+- [Jeremiah Jackson 2018 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2018-bowman-chrome-jeremiah-jackson-cda-jj-refractor-auto-149-499-psa-9-rc)
+- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Multiple #1207 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-animation-care-bears-40th-wish-bear-1207-flocked-chase-w-protector)
 - [Funko Pop, Beasty Boyd #04](https://bestdeals4u.trade/post/garbage-pail-kids-04-beasty-boyd-funko-pop-vinyl-figure-vaulted-protector)
-- [Funko Pop, Star Wars #126 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-hooded-luke-galactic-convention-exclusive-126-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75100 First Order Snowspeeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-first-order-snowspeeder-75100-episode-vii-new-sealed-retired)
-- [LEGO 76216 Iron Man Armoury Sealed](https://bestdeals4u.trade/post/lego-76216-marvel-iron-man-armoury-new-brand-sealed-superheroes-retired)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 76035 Jokerland Sealed](https://bestdeals4u.trade/post/lego-dc-super-heroes-76035-jokerland-1037pcs-8-minifigures-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [CHARIZARD RC5 2016 POKEMON XY GENERATIONS RADIANT COLLECTION PSA 1](https://bestdeals4u.trade/post/2016-pokemon-xy-generations-radiant-collection-rc5-charizard-psa-1)
-- [Is This Forces Entei Holo Gold Star PSA 1 Actually a Good Value?](https://bestdeals4u.trade/post/2005-pokemon-ex-unseen-forces-113-115-entei-gold-star-holo-psa-1)
+- [Crystal Guardians Kyogre Holo PSA 3 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/swirl-psa-3-2006-pokemon-crystal-guardians-kyogre-ex-holo-foil-rare-95-100)
+- [Charizard Holo PSA 9 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-9-charizard-4-102-holo-celebrations-classic-collection-pokemon-card)
 
 ### 🎮 Video Games
-- [Sega Dreamcast HKT-3020 White Video Game Console w/ OEM Controller & - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/sega-dreamcast-hkt-3020-white-video-game-console-w-oem-controller-vmu-tested)
+- [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
+- [Is Tony Hawks Pro Skater 3 - Complete - Black Label for PlayStation 2 Priced Fairly at $15.44?](https://bestdeals4u.trade/post/tony-hawks-pro-skater-3-ps2-playstation-2-complete-cib-black-label-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
