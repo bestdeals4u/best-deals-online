@@ -36,24 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jeremiah Jackson 2018 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2018-bowman-chrome-jeremiah-jackson-cda-jj-refractor-auto-149-499-psa-9-rc)
-- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
+- [Jose Tena 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospects-orange-refractor-11-25-jose-tena-psa-10-auto-g6p)
+- [Jonathan India 2018 Bowman Draft BGS 10](https://bestdeals4u.trade/post/2018-bowman-draft-black-refractor-33-75-jonathan-india-bgs-10-pristine-auto-v9t)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Multiple #1207 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-animation-care-bears-40th-wish-bear-1207-flocked-chase-w-protector)
-- [Funko Pop, Beasty Boyd #04](https://bestdeals4u.trade/post/garbage-pail-kids-04-beasty-boyd-funko-pop-vinyl-figure-vaulted-protector)
+- [Funko Pop, Flynn #1856 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-tron-kevin-flynn-glow-funko-exclusive-1856)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 76035 Jokerland Sealed](https://bestdeals4u.trade/post/lego-dc-super-heroes-76035-jokerland-1037pcs-8-minifigures-new-sealed-retired)
-
-### 🃏 Pokémon Cards
-- [Crystal Guardians Kyogre Holo PSA 3 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/swirl-psa-3-2006-pokemon-crystal-guardians-kyogre-ex-holo-foil-rare-95-100)
-- [Charizard Holo PSA 9 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-9-charizard-4-102-holo-celebrations-classic-collection-pokemon-card)
-
-### 🎮 Video Games
-- [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
-- [Is Tony Hawks Pro Skater 3 - Complete - Black Label for PlayStation 2 Priced Fairly at $15.44?](https://bestdeals4u.trade/post/tony-hawks-pro-skater-3-ps2-playstation-2-complete-cib-black-label-tested)
+- [LEGO 70502 Cole's Earth Driller Sealed](https://bestdeals4u.trade/post/lego-70502-ninjago-cole-s-earth-driller-new-sealed-eol-retired)
+- [LEGO 70504 Garmatron Sealed](https://bestdeals4u.trade/post/lego-70504-ninjago-garmatron-building-set-new-sealed-retired-eol)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
