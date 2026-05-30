@@ -36,22 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Immaculate Jose Reyes Game Worn Patch On Card Auto Black /10 Mets Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2023-immaculate-jose-reyes-game-worn-patch-on-card-auto-black-10-mets)
-- [Diego Cartaya 2019 Bowman BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-prospect-blue-refractor-5-150-diego-cartaya-bgs-9-5-auto-1lq2)
+- [Evan Carter 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-evan-carter-blue-refractor-auto-150-psa-10-cda-ec)
+- [Kumar Rocker 2022 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/kumar-rocker-bgs-9-5-10-2022-1st-bowman-chrome-auto-blue-refractor-150-rc-z2-3)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Ken Kaneki #61 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-tokyo-ghoul-ken-kaneki-glow-hot-topic-exclusive-61)
-- [Funko Pop, Flynn #1856 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-tron-kevin-flynn-glow-funko-exclusive-1856)
 
 ### 🧱 LEGO
-- [LEGO 11009 Bricks and Lights Sealed](https://bestdeals4u.trade/post/lego-11009-classic-bricks-with-2-light-bricks-441-pieces-new-sealed-box-2)
-- [LEGO 9455 Fangpyre Mech Sealed](https://bestdeals4u.trade/post/lego-ninjago-9455-fangpyre-mech-sealed-retired-scan-pics-read-desc-new)
+- [LEGO 76396 Hogwarts Moment: Divination Class Sealed](https://bestdeals4u.trade/post/lego-76396-harry-potter-hogwarts-moment-divination-class-new-sealed-retired)
+- [LEGO 75330 Dagobah Jedi Training Diorama Sealed](https://bestdeals4u.trade/post/lego-star-wars-set-75330-dagobah-jedi-training-mint-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2023 Pokémon Obsidian Flames Illustration Rare #199 Ninetales PSA 10](https://bestdeals4u.trade/post/2023-pokemon-obf-en-obsidian-flames-illustration-rare-199-ninetales-psa-10)
 
 ### 🎮 Video Games
-- [Is This Nintendo The Legend of Zelda Wind Waker 2003 Action Manual not Included for Actually a Good Value?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-wind-waker-gamecube-2003-action-manual-not-included)
+- [Monster Farm 1997 Sony PlayStation 1 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/1997-ps1-monster-farm-graded-cgc-9-9-a-y-fold-sealed-playstation-tecmo-japan-jp)
+- [WWE 2K22 - Xbox Series X|S - - - Fast Shipping - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/wwe-2k22-xbox-series-x-s-brand-new-factory-sealed-fast-shipping)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
