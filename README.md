@@ -36,16 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jose Tena 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospects-orange-refractor-11-25-jose-tena-psa-10-auto-g6p)
-- [Jonathan India 2018 Bowman Draft BGS 10](https://bestdeals4u.trade/post/2018-bowman-draft-black-refractor-33-75-jonathan-india-bgs-10-pristine-auto-v9t)
+- [Immaculate Jose Reyes Game Worn Patch On Card Auto Black /10 Mets Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2023-immaculate-jose-reyes-game-worn-patch-on-card-auto-black-10-mets)
+- [Diego Cartaya 2019 Bowman BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-prospect-blue-refractor-5-150-diego-cartaya-bgs-9-5-auto-1lq2)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Ken Kaneki #61 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-tokyo-ghoul-ken-kaneki-glow-hot-topic-exclusive-61)
 - [Funko Pop, Flynn #1856 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-tron-kevin-flynn-glow-funko-exclusive-1856)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 76911 007 Aston Martin DB5 Sealed](https://bestdeals4u.trade/post/lego-speed-champions-76911-aston-martin-db5-james-bond-007-new-sealed-retired)
-- [LEGO 70504 Garmatron Sealed](https://bestdeals4u.trade/post/lego-70504-ninjago-garmatron-building-set-new-sealed-retired-eol)
+- [LEGO 11009 Bricks and Lights Sealed](https://bestdeals4u.trade/post/lego-11009-classic-bricks-with-2-light-bricks-441-pieces-new-sealed-box-2)
+- [LEGO 9455 Fangpyre Mech Sealed](https://bestdeals4u.trade/post/lego-ninjago-9455-fangpyre-mech-sealed-retired-scan-pics-read-desc-new)
+
+### 🃏 Pokémon Cards
+- [Market Review: 2023 Pokémon Obsidian Flames Illustration Rare #199 Ninetales PSA 10](https://bestdeals4u.trade/post/2023-pokemon-obf-en-obsidian-flames-illustration-rare-199-ninetales-psa-10)
+
+### 🎮 Video Games
+- [Is This Nintendo The Legend of Zelda Wind Waker 2003 Action Manual not Included for Actually a Good Value?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-wind-waker-gamecube-2003-action-manual-not-included)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
