@@ -44,7 +44,7 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 70502 Cole's Earth Driller Sealed](https://bestdeals4u.trade/post/lego-70502-ninjago-cole-s-earth-driller-new-sealed-eol-retired)
+- [LEGO 76911 007 Aston Martin DB5 Sealed](https://bestdeals4u.trade/post/lego-speed-champions-76911-aston-martin-db5-james-bond-007-new-sealed-retired)
 - [LEGO 70504 Garmatron Sealed](https://bestdeals4u.trade/post/lego-70504-ninjago-garmatron-building-set-new-sealed-retired-eol)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
