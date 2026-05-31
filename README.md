@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Wyatt Langford 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-wyatt-langford-magenta-purple-lava-lamp-rc-auto-173-299-psa-9)
-- [Corbin Carroll 2023 Chrome RC SGC 9.5](https://bestdeals4u.trade/post/2023-topps-chrome-corbin-carroll-ra-cca-auto-purple-refractor-250-rc-sgc-9-5)
+- [Jake Rucker 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-gold-shimmer-refractor-36-50-jake-rucker-psa-10-auto-11oq)
+- [Is This Shohei Ohtani 2024 Topps Chrome PSA 10 Rookie Actually a Good Value?](https://bestdeals4u.trade/post/shohei-ohtani-2024-topps-chrome-baseball-card-psa-10-rookie-mint)
 
 ### 🧸 Funko Pops
+- [Pokémon Entei Jumbo 10” SDCC 2025 Convention Exclusive Funko Pop #1070 at $60.99, with recent sales closer to $71.78](https://bestdeals4u.trade/post/pok-mon-entei-jumbo-10-funko-pop-1070-sdcc-2025-convention-exclusive)
 - [Market Review: NIB Funko Pop! Luffy Gear 5 Glow in the Dark #1607 Chase with Protector](https://bestdeals4u.trade/post/nib-funko-pop-luffy-gear-5-glow-in-the-dark-1607-chase-comes-with-protector)
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 75324 Dark Trooper Attack Sealed](https://bestdeals4u.trade/post/lego-star-wars-the-mandalorian-dark-trooper-attack-75324-retired-sealed-166-pcs)
-- [LEGO 31077 Modular Sweet Surprises Sealed](https://bestdeals4u.trade/post/lego-31077-creator-3-in-1-modular-sweet-surprises-new-sealed-retired-town)
+- [LEGO 9446 Destiny's Bounty Sealed](https://bestdeals4u.trade/post/lego-21303-ideas-wall-e-robot-pixar-movie-new-sealed-retired-building-set)
+- [LEGO 75442 The Mandalorian's N-1 Starfighter Sealed](https://bestdeals4u.trade/post/lego-75442-star-wars-the-mandalorian-s-n-1-starfighter-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [Market Review: PSA 10 Volcanion Pokemon Battle Partners Special Art Rare Pokemon Card](https://bestdeals4u.trade/post/psa-10-volcanion-pokemon-battle-partners-special-art-rare-pokemon-card)
 - [1999 Pokemon English Charizard Base Set Unlimited 4/102 - EX / NM Condition](https://bestdeals4u.trade/post/v1-336221582371-0-1999-pokemon-english-charizard-base-set-unlimited-4-102-ex-nm-condition)
-- [Pokemon TCG Clay Burst Grafaiai AR 080/071 SV2D Japanese Illustration Ungraded](https://bestdeals4u.trade/post/pokemon-tcg-clay-burst-grafaiai-ar-080-071-sv2d-japanese-illustration-rare)
 
 ### 🎮 Video Games
+- [Mario Tennis Fever | Nintendo Switch 2 | PSA 9.8 A++ Graded](https://bestdeals4u.trade/post/mario-tennis-fever-nintendo-switch-2-psa-graded-9-8-a-wata-cgc-vga)
 - [Super Mario Sunshine 2002 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/super-mario-sunshine-nintendo-gamecube-2002-tested-working-no-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
