@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Evan Carter 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-evan-carter-blue-refractor-auto-150-psa-10-cda-ec)
-- [Kumar Rocker 2022 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/kumar-rocker-bgs-9-5-10-2022-1st-bowman-chrome-auto-blue-refractor-150-rc-z2-3)
+- [Wyatt Langford 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-wyatt-langford-magenta-purple-lava-lamp-rc-auto-173-299-psa-9)
+- [Corbin Carroll 2023 Chrome RC SGC 9.5](https://bestdeals4u.trade/post/2023-topps-chrome-corbin-carroll-ra-cca-auto-purple-refractor-250-rc-sgc-9-5)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Ken Kaneki #61 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-tokyo-ghoul-ken-kaneki-glow-hot-topic-exclusive-61)
+- [Market Review: NIB Funko Pop! Luffy Gear 5 Glow in the Dark #1607 Chase with Protector](https://bestdeals4u.trade/post/nib-funko-pop-luffy-gear-5-glow-in-the-dark-1607-chase-comes-with-protector)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 76396 Hogwarts Moment: Divination Class Sealed](https://bestdeals4u.trade/post/lego-76396-harry-potter-hogwarts-moment-divination-class-new-sealed-retired)
-- [LEGO 75330 Dagobah Jedi Training Diorama Sealed](https://bestdeals4u.trade/post/lego-star-wars-set-75330-dagobah-jedi-training-mint-in-sealed-box)
+- [LEGO 75324 Dark Trooper Attack Sealed](https://bestdeals4u.trade/post/lego-star-wars-the-mandalorian-dark-trooper-attack-75324-retired-sealed-166-pcs)
+- [LEGO 31077 Modular Sweet Surprises Sealed](https://bestdeals4u.trade/post/lego-31077-creator-3-in-1-modular-sweet-surprises-new-sealed-retired-town)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2023 Pokémon Obsidian Flames Illustration Rare #199 Ninetales PSA 10](https://bestdeals4u.trade/post/2023-pokemon-obf-en-obsidian-flames-illustration-rare-199-ninetales-psa-10)
+- [1999 Pokemon English Charizard Base Set Unlimited 4/102 - EX / NM Condition](https://bestdeals4u.trade/post/v1-336221582371-0-1999-pokemon-english-charizard-base-set-unlimited-4-102-ex-nm-condition)
+- [Pokemon TCG Clay Burst Grafaiai AR 080/071 SV2D Japanese Illustration Ungraded](https://bestdeals4u.trade/post/pokemon-tcg-clay-burst-grafaiai-ar-080-071-sv2d-japanese-illustration-rare)
 
 ### 🎮 Video Games
-- [Monster Farm 1997 Sony PlayStation 1 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/1997-ps1-monster-farm-graded-cgc-9-9-a-y-fold-sealed-playstation-tecmo-japan-jp)
-- [WWE 2K22 - Xbox Series X|S - - - Fast Shipping - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/wwe-2k22-xbox-series-x-s-brand-new-factory-sealed-fast-shipping)
+- [Super Mario Sunshine 2002 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/super-mario-sunshine-nintendo-gamecube-2002-tested-working-no-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
