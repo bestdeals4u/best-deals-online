@@ -40,8 +40,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [David Sandlin 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/david-sandlin-1st-bowman-orange-wave-refractor-auto-25-cpadsa-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Skeletor #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-17-skeletor-motu-funko-exclusive-w-hard-stack-vaulted)
-- [Funko Pop, Jaime Lannister #10](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-jaime-lannister-10-vaulted-mint-condition)
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Thinking About Buying Jewelry Bonney Glow Chase One Piece Figure 2255 Funko Pop? Read This First](https://bestdeals4u.trade/post/funko-pop-jewelry-bonney-glow-chase-one-piece-figure-2255)
 
 ### 🧱 LEGO
 - [LEGO 21316 The Flintstones Sealed](https://bestdeals4u.trade/post/lego-ideas-the-flintstones-21316-sealed-box-brand-new-retired-set)
