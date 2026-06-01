@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Griffin Jax 2017 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/griffin-jax-2017-bowman-chrome-autograph-rookie-purple-250-rc-bgs-9-5-auto-10)
-- [Joe Dunand 2018 Bowman Chrome SGC 9.5](https://bestdeals4u.trade/post/2018-bowman-chrome-bcpa-jd-joe-dunand-purple-refractor-auto-250-sgc-9-5-10-mt)
+- [Ben Brown 2024 Topps RC BGS 8](https://bestdeals4u.trade/post/2024-topps-chrome-ben-brown-black-refractor-rookie-auto-bgs-8-auto-10-cubs)
+- [Jared Serna 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cpa-js-jared-serna-1st-chrome-auto-speckle-refractor-299-psa-10)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Buckbeak #103 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-harry-potter-buckbeak-flocked-hot-topic-exclusive-103)
 - [Funko Pop, Megazord #497 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-television-megazord-497-gitd-entertainment-earth-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 75396 Desert Skiff & Sarlacc Pit Sealed](https://bestdeals4u.trade/post/lego-star-wars-75396-desert-skiff-sarlacc-pit-new-sealed)
-- [LEGO 75254 AT-ST Raider Sealed](https://bestdeals4u.trade/post/lego-star-wars-75254-at-st-raider-the-mandalorian-new-sealed-cara-dune)
+- [LEGO 40696 Bakery Sealed](https://bestdeals4u.trade/post/lego-40696-bakery-stores-of-the-world-gwp-limited-edition-new-sealed-box)
+- [LEGO 40690 FC Barcelona Celebration Sealed](https://bestdeals4u.trade/post/lego-40690-tribute-to-jules-verne-s-books-gwp-limited-edition-new-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: PSA 9 2024 Giratina V Alt Art Chinese Lost Abyss #150/131 Pokemon Card SR](https://bestdeals4u.trade/post/psa-9-2024-giratina-v-alt-art-chinese-lost-abyss-150-131-pokemon-card-sr)
 - [Black Bolt Illustration SOLOSIS PSA 9 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pokemon-2025-black-bolt-illustration-rare-solosis-118-psa-9-mint-rare)
 
 ### 🎮 Video Games
+- [Devil May Cry 3: Dante's Awakening 2006 Sony PlayStation 2 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/sealed-devil-may-cry-3-dante-s-awakening-cgc-9-9-a-ps2-capcom-2006-us)
 - [Wario World 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/wario-world-nintendo-gamecube-2003-e-everyone-ntsc-u-c-manual-included)
-- [Pokémon TCG Team Rockets Moltres EX Ultra Premium Collection UPC Facto Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-tcg-team-rockets-moltres-ex-ultra-premium-collection-upc-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
