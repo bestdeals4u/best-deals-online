@@ -36,24 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Ben Brown 2024 Topps RC BGS 8](https://bestdeals4u.trade/post/2024-topps-chrome-ben-brown-black-refractor-rookie-auto-bgs-8-auto-10-cubs)
-- [Jared Serna 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cpa-js-jared-serna-1st-chrome-auto-speckle-refractor-299-psa-10)
+- [Gunnar Henderson 2023 Topps Transcendent Collection VIP Party RC PSA 10](https://bestdeals4u.trade/post/2023-topps-transcendant-vip-gunnar-henderson-25-guest-autograph-rc-psa-10-gh6)
+- [David Sandlin 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/david-sandlin-1st-bowman-orange-wave-refractor-auto-25-cpadsa-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Buckbeak #103 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-harry-potter-buckbeak-flocked-hot-topic-exclusive-103)
-- [Funko Pop, Megazord #497 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-television-megazord-497-gitd-entertainment-earth-exclusive)
+- [Funko Pop, Skeletor #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-17-skeletor-motu-funko-exclusive-w-hard-stack-vaulted)
+- [Funko Pop, Jaime Lannister #10](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-jaime-lannister-10-vaulted-mint-condition)
 
 ### 🧱 LEGO
-- [LEGO 40696 Bakery Sealed](https://bestdeals4u.trade/post/lego-40696-bakery-stores-of-the-world-gwp-limited-edition-new-sealed-box)
-- [LEGO 40690 FC Barcelona Celebration Sealed](https://bestdeals4u.trade/post/lego-40690-tribute-to-jules-verne-s-books-gwp-limited-edition-new-sealed-box)
-
-### 🃏 Pokémon Cards
-- [Market Review: PSA 9 2024 Giratina V Alt Art Chinese Lost Abyss #150/131 Pokemon Card SR](https://bestdeals4u.trade/post/psa-9-2024-giratina-v-alt-art-chinese-lost-abyss-150-131-pokemon-card-sr)
-- [Black Bolt Illustration SOLOSIS PSA 9 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pokemon-2025-black-bolt-illustration-rare-solosis-118-psa-9-mint-rare)
+- [LEGO 21316 The Flintstones Sealed](https://bestdeals4u.trade/post/lego-ideas-the-flintstones-21316-sealed-box-brand-new-retired-set)
+- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-disney-villain-icons-set-43227-retired-brand-new-factory-sealed)
 
 ### 🎮 Video Games
 - [Devil May Cry 3: Dante's Awakening 2006 Sony PlayStation 2 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/sealed-devil-may-cry-3-dante-s-awakening-cgc-9-9-a-ps2-capcom-2006-us)
-- [Wario World 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/wario-world-nintendo-gamecube-2003-e-everyone-ntsc-u-c-manual-included)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
