@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kenny Fenelon 2025 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/kenny-fenelon-psa-10-2025-1st-bowman-chrome-auto-orange-wave-refractor-25-rc-u6)
-- [Taylor Jungmann 2011 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2011-bowman-draft-purple-refractor-10-taylor-jungmann-bgs-9-5-gem-mint-auto-5w7)
+- [Elorky Rodriguez 2025 Bowman RC PSA 10](https://bestdeals4u.trade/post/elorky-rodriguez-2025-bowman-1st-chrome-blue-reptilian-rc-auto-150-psa-10)
+- [Bryce Johnson 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/2023-topps-chrome-bryce-johnson-rookie-auto-sgc-10-10-gem-mint-giants-rc)
 
 ### 🧸 Funko Pops
-- [Vinyl: Naruto - Anbu Itachi - Chalice Collectibles Funko Pop #1027 at $19.99, in line with recent comps](https://bestdeals4u.trade/post/funko-pop-vinyl-naruto-anbu-itachi-chalice-collectibles-exclusive-1027)
-- [Funko Pop, Itachi #578 Exclusive](https://bestdeals4u.trade/post/funko-pop-naruto-itachi-578-vinyl-special-edition-exclusive-mint)
+- [Market Review: Funko Pop! X-Men — Wolverine (Classic Unmasked) with Pop! Protector](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-classic-unmasked-with-pop-protector-eccc-1576)
+- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
 
 ### 🧱 LEGO
-- [LEGO 40769 Sega Genesis Controller Sealed](https://bestdeals4u.trade/post/lego-40769-sonic-the-hedgehog-sega-genesis-controller-new-sealed-retired-gwp)
-- [LEGO 40761 Smeagol & Deagol Sealed](https://bestdeals4u.trade/post/lego-lotr-smeagol-deagol-gwp-set-40761-brand-new-in-sealed-box)
+- [LEGO 6174778 Mater´s Shed Sealed](https://bestdeals4u.trade/post/new-lego-10856-mater-s-shed-retired-2018-factory-sealed-ships-fast)
+- [LEGO 4480 Jabba's Palace Sealed](https://bestdeals4u.trade/post/lego-star-wars-4480-jabba-s-palace-2003-new-sealed-retired-set)
 
 ### 🃏 Pokémon Cards
-- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
-
-### 🎮 Video Games
-- [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
-- [Bust-A-Move 3000 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/bust-a-move-3000-nintendo-gamecube-2003-authentic-cib-tested-working)
+- [Graded Umbreon EX 161/131 Special Illustration Rare Tag 9](https://bestdeals4u.trade/post/umbreon-ex-161-131-prismatic-evolutions-special-illustration-rare-pokemon-tag-9)
+- [How Good of a Deal Is This Pokémon 2000 Brock's Rhydon Gym Heroes Holo CGC 8.5?](https://bestdeals4u.trade/post/pok-mon-2000-brock-s-rhydon-gym-heroes-holo-2-cgc-8-5)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
