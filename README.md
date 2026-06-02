@@ -36,19 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Gunnar Henderson 2023 Topps Transcendent Collection VIP Party RC PSA 10](https://bestdeals4u.trade/post/2023-topps-transcendant-vip-gunnar-henderson-25-guest-autograph-rc-psa-10-gh6)
-- [David Sandlin 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/david-sandlin-1st-bowman-orange-wave-refractor-auto-25-cpadsa-psa-9)
+- [Kenny Fenelon 2025 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/kenny-fenelon-psa-10-2025-1st-bowman-chrome-auto-orange-wave-refractor-25-rc-u6)
+- [Taylor Jungmann 2011 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2011-bowman-draft-purple-refractor-10-taylor-jungmann-bgs-9-5-gem-mint-auto-5w7)
 
 ### 🧸 Funko Pops
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Thinking About Buying Jewelry Bonney Glow Chase One Piece Figure 2255 Funko Pop? Read This First](https://bestdeals4u.trade/post/funko-pop-jewelry-bonney-glow-chase-one-piece-figure-2255)
+- [Vinyl: Naruto - Anbu Itachi - Chalice Collectibles Funko Pop #1027 at $19.99, in line with recent comps](https://bestdeals4u.trade/post/funko-pop-vinyl-naruto-anbu-itachi-chalice-collectibles-exclusive-1027)
+- [Funko Pop, Itachi #578 Exclusive](https://bestdeals4u.trade/post/funko-pop-naruto-itachi-578-vinyl-special-edition-exclusive-mint)
 
 ### 🧱 LEGO
-- [LEGO 21316 The Flintstones Sealed](https://bestdeals4u.trade/post/lego-ideas-the-flintstones-21316-sealed-box-brand-new-retired-set)
-- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-disney-villain-icons-set-43227-retired-brand-new-factory-sealed)
+- [LEGO 40769 Sega Genesis Controller Sealed](https://bestdeals4u.trade/post/lego-40769-sonic-the-hedgehog-sega-genesis-controller-new-sealed-retired-gwp)
+- [LEGO 40761 Smeagol & Deagol Sealed](https://bestdeals4u.trade/post/lego-lotr-smeagol-deagol-gwp-set-40761-brand-new-in-sealed-box)
+
+### 🃏 Pokémon Cards
+- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
 
 ### 🎮 Video Games
-- [Devil May Cry 3: Dante's Awakening 2006 Sony PlayStation 2 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/sealed-devil-may-cry-3-dante-s-awakening-cgc-9-9-a-ps2-capcom-2006-us)
+- [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
+- [Bust-A-Move 3000 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/bust-a-move-3000-nintendo-gamecube-2003-authentic-cib-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
