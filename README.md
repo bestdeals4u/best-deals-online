@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Elorky Rodriguez 2025 Bowman RC PSA 10](https://bestdeals4u.trade/post/elorky-rodriguez-2025-bowman-1st-chrome-blue-reptilian-rc-auto-150-psa-10)
-- [Bryce Johnson 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/2023-topps-chrome-bryce-johnson-rookie-auto-sgc-10-10-gem-mint-giants-rc)
+- [Max Meyer 2020 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2020-bowman-chrome-draft-max-meyer-blue-refractor-auto-rc-150-psa-9-mint)
+- [Wilfri De La Cruz 2025 Bowman Chrome BGS 9](https://bestdeals4u.trade/post/2025-bowman-chrome-wilfri-de-la-cruz-blue-refractor-auto-cpa-wd-bgs-9-10)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop! X-Men — Wolverine (Classic Unmasked) with Pop! Protector](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-classic-unmasked-with-pop-protector-eccc-1576)
-- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
+- [Funko Pop Anakin Skywalker, Obi-Wan Kenobi #222 Exclusive](https://bestdeals4u.trade/post/star-wars-duel-on-mustafar-funko-pop-222-smugglers-bounty-exclusive-protector)
+- [Funko Pop, Batman #01 Exclusive GITD Glow](https://bestdeals4u.trade/post/funko-pop-dc-super-heroes-01-batman-gitd-glow-entertainment-earth-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 6174778 Mater´s Shed Sealed](https://bestdeals4u.trade/post/new-lego-10856-mater-s-shed-retired-2018-factory-sealed-ships-fast)
-- [LEGO 4480 Jabba's Palace Sealed](https://bestdeals4u.trade/post/lego-star-wars-4480-jabba-s-palace-2003-new-sealed-retired-set)
+- [LEGO 21317 Steamboat Willie Sealed](https://bestdeals4u.trade/post/lego-disney-21317-steamboat-willie-new-sealed-retired)
+- [LEGO 40568 Paris Postcard Sealed](https://bestdeals4u.trade/post/lego-creator-paris-postcard-40568-sealed-brand-new-unopened-retired)
 
 ### 🃏 Pokémon Cards
-- [Graded Umbreon EX 161/131 Special Illustration Rare Tag 9](https://bestdeals4u.trade/post/umbreon-ex-161-131-prismatic-evolutions-special-illustration-rare-pokemon-tag-9)
-- [How Good of a Deal Is This Pokémon 2000 Brock's Rhydon Gym Heroes Holo CGC 8.5?](https://bestdeals4u.trade/post/pok-mon-2000-brock-s-rhydon-gym-heroes-holo-2-cgc-8-5)
+- [Market Review: 2021 Pokemon Celebrations Classic Collection #24 Birthday Pikachu Holo PSA 9](https://bestdeals4u.trade/post/2021-pokemon-celebrations-classic-coll-24-birthday-pikachu-holo-psa-9)
+- [Market Review: 1999 Pokémon Game #22 Pidgeotto PSA 7](https://bestdeals4u.trade/post/1999-pokemon-game-22-pidgeotto-psa-7)
+
+### 🎮 Video Games
+- [Thinking About Buying 3D Pandora Wifi Saga EX Box 8000 in 1 DIY Kit Arcade Retro Video game? Read This First](https://bestdeals4u.trade/post/3d-pandora-wifi-saga-ex-box-8000-in-1-diy-kit-arcade-retro-video-game-console)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
