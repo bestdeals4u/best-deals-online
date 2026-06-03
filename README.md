@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Darell Hernaiz 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/darell-hernaiz-2022-1st-bowman-chrome-50-green-rc-auto-sapphire-psa-10-gem)
-- [Ed Kranepool 2004 Topps Finest PSA 9](https://bestdeals4u.trade/post/2004-finest-moments-ed-kranepool-on-card-autograph-psa-9-mint-ny-mets)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-10-dodgers-rc-z4)
+- [Doug Nikhazy 2021 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-chrome-cdadn-doug-nikhazy-auto-refractor-rc-1st-499-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
-- [Funko Pop, Stannis Baratheon #41](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-stannis-baratheon-41-w-protector-vaulted)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Is Vinyl: Marvel - The Amazing Spider-Man Funko Pop #1159 Priced Fairly at $14.00?](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-the-amazing-spider-man-1159)
 
 ### 🧱 LEGO
-- [LEGO Ideas Typewriter 21327 at $299.99, below recent comps](https://bestdeals4u.trade/post/lego-ideas-typewriter-21327-sealed)
-- [LEGO 10497 Galaxy Explorer Sealed](https://bestdeals4u.trade/post/lego-10497-galaxy-explorer-space-system-set-brand-new-sealed-retired-1254-pieces)
+- [LEGO 71738 Zane's Titan Mech Battle Sealed](https://bestdeals4u.trade/post/retired-lego-71738-ninjago-zane-s-titan-mech-battle-71738-brand-new-sealed-read)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
 
 ### 🃏 Pokémon Cards
-- [Ssp Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2024-pokemon-ssp-en-surging-sparks-ultra-rare-219-pikachu-ex-psa-10)
-- [Regirock Star Ultra Rare Legend Maker PSA 5](https://bestdeals4u.trade/post/regirock-gold-star-legend-maker-holo-91-92-psa-5-pokemon-card-slab)
+- [Pikachu PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/psa-10-pikachu-pokemon-25th-anniversary-collection-promo-pokemon-card)
+- [Market Review: 2025 POKEMON MEG-EN SPECIAL ILLUSTRATION RARE #184 LILLIE'S DETERMINATION PSA 9](https://bestdeals4u.trade/post/2025-pokemon-meg-en-special-illustration-rare-184-lillie-s-determination-psa-9)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
