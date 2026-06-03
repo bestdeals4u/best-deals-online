@@ -36,24 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Thinking About Buying Bowman Draft Max Scherzer Graded PSA 6 Rookie? Read This First](https://bestdeals4u.trade/post/2008-bowman-draft-max-scherzer-bdp33-graded-psa-6-rookie-baseball-card)
-- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
+- [Darell Hernaiz 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/darell-hernaiz-2022-1st-bowman-chrome-50-green-rc-auto-sapphire-psa-10-gem)
+- [Ed Kranepool 2004 Topps Finest PSA 9](https://bestdeals4u.trade/post/2004-finest-moments-ed-kranepool-on-card-autograph-psa-9-mint-ny-mets)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Darth Maul #832 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-the-crow-inquisitor-exclusive-832-protector)
-- [Funko Pop, Cayde-6 #234](https://bestdeals4u.trade/post/funko-pop-destiny-cayde-6-234-vaulted-new-in-box-mint-rare-games-figure)
+- [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
+- [Funko Pop, Stannis Baratheon #41](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-stannis-baratheon-41-w-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 42068 Airport Rescue Vehicle Sealed](https://bestdeals4u.trade/post/lego-42068-technic-airport-rescue-vehicle-new-sealed-retired)
-- [LEGO Star Wars: Dark Trooper Attack (75324) at $34.99, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-dark-trooper-attack-75324-brand-new-sealed-retired)
+- [LEGO Ideas Typewriter 21327 at $299.99, below recent comps](https://bestdeals4u.trade/post/lego-ideas-typewriter-21327-sealed)
+- [LEGO 10497 Galaxy Explorer Sealed](https://bestdeals4u.trade/post/lego-10497-galaxy-explorer-space-system-set-brand-new-sealed-retired-1254-pieces)
 
 ### 🃏 Pokémon Cards
-- [Pokémon Base Set Unlimited Ivysaur 30/102 - PSA 7 NM! WOTC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-base-set-unlimited-ivysaur-30-102-psa-7-nm-wotc)
-- [Market Review: Galarian Slowking V PSA 10 Alt Art Chilling Reign 179/198](https://bestdeals4u.trade/post/galarian-slowking-v-psa-10-alt-art-chilling-reign-pokemon-card-179-198-fa-2021)
-
-### 🎮 Video Games
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
-- [How Good of a Deal Is This Asrock Q270 PRO BTC+ Mining Board, Intel Q270, 1151, ATX, DDR4, HDMI?](https://bestdeals4u.trade/post/asrock-q270-pro-btc-mining-board-intel-q270-1151-atx-ddr4-hdmi-1x-pcie)
+- [Ssp Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2024-pokemon-ssp-en-surging-sparks-ultra-rare-219-pikachu-ex-psa-10)
+- [Regirock Star Ultra Rare Legend Maker PSA 5](https://bestdeals4u.trade/post/regirock-gold-star-legend-maker-holo-91-92-psa-5-pokemon-card-slab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
