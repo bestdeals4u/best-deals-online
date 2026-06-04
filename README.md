@@ -36,24 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Victor Mesa Jr. 2019 Bowman PSA 10](https://bestdeals4u.trade/post/2019-bowman-victor-mesa-jr-prospect-auto-chrome-refractor-psa-10-499-cpa-vmj)
-- [Grayson Rodriguez 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-grayson-rodriguez-au-rc-ra-gr-purple-auto-250-psa-10)
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
+- [George Valera 2022 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/george-valera-2022-bowman-1st-chrome-sapphire-aqua-auto-99-psa-9-guardians-rc)
 
 ### 🧸 Funko Pops
-- [Alastor Funko Pop Demon Form #2242 Chase Market Review](https://bestdeals4u.trade/post/alastor-funko-pop-demon-form-2242-chase-hazbin-hotel)
-- [Animation Demon Slayer Tengen Uzui Chase Limited Funko Pop #1533 at $30.00, with recent sales closer to $31.75](https://bestdeals4u.trade/post/funko-pop-animation-demon-slayer-tengen-uzui-chase-limited-edition-box-1533)
+- [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 21101 Hayabusa Sealed](https://bestdeals4u.trade/post/lego-21101-cuusoo-ideas-hayabusa-space-probe-japan-import-new-sealed-nice)
-- [LEGO 7965 Millennium Falcon Sealed](https://bestdeals4u.trade/post/star-wars-lego-7965-millennium-falcon-new-sealed)
+- [LEGO 75335 BD-1 Sealed](https://bestdeals4u.trade/post/lego-star-wars-bd-1-75335-brand-new-sealed-retired)
+- [LEGO 10227 B-wing Starfighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-b-wing-starfighter-10227-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [How Good of a Deal Is This Black Star Promos PSA 9?](https://bestdeals4u.trade/post/2023-pokemon-sv-black-star-promos-svp-en-mewtwo-052-psa-9)
-- [Mewtwo 150 PSA 8](https://bestdeals4u.trade/post/psa-8-1996-japanese-bandai-carddass-vending-mewtwo-prism-150-nm-mt-pokemon)
-
-### 🎮 Video Games
-- [Mario Golf: Toadstool Tour (GameCube, 2003) Disc + Booklet, Authentic](https://bestdeals4u.trade/post/mario-golf-toadstool-tour-nintendo-gamecube-2003-disc-booklet-authentic)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [Mega Charizard X EX 109 PSA 10 Ultra 2025 Pokémon PFL EN Gem PSA 10 at $274.65 - Buy Now or Wait?](https://bestdeals4u.trade/post/mega-charizard-x-ex-109-psa-10-ultra-rare-2025-pok-mon-pfl-en-gem-mint-psa-10)
+- [Market Review: Mega Gengar ex 2026 Pokemon Ascended Heroes #284 PSA 10](https://bestdeals4u.trade/post/mega-gengar-ex-2026-pokemon-ascended-heroes-284-sir-psa-10-printed-picture)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
