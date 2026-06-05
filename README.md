@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nick Kurtz 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-adios-auto-nick-kurtz-rookie-rc-gold-mini-diamond-50-psa-9)
-- [Hurston Waldrep 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/hurston-waldrep-2025-topps-chrome-rc-auto-blue-refractor-150-psa-9-braves-s6-2)
+- [Market Review: BGS 9.5 1981 Topps #205 Pete Rose Record Breaker Gem Mint Vintage Baseball Card](https://bestdeals4u.trade/post/bgs-9-5-1981-topps-205-pete-rose-record-breaker-gem-mint-vintage-baseball-card)
+- [Market Review: Topps 2024 Series 1 Home Field Advantage Mike Trout HFA-8 SGC 9.5 Baseball Card](https://bestdeals4u.trade/post/topps-2024-series-1-home-field-advantage-mike-trout-hfa-8-sgc-9-5-baseball-card)
 
 ### 🧸 Funko Pops
+- [Market Review: FUNKO POP! ALL MIGHT 1173 Mega Sized 18" GameStop Exclusive My Hero Academia](https://bestdeals4u.trade/post/funko-pop-all-might-1173-mega-sized-18-gamestop-exclusive-my-hero-academia)
 - [Funko Pop, Battle Beast #54](https://bestdeals4u.trade/post/funko-pop-vinyl-invincible-battle-beast-54-special-edition-figure-w-protector)
-- [Funko Pop, Ben Chang #842](https://bestdeals4u.trade/post/funko-pop-television-842-ben-chang-community-new-w-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 10297 Boutique Hotel Sealed](https://bestdeals4u.trade/post/lego-icons-boutique-hotel-modular-building-10297-new-sealed-retired)
-- [LEGO 21324 123 Sesame Street Sealed](https://bestdeals4u.trade/post/lego-ideas-21324-123-sesame-street-new-sealed-retired-big-bird-elmo-oscar)
+- [LEGO 75292 The Razor Crest Sealed](https://bestdeals4u.trade/post/75292-new-sealed-retired-set-of-the-lego-star-wars-the-razor-crest-75292)
+- [LEGO 77904 Nebulon-B Frigate Sealed](https://bestdeals4u.trade/post/nisb-lego-sdcc-2020-disney-star-wars-nebulon-b-frigate-77904-ltd-ed-retired)
 
 ### 🃏 Pokémon Cards
-- [PSA 10 Charizard ex 2023 FA sv2a – Market Review](https://bestdeals4u.trade/post/psa-10-pokemon-card-charizard-ex-2023-fa-sv2a-pokemon-151-sr-super-rare-185-165)
-- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
+- [Dark Gengar PSA 8](https://bestdeals4u.trade/post/psa-8-2002-pokemon-neo-destiny-1st-edition-dark-gengar-holo-6-105-from-japan)
+- [PSA 7 Light Dragonite Japanese Neo 4 Holo 149 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/psa-7-near-mint-light-dragonite-japanese-neo-4-holo-149)
 
 ### 🎮 Video Games
 - [Market Review: Microsoft Xbox 360 S 4GB Console - Tested, No Controller](https://bestdeals4u.trade/post/microsoft-xbox-360-s-4gb-console-black-1439-tested-no-controller)
