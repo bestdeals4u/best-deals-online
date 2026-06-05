@@ -36,22 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Joendry Vargas 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/joendry-vargas-psa-10-2023-1st-bowman-chrome-auto-gem-yellow-refractor-75-rc-b6)
-- [Adley Rutschman 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/adley-rutschman-2020-bowman-chrome-mega-box-auto-blue-refractor-150-psa-10)
+- [Nick Kurtz 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-adios-auto-nick-kurtz-rookie-rc-gold-mini-diamond-50-psa-9)
+- [Hurston Waldrep 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/hurston-waldrep-2025-topps-chrome-rc-auto-blue-refractor-150-psa-9-braves-s6-2)
 
 ### 🧸 Funko Pops
-- [Market Review: New Sealed Wolverine #1576 Funko Pop! with Protector LE 5000 2026 Shared ECCC](https://bestdeals4u.trade/post/new-sealed-wolverine-1576-funko-pop-with-protector-le-5000-2026-shared-eccc)
+- [Funko Pop, Battle Beast #54](https://bestdeals4u.trade/post/funko-pop-vinyl-invincible-battle-beast-54-special-edition-figure-w-protector)
+- [Funko Pop, Ben Chang #842](https://bestdeals4u.trade/post/funko-pop-television-842-ben-chang-community-new-w-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 6212683 Han Solo's Landspeeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-75209-han-solo-s-landspeeder-new-in-sealed-box)
-- [LEGO 43276 Snow White's Jewelry Box Sealed](https://bestdeals4u.trade/post/new-sealed-box-lego-disney-princess-snow-white-s-jewelry-box-43276)
+- [LEGO 10297 Boutique Hotel Sealed](https://bestdeals4u.trade/post/lego-icons-boutique-hotel-modular-building-10297-new-sealed-retired)
+- [LEGO 21324 123 Sesame Street Sealed](https://bestdeals4u.trade/post/lego-ideas-21324-123-sesame-street-new-sealed-retired-big-bird-elmo-oscar)
 
 ### 🃏 Pokémon Cards
+- [PSA 10 Charizard ex 2023 FA sv2a – Market Review](https://bestdeals4u.trade/post/psa-10-pokemon-card-charizard-ex-2023-fa-sv2a-pokemon-151-sr-super-rare-185-165)
 - [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
 
 ### 🎮 Video Games
+- [Market Review: Microsoft Xbox 360 S 4GB Console - Tested, No Controller](https://bestdeals4u.trade/post/microsoft-xbox-360-s-4gb-console-black-1439-tested-no-controller)
 - [Final Fantasy Anthology PS1 PSA 8.0 A++ New Sealed Graded](https://bestdeals4u.trade/post/final-fantasy-anthology-ps1-playstation-1-psa-8-0-a-new-sealed-graded)
-- [Thinking About Buying Pikmin (2001) for GameCube? Read This First](https://bestdeals4u.trade/post/pikmin-nintendo-gamecube-2001)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
