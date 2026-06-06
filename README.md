@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Ryan Bliss 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-7-499-ryan-bliss-psa-9-mint-auto-0g0w)
-- [Samuel Zavala 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-1st-bowman-chrome-auto-samuel-zavala-green-refractor-99-gem-mint-psa-10)
+- [Is This Fleer 1987 Update Kevin Mitchell Rookie Giants PSA 9 a Good Buy?](https://bestdeals4u.trade/post/fleer-1987-update-kevin-mitchell-u-82-rookie-giants-psa-9-baseball-card)
+- [Darell Hernaiz 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-darell-hernaiz-blue-refractor-auto-rc-150-psa-10)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Tatsumaki #721 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-terrible-tornado-glow-chase-721)
 - [Market Review: Funko Pop! Pongo (Facet) #1723 LE 1001 2026 ECCC Exclusive Con Sticker](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-le-1001-2026-eccc-exclusive-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 76161 1989 Batwing Sealed](https://bestdeals4u.trade/post/lego-batman-1989-batwing-76161-rare-retired-new-factory-sealed)
-- [Is This LEGO 7101 Star Wars: Lightsaber Duel Sealed a Good Deal Right Now?](https://bestdeals4u.trade/post/lego-7101-star-wars-lightsaber-duel-sealed)
+- [LEGO 75330 Dagobah Jedi Training Diorama Sealed](https://bestdeals4u.trade/post/lego-75330-star-wars-dagobah-jedi-training-diorama-new-sealed-retired-safe-ship)
+- [LEGO 7778 Star Wars Midi-Scale Millennium Falcon Sealed](https://bestdeals4u.trade/post/brand-new-lego-star-wars-midi-scale-millennium-falcon-7778-factory-sealed)
 
 ### 🃏 Pokémon Cards
+- [Pokemon Quaquaval EX Japanese Triplet Beat Holo Rare 030/073 NM – Listing Overview](https://bestdeals4u.trade/post/pokemon-trading-card-quaquaval-ex-japanese-triplet-beat-holo-rare-030-073-nm)
 - [Market Review: PSA 10 Rotom ex 126/094 Pokemon Phantasmal Flames Special Illustration Rare 2025](https://bestdeals4u.trade/post/psa-10-rotom-ex-126-094-pokemon-phantasmal-flames-special-illustration-rare-2025)
-- [Rare 1999 Pokemon Holo Sticker Trio Set - Charizard, Blastoise, Venusaur](https://bestdeals4u.trade/post/pokemon-sticker-3x-starter-trio-holo-set-charizard-blastoise-venusaur-4-102-1999)
 
 ### 🎮 Video Games
 - [Microsoft Xbox 360 S Console Only Model 1439 & Working - #20260330895 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/microsoft-xbox-360-s-console-only-model-1439-tested-working-20260330895)
