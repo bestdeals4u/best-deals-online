@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: TUCKER ASHFORD 1979 TOPPS BASEBALL CARD #247 PSA 10 GEM MINT GRADED](https://bestdeals4u.trade/post/tucker-ashford-1979-topps-baseball-card-247-psa-10-gem-mint-graded)
-- [Jeter Martinez 2024 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/jeter-martinez-2024-1st-bowman-chrome-auto-blue-refractor-150-psa-9-mint-rc-h6)
+- [Ryan Bliss 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-7-499-ryan-bliss-psa-9-mint-auto-0g0w)
+- [Samuel Zavala 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-1st-bowman-chrome-auto-samuel-zavala-green-refractor-99-gem-mint-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Tatsumaki #721 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-terrible-tornado-glow-chase-721)
 - [Market Review: Funko Pop! Pongo (Facet) #1723 LE 1001 2026 ECCC Exclusive Con Sticker](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-le-1001-2026-eccc-exclusive-con-sticker)
-- [Market Review: FUNKO POP! ALL MIGHT 1173 Mega Sized 18" GameStop Exclusive My Hero Academia](https://bestdeals4u.trade/post/funko-pop-all-might-1173-mega-sized-18-gamestop-exclusive-my-hero-academia)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 75391 and 40557 Captain Rex Y-Wing Microfighter, Defense of Hoth Sealed](https://bestdeals4u.trade/post/lego-star-wars-captain-rex-y-wing-75391-defense-of-hoth-40557-sets-all-sealed)
+- [LEGO 76161 1989 Batwing Sealed](https://bestdeals4u.trade/post/lego-batman-1989-batwing-76161-rare-retired-new-factory-sealed)
+- [Is This LEGO 7101 Star Wars: Lightsaber Duel Sealed a Good Deal Right Now?](https://bestdeals4u.trade/post/lego-7101-star-wars-lightsaber-duel-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: PSA 10 Rotom ex 126/094 Pokemon Phantasmal Flames Special Illustration Rare 2025](https://bestdeals4u.trade/post/psa-10-rotom-ex-126-094-pokemon-phantasmal-flames-special-illustration-rare-2025)
 - [Rare 1999 Pokemon Holo Sticker Trio Set - Charizard, Blastoise, Venusaur](https://bestdeals4u.trade/post/pokemon-sticker-3x-starter-trio-holo-set-charizard-blastoise-venusaur-4-102-1999)
 
 ### 🎮 Video Games
-- [Market Review: MATO ANOMALIES NEW FACTORY SEALED 2023 Authentic Xbox Series X S One](https://bestdeals4u.trade/post/mato-anomalies-new-factory-sealed-2023-authentic-xbox-series-x-s-one)
-- [FACTORY SEALED Tom Clancy’s HAWX for Xbox 360 NEW](https://bestdeals4u.trade/post/factory-sealed-tom-clancy-s-hawx-game-for-xbox-360-new)
+- [Microsoft Xbox 360 S Console Only Model 1439 & Working - #20260330895 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/microsoft-xbox-360-s-console-only-model-1439-tested-working-20260330895)
+- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
