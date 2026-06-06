@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Is This Fleer 1987 Update Kevin Mitchell Rookie Giants PSA 9 a Good Buy?](https://bestdeals4u.trade/post/fleer-1987-update-kevin-mitchell-u-82-rookie-giants-psa-9-baseball-card)
-- [Darell Hernaiz 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-darell-hernaiz-blue-refractor-auto-rc-150-psa-10)
+- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
+- [Amed Rosario 2015 Bowman PSA 9](https://bestdeals4u.trade/post/2015-bowman-chrome-prospects-refractor-14-499-amed-rosario-psa-9-mint-auto-03ug)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Tatsumaki #721 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-terrible-tornado-glow-chase-721)
-- [Market Review: Funko Pop! Pongo (Facet) #1723 LE 1001 2026 ECCC Exclusive Con Sticker](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-le-1001-2026-eccc-exclusive-con-sticker)
+- [Funko Pop, Cad Bane #816 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-816-cad-bane-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75330 Dagobah Jedi Training Diorama Sealed](https://bestdeals4u.trade/post/lego-75330-star-wars-dagobah-jedi-training-diorama-new-sealed-retired-safe-ship)
-- [LEGO 7778 Star Wars Midi-Scale Millennium Falcon Sealed](https://bestdeals4u.trade/post/brand-new-lego-star-wars-midi-scale-millennium-falcon-7778-factory-sealed)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
+- [LEGO 76200 Bro Thor's New Asgard Sealed](https://bestdeals4u.trade/post/lego-76200-marvel-infinity-saga-bro-thor-s-new-asgard-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Pokemon Quaquaval EX Japanese Triplet Beat Holo Rare 030/073 NM – Listing Overview](https://bestdeals4u.trade/post/pokemon-trading-card-quaquaval-ex-japanese-triplet-beat-holo-rare-030-073-nm)
-- [Market Review: PSA 10 Rotom ex 126/094 Pokemon Phantasmal Flames Special Illustration Rare 2025](https://bestdeals4u.trade/post/psa-10-rotom-ex-126-094-pokemon-phantasmal-flames-special-illustration-rare-2025)
+- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
+- [Charizard Gem PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/charizard-ex-psa-10-gem-mint-2023-pokemon-sv-151-mew-en-183-165-ultra-rare)
 
 ### 🎮 Video Games
+- [Sony SCPH-39000 Console Blue and Naruto Game & Working for PlayStation 2 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/sony-playstation-2-scph-39000-console-blue-and-naruto-game-ps2-tested-working)
 - [Microsoft Xbox 360 S Console Only Model 1439 & Working - #20260330895 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/microsoft-xbox-360-s-console-only-model-1439-tested-working-20260330895)
-- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
