@@ -36,19 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Zack Gelof 2021 Leaf Valiant RC BGS 9.5](https://bestdeals4u.trade/post/leaf-2021-valiant-zack-gelof-rc-auto-orange-99-ba-zg1-bgs-9-5)
-- [James Wood 2025 Topps Chrome Update Blue Green Refractor PSA 9](https://bestdeals4u.trade/post/james-wood-2025-topps-chrome-update-blue-green-refractor-auto-055-175-psa-9)
+- [Yolfran Castillo 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/yolfran-castillo-psa-10-2024-1st-bowman-chrome-auto-repti-green-refractor-99-z4)
+- [Market Review: Bowman 2024 Draft Jac Caglianone Kansas City Royals BD8 PSA 10 Baseball Card](https://bestdeals4u.trade/post/bowman-2024-draft-jac-caglianone-kansas-city-royals-bd8-psa-10-baseball-card)
 
 ### 🧸 Funko Pops
-- [Funko Pop, John Lennon #247 Chase Exclusive](https://bestdeals4u.trade/post/john-lennon-funko-pop-247-peacoat-exclusive-common-chase-set-vaulted-nib)
-- [Market Review: Funko Pop! Vinyl The Incredibles Mr. Incredible B&W Chase #1509 (w/ Protector)](https://bestdeals4u.trade/post/funko-pop-vinyl-the-incredibles-mr-incredible-b-w-chase-1509-w-protector)
+- [Funko Pop, Rika, Yuta Okkotsu #2321 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-rika-yuta-okkotsu-glow-2321-jujutsu-kaisen-exclusive-vinyl)
+- [Demon Slayer: Muzan Kibutsuji ECCC 2026 + Protector Funko Pop #2196 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/funko-pop-2196-demon-slayer-muzan-kibutsuji-metallic-eccc-2026-protector)
 
 ### 🧱 LEGO
-- [LEGO 76440 Triwizard Tournament: the Arrival Sealed](https://bestdeals4u.trade/post/lego-harry-potter-76440-triwizard-arrival-new-sealed-retired-free-ship)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 910034 Brick Cross Train Station Sealed](https://bestdeals4u.trade/post/lego-brick-cross-train-station-910034-bricklink-new-sealed-retired-fast-shipping)
+- [LEGO 60193 Arctic Air Transport Sealed](https://bestdeals4u.trade/post/lego-city-artic-air-transport-60193-new-factory-sealed-retired-2019)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2023 POKEMON PAR EN-PARADOX RIFT SPECIAL ILLUSTRATION RARE ALTARIA EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-par-en-paradox-rift-special-illustration-rare-altaria-ex-psa-10)
+- [Market Review: 1999 POKEMON BASE SET SHADOWLESS #2 BLASTOISE-HOLO PSA 5](https://bestdeals4u.trade/post/1999-pokemon-base-set-shadowless-2-blastoise-holo-psa-5)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
