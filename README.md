@@ -36,23 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bo Bichette 2020 Topps Finest RC PSA 10](https://bestdeals4u.trade/post/2020-topps-finest-auto-bo-bichette-ffa-bb-green-refractor-99-rc-psa-10)
-- [Amed Rosario 2015 Bowman PSA 9](https://bestdeals4u.trade/post/2015-bowman-chrome-prospects-refractor-14-499-amed-rosario-psa-9-mint-auto-03ug)
+- [Wyatt Langford 2024 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-wyatt-langford-rc-rookie-patch-auto-rpa-150-psa-9-relic)
+- [Andres Gimenez 2021 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-rookie-orange-refractor-20-25-andres-gimenez-psa-10-auto-4f5)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Cad Bane #816 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-816-cad-bane-exclusive-w-protector)
+- [Market Review: Funko Pop! Vinyl The Incredibles Mr. Incredible B&W Chase #1509 (w/ Protector)](https://bestdeals4u.trade/post/funko-pop-vinyl-the-incredibles-mr-incredible-b-w-chase-1509-w-protector)
+- [Funko Pop, Adam Bomb #01 Chase Glow](https://bestdeals4u.trade/post/garbage-pail-kids-01-adam-bomb-glow-chase-funko-pop-vinyl-figure-with-protector)
 
 ### 🧱 LEGO
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
-- [LEGO 76200 Bro Thor's New Asgard Sealed](https://bestdeals4u.trade/post/lego-76200-marvel-infinity-saga-bro-thor-s-new-asgard-sealed-retired)
+- [LEGO 75306 Imperial Probe Droid Sealed](https://bestdeals4u.trade/post/lego-star-wars-75306-imperial-probe-droid-collectable-retired-new-sealed-box)
+- [LEGO 21318 Tree House Sealed](https://bestdeals4u.trade/post/lego-ideas-tree-house-21318-brand-new-factory-sealed-retired-set-rare-look)
 
 ### 🃏 Pokémon Cards
+- [Market Review: 2023 POKEMON PAR EN-PARADOX RIFT SPECIAL ILLUSTRATION RARE ALTARIA EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-par-en-paradox-rift-special-illustration-rare-altaria-ex-psa-10)
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
-- [Charizard Gem PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/charizard-ex-psa-10-gem-mint-2023-pokemon-sv-151-mew-en-183-165-ultra-rare)
 
 ### 🎮 Video Games
 - [Sony SCPH-39000 Console Blue and Naruto Game & Working for PlayStation 2 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/sony-playstation-2-scph-39000-console-blue-and-naruto-game-ps2-tested-working)
-- [Microsoft Xbox 360 S Console Only Model 1439 & Working - #20260330895 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/microsoft-xbox-360-s-console-only-model-1439-tested-working-20260330895)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
