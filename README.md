@@ -36,22 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Daulton Varsho 2021 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2021-topps-chrome-rookie-auto-daulton-varsho-ra-dv-aqua-refractor-199-psa-10)
-- [Alejandro Pie 2022 Bowman PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-gold-refractor-12-50-alejandro-pie-psa-10-auto-w7p)
+- [Zack Gelof 2021 Leaf Valiant RC BGS 9.5](https://bestdeals4u.trade/post/leaf-2021-valiant-zack-gelof-rc-auto-orange-99-ba-zg1-bgs-9-5)
+- [James Wood 2025 Topps Chrome Update Blue Green Refractor PSA 9](https://bestdeals4u.trade/post/james-wood-2025-topps-chrome-update-blue-green-refractor-auto-055-175-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, John Lennon #247 Chase Exclusive](https://bestdeals4u.trade/post/john-lennon-funko-pop-247-peacoat-exclusive-common-chase-set-vaulted-nib)
 - [Market Review: Funko Pop! Vinyl The Incredibles Mr. Incredible B&W Chase #1509 (w/ Protector)](https://bestdeals4u.trade/post/funko-pop-vinyl-the-incredibles-mr-incredible-b-w-chase-1509-w-protector)
 
 ### 🧱 LEGO
-- [Retired LEGO 75288 AT-AT Star Wars Set - New & Sealed](https://bestdeals4u.trade/post/lego-75288-at-at-star-wars-new-sealed-box-retired-2020-set)
-- [LEGO 75229 Death Star Escape Sealed](https://bestdeals4u.trade/post/lego-star-wars-death-star-escape-75229-new-factory-sealed-box)
+- [LEGO 76440 Triwizard Tournament: the Arrival Sealed](https://bestdeals4u.trade/post/lego-harry-potter-76440-triwizard-arrival-new-sealed-retired-free-ship)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2023 POKEMON PAR EN-PARADOX RIFT SPECIAL ILLUSTRATION RARE ALTARIA EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-par-en-paradox-rift-special-illustration-rare-altaria-ex-psa-10)
-
-### 🎮 Video Games
-- [Sony SCPH-39000 Console Blue and Naruto Game & Working for PlayStation 2 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/sony-playstation-2-scph-39000-console-blue-and-naruto-game-ps2-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
