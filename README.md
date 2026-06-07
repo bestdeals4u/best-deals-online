@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Wyatt Langford 2024 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-wyatt-langford-rc-rookie-patch-auto-rpa-150-psa-9-relic)
-- [Andres Gimenez 2021 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-rookie-orange-refractor-20-25-andres-gimenez-psa-10-auto-4f5)
+- [Daulton Varsho 2021 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2021-topps-chrome-rookie-auto-daulton-varsho-ra-dv-aqua-refractor-199-psa-10)
+- [Alejandro Pie 2022 Bowman PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-gold-refractor-12-50-alejandro-pie-psa-10-auto-w7p)
 
 ### 🧸 Funko Pops
+- [Funko Pop, John Lennon #247 Chase Exclusive](https://bestdeals4u.trade/post/john-lennon-funko-pop-247-peacoat-exclusive-common-chase-set-vaulted-nib)
 - [Market Review: Funko Pop! Vinyl The Incredibles Mr. Incredible B&W Chase #1509 (w/ Protector)](https://bestdeals4u.trade/post/funko-pop-vinyl-the-incredibles-mr-incredible-b-w-chase-1509-w-protector)
-- [Funko Pop, Adam Bomb #01 Chase Glow](https://bestdeals4u.trade/post/garbage-pail-kids-01-adam-bomb-glow-chase-funko-pop-vinyl-figure-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 75306 Imperial Probe Droid Sealed](https://bestdeals4u.trade/post/lego-star-wars-75306-imperial-probe-droid-collectable-retired-new-sealed-box)
-- [LEGO 21318 Tree House Sealed](https://bestdeals4u.trade/post/lego-ideas-tree-house-21318-brand-new-factory-sealed-retired-set-rare-look)
+- [Retired LEGO 75288 AT-AT Star Wars Set - New & Sealed](https://bestdeals4u.trade/post/lego-75288-at-at-star-wars-new-sealed-box-retired-2020-set)
+- [LEGO 75229 Death Star Escape Sealed](https://bestdeals4u.trade/post/lego-star-wars-death-star-escape-75229-new-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2023 POKEMON PAR EN-PARADOX RIFT SPECIAL ILLUSTRATION RARE ALTARIA EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-par-en-paradox-rift-special-illustration-rare-altaria-ex-psa-10)
-- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
 
 ### 🎮 Video Games
 - [Sony SCPH-39000 Console Blue and Naruto Game & Working for PlayStation 2 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/sony-playstation-2-scph-39000-console-blue-and-naruto-game-ps2-tested-working)
