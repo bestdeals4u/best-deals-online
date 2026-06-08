@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Shotaro Morii 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-mega-box-purple-refractor-auto-shotaro-morii-rc-199-psa-9-as)
-- [Jared McKenzie 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/jared-mckenzie-2022-bowman-draft-chrome-autograph-blue-refractor-039-150-psa-10)
+- [Jordan Brewer 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-gold-shimmer-refractor-50-jordan-brewer-psa-10-auto-02u0)
+- [1980's -Jim Siwy- Signed/Autograph/Auto Index Card Chicago White Sox MLB - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/1980-s-jim-siwy-signed-autograph-auto-index-card-chicago-white-sox-mlb)
 
 ### 🧸 Funko Pops
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 - [Funko Pop, Beru #2022 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-beru-glow-solo-leveling-2022-ee-exclusive-w-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 43196 Belle and the Beast's Castle Sealed](https://bestdeals4u.trade/post/lego-disney-princess-belle-and-the-beast-s-castle-43196-new-sealed-retired)
-- [LEGO Star Wars 40765 Kamino Training Facility May 4th 2025 Promo GWP at $32.90, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-40765-kamino-training-facility-may-4th-2025-promo-gwp-new-sealed)
+- [LEGO 76398 Hogwarts Hospital Wing Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-hospital-wing-76398-new-sealed-read)
+- [LEGO Creator Expert Detective's Office 10246 - Sealed & Retired](https://bestdeals4u.trade/post/lego-creator-expert-detective-s-office-10246-modular-building-set-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [Market Review: 1996 POKEMON JPN BASIC #25 PIKACHU PSA 8](https://bestdeals4u.trade/post/1996-pokemon-jpn-basic-25-pikachu-psa-8)
 - [Market Review: BANDAI PSA 7 Mew #151 1996 Pokemon Carddass Prism Red Holo Vending Used Japan](https://bestdeals4u.trade/post/bandai-psa-7-mew-151-1996-pokemon-carddass-prism-red-holo-vending-used-japan)
 
 ### 🎮 Video Games
+- [Console Only Model HKT-3000 NTSC-J Made In Japan 1998 for Sega Dreamcast](https://bestdeals4u.trade/post/sega-dreamcast-console-only-model-hkt-3000-ntsc-j-tested-made-in-japan)
 - [Arkanoid II Revenge of DOH for IBM-PC, XT, AT, PS/2, Tandy 1000 - 1989 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/arkanoid-ii-revenge-of-doh-for-ibm-pc-xt-at-ps-2-tandy-1000-1989-cib)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
