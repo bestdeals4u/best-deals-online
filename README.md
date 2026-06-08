@@ -36,19 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Yolfran Castillo 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/yolfran-castillo-psa-10-2024-1st-bowman-chrome-auto-repti-green-refractor-99-z4)
-- [Market Review: Bowman 2024 Draft Jac Caglianone Kansas City Royals BD8 PSA 10 Baseball Card](https://bestdeals4u.trade/post/bowman-2024-draft-jac-caglianone-kansas-city-royals-bd8-psa-10-baseball-card)
+- [Shotaro Morii 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-mega-box-purple-refractor-auto-shotaro-morii-rc-199-psa-9-as)
+- [Jared McKenzie 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/jared-mckenzie-2022-bowman-draft-chrome-autograph-blue-refractor-039-150-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Rika, Yuta Okkotsu #2321 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-rika-yuta-okkotsu-glow-2321-jujutsu-kaisen-exclusive-vinyl)
-- [Demon Slayer: Muzan Kibutsuji ECCC 2026 + Protector Funko Pop #2196 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/funko-pop-2196-demon-slayer-muzan-kibutsuji-metallic-eccc-2026-protector)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Funko Pop, Beru #2022 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-beru-glow-solo-leveling-2022-ee-exclusive-w-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 910034 Brick Cross Train Station Sealed](https://bestdeals4u.trade/post/lego-brick-cross-train-station-910034-bricklink-new-sealed-retired-fast-shipping)
-- [LEGO 60193 Arctic Air Transport Sealed](https://bestdeals4u.trade/post/lego-city-artic-air-transport-60193-new-factory-sealed-retired-2019)
+- [LEGO 43196 Belle and the Beast's Castle Sealed](https://bestdeals4u.trade/post/lego-disney-princess-belle-and-the-beast-s-castle-43196-new-sealed-retired)
+- [LEGO Star Wars 40765 Kamino Training Facility May 4th 2025 Promo GWP at $32.90, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-40765-kamino-training-facility-may-4th-2025-promo-gwp-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 1999 POKEMON BASE SET SHADOWLESS #2 BLASTOISE-HOLO PSA 5](https://bestdeals4u.trade/post/1999-pokemon-base-set-shadowless-2-blastoise-holo-psa-5)
+- [Market Review: BANDAI PSA 7 Mew #151 1996 Pokemon Carddass Prism Red Holo Vending Used Japan](https://bestdeals4u.trade/post/bandai-psa-7-mew-151-1996-pokemon-carddass-prism-red-holo-vending-used-japan)
+
+### 🎮 Video Games
+- [Arkanoid II Revenge of DOH for IBM-PC, XT, AT, PS/2, Tandy 1000 - 1989 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/arkanoid-ii-revenge-of-doh-for-ibm-pc-xt-at-ps-2-tandy-1000-1989-cib)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
