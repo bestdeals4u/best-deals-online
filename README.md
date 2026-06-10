@@ -36,24 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bryce Rainer 2024 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2024-topps-bowman-draft-bryce-rainer-auto-refractor-499-psa-9-rc-cpabr)
-- [Brooks Lee 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-chrome-pick-purple-refractor-250-brooks-lee-psa-10-auto-12wc)
+- [Kenny Fenelon 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/kenny-fenelon-2025-1st-bowman-chrome-auto-orange-refractor-25-psa-9-brewers-y6-4)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-psa-9-2023-1st-bowman-chrome-auto-prospect-refractor-499-rc-z2)
 
 ### 🧸 Funko Pops
-- [X-Men Wolverine Pieces ECCC 2026 Shared Funko Pop #1576 LE 5000 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-1576-le-5000-pieces-eccc-2026-shared-w-protector)
-- [Kristen Schall Signed Mabel Pine Funko Autographed JSA Rare Gravity Falls Grail](https://bestdeals4u.trade/post/kristen-schall-signed-mabel-pine-funko-autographed-jsa-rare-gravity-falls-grail)
+- [Wednesday Addams and Enid Sinclair ! 2 Pack NYCC Shared Funko Pop #1585 at $149.99, with recent sales closer to $195.01](https://bestdeals4u.trade/post/wednesday-addams-and-enid-sinclair-funko-pop-2-pack-1585-1586-nycc-shared)
+- [Market Review: Funko Pop! Vinyl Cowardly Lion 1515 Chase Edition The Wizard of Oz](https://bestdeals4u.trade/post/funko-pop-vinyl-cowardly-lion-1515-chase-edition-the-wizard-of-oz)
 
 ### 🧱 LEGO
-- [LEGO 40487 Sailboat Adventure Sealed](https://bestdeals4u.trade/post/lego-ideas-sailboat-adventure-40487-factory-sealed-free-shipping)
-- [LEGO 76178 Daily Bugle Sealed](https://bestdeals4u.trade/post/lego-marvel-spider-man-daily-bugle-76178-new-sealed-retired-set-18)
-
-### 🃏 Pokémon Cards
-- [Pfl Phantasmal Flames Illustration PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2025-pokemon-pfl-en-phantasmal-flames-illustration-rare-106-meowth-psa-10)
-- [Market Review: Pikachu TG05 Lost Origin Trainer Gallery PSA 9 Pokemon Card](https://bestdeals4u.trade/post/pikachu-tg05-lost-origin-trainer-gallery-psa-9-pokemon-card)
+- [LEGO 76251 Star-Lord's Helmet Sealed](https://bestdeals4u.trade/post/lego-super-heroes-star-lord-s-helmet-76251-new-sealed-retired-rare)
+- [LEGO 42093 Chevrolet Corvette ZR1 Sealed](https://bestdeals4u.trade/post/lego-42093-technic-chevrolet-corvette-zr1-brand-new-sealed-box-free-shipping-nib)
 
 ### 🎮 Video Games
-- [Is This Tak The Great Juju Challenge Complete in Box Complete & Tested for a Good Deal Right Now?](https://bestdeals4u.trade/post/tak-the-great-juju-challenge-playstation-2-ps2-2005-cib-complete-tested)
-- [Tecmo Bowl for Nintendo Game Boy Complete](https://bestdeals4u.trade/post/tecmo-bowl-nintendo-game-boy-gameboy-complete-in-box-cib-tested)
+- [Super Smash Bros. Melee 2001 for Nintendo GameCube Manual Included](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-with-manual-tested)
+- [The Legend of Zelda 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-collector-s-edition-nintendo-gamecube-2003)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
