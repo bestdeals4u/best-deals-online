@@ -36,16 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kenny Fenelon 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/kenny-fenelon-2025-1st-bowman-chrome-auto-orange-refractor-25-psa-9-brewers-y6-4)
-- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-psa-9-2023-1st-bowman-chrome-auto-prospect-refractor-499-rc-z2)
+- [Sem Robberse 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-prospect-orange-refractor-23-25-sem-robberse-psa-10-auto-11oq)
+- [Aaron Blair 2013 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-draft-gold-refractor-17-50-aaron-blair-bgs-9-5-gem-mint-auto-2m4)
 
 ### 🧸 Funko Pops
-- [Wednesday Addams and Enid Sinclair ! 2 Pack NYCC Shared Funko Pop #1585 at $149.99, with recent sales closer to $195.01](https://bestdeals4u.trade/post/wednesday-addams-and-enid-sinclair-funko-pop-2-pack-1585-1586-nycc-shared)
-- [Market Review: Funko Pop! Vinyl Cowardly Lion 1515 Chase Edition The Wizard of Oz](https://bestdeals4u.trade/post/funko-pop-vinyl-cowardly-lion-1515-chase-edition-the-wizard-of-oz)
+- [Funko Pop, Derpy #01](https://bestdeals4u.trade/post/funko-pop-vinyl-my-little-pony-derpy-01-vaulted-protector)
+- [Is This Meryl Stryfe with Kuroneko - Trigun - 2024 NYCC Fall Convention Funko Pop #1684 a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-meryl-stryfe-with-kuroneko-1684-trigun-2024-nycc-fall-convention)
 
 ### 🧱 LEGO
-- [LEGO 76251 Star-Lord's Helmet Sealed](https://bestdeals4u.trade/post/lego-super-heroes-star-lord-s-helmet-76251-new-sealed-retired-rare)
-- [LEGO 42093 Chevrolet Corvette ZR1 Sealed](https://bestdeals4u.trade/post/lego-42093-technic-chevrolet-corvette-zr1-brand-new-sealed-box-free-shipping-nib)
+- [Neutral Review: New Lego 76399 Harry Potter Hogwarts Magical Trunk SEALED Retired Ceremony](https://bestdeals4u.trade/post/new-lego-76399-harry-potter-hogwarts-magical-trunk-sealed-retired-ceremony)
+- [LEGO 21052 Dubai Sealed](https://bestdeals4u.trade/post/lego-architecture-dubai-21052-new-sealed-retired)
+
+### 🃏 Pokémon Cards
+- [Clefairy Doll PSA 7 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/clefairy-doll-70-1999-pokemon-psa-7)
 
 ### 🎮 Video Games
 - [Super Smash Bros. Melee 2001 for Nintendo GameCube Manual Included](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-with-manual-tested)
