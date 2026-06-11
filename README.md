@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Shota Imanaga 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/shota-imanaga-2024-topps-chrome-rasi-rookie-auto-purple-250-psa-10-gem-mt-cubs)
-- [Shohei Ohtani 2018 Topps RC PSA 9](https://bestdeals4u.trade/post/2018-topps-series-2-baseball-shohei-ohtani-rookie-pitching-card-700-graded-psa-9)
+- [Market Review: Fleer 1984 Cal Ripken Jr. #17 PSA 10 GEM MT Baltimore Orioles Baseball Card](https://bestdeals4u.trade/post/fleer-1984-cal-ripken-jr-17-psa-10-gem-mt-baltimore-orioles-baseball-card)
+- [Hyeseong Kim 2025 Chrome Sapphire RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-sapphire-hyeseong-kim-rc-green-refractor-auto-99-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop! Teddy Francisco #103 New Bobs Burgers Grail RETIRED RARE TEDDY 103](https://bestdeals4u.trade/post/funko-pop-teddy-francisco-103-new-bobs-burgers-grail-retired-rare-teddy-103)
-- [Funko Pop, Speed Racer #737 Chase](https://bestdeals4u.trade/post/funko-pop-speed-racer-737-chase-nightmare-variant-vaulted-mint-w-protect)
+- [Funko Pop, Zuko #538 Chase](https://bestdeals4u.trade/post/funko-pop-avatar-the-last-airbender-zuko-538-chase-limited-edition-vinyl)
+- [Market Snapshot: Wolverine #1576 2026 ECCC Exclusive Funko Pop](https://bestdeals4u.trade/post/wolverine-1576-le-5000-pcs-2026-eccc-spring-con-le-exclusive-x-men-funko-pop)
 
 ### 🧱 LEGO
-- [LEGO 31120 Medieval Castle Sealed](https://bestdeals4u.trade/post/lego-31120-creator-medieval-castle-new-sealed-retired)
-- [LEGO 7751 Ahsoka's Starfighter and Vulture Droid Sealed](https://bestdeals4u.trade/post/lego-7751-star-wars-ahsoka-s-starfighter-vulture-droid-new-sealed-nib-retired)
+- [LEGO 42155 The Batman - Batcycle Sealed](https://bestdeals4u.trade/post/lego-technic-the-batman-batcycle-42155-building-set-641-pcs-new-sealed-box)
+- [LEGO 21318 Tree House Sealed](https://bestdeals4u.trade/post/lego-21318-ideas-tree-house-new-factory-sealed-retired-set)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+- [Is This Mewtwo Carddass Vending Prism PSA8 a Good Buy?](https://bestdeals4u.trade/post/mewtwo-pokemon-tcg-carddass-vending-prism-1996-japanese-psa8-vintage-green-rare)
+- [Market Review: 2025 Pokémon M24 McDonald's Collection #009 Umbreon PSA 9](https://bestdeals4u.trade/post/2025-pokemon-m24-en-mcdonald-s-collection-009-umbreon-psa-9)
 
 ### 🎮 Video Games
+- [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
 - [Sony HB-10 MSX Home Computer Keyboard (Used, Listing 232917)](https://bestdeals4u.trade/post/sony-hb-10-msx-home-computer-keyboard-pc-no-232917-made-in-japan-retro-vintage)
-- [Market Review: Pokemon TCG Mega Dream Ex M2a Booster Box Japanese IN STOCK - FACTORY SEALED](https://bestdeals4u.trade/post/pokemon-tcg-mega-dream-ex-m2a-booster-box-japanese-in-stock-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
