@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Joshua Baez 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/joshua-baez-2022-bowman-chrome-cpajb-1st-true-blue-refractor-auto-150-psa-9)
-- [Terrin Vavra 2019 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-83-99-terrin-vavra-psa-9-auto-w5p)
+- [Carl Yastrzemski Topps SGC 2 Vintage - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/1972-carl-yastrzemski-topps-37-sgc-2-vintage-baseball-card)
+- [Market Review: 1955 TOPPS Baseball Card #155 ED Eddie MATHEWS Milwaukee Braves SGC 4.5](https://bestdeals4u.trade/post/1955-topps-baseball-card-155-ed-eddie-mathews-milwaukee-braves-sgc-4-5)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko POP! Movies RoboCop 2 RoboCop #1989 (Metallic) Chase](https://bestdeals4u.trade/post/funko-pop-movies-robocop-2-robocop-1989-metallic-chase)
-- [Vinyl: The Smurfs - Smurfette w/Protector Funko Pop #1516 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/funko-pop-vinyl-the-smurfs-smurfette-1516-w-protector)
+- [Vinyl Chase Jinu Kpop Demon Hunters with Patterns Funko Pop #2259 at $34.99, with recent sales closer to $39.28](https://bestdeals4u.trade/post/funko-pop-vinyl-chase-jinu-kpop-demon-hunters-with-patterns-2259)
+- [Funko Pop, Spikey #933 Exclusive](https://bestdeals4u.trade/post/funko-pop-933-spikey-blacklight-killer-klowns-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 10269 Harley-Davidson Fat Boy Sealed](https://bestdeals4u.trade/post/lego-creator-expert-harley-davidson-fat-boy-10269-new-sealed-retired-set-bike)
-- [LEGO 75355 X-Wing Starfighter Sealed](https://bestdeals4u.trade/post/lego-75355-star-wars-ucs-x-wing-starfighter-new-factory-sealed)
+- [LEGO 21107 Micro World – the End Sealed](https://bestdeals4u.trade/post/retired-lego-21107-minecraft-micro-world-the-end-brand-new-factory-sealed)
+- [LEGO 10271 Fiat 500 Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10271-fiat-500-retired-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: PSA 10 Umbreon V Alt Art 189/203 Evolving Skies Ultra Rare Pokemon 2021](https://bestdeals4u.trade/post/psa-10-umbreon-v-alt-art-189-203-evolving-skies-ultra-rare-pokemon-2021)
-- [Is This Mewtwo Carddass Vending Prism PSA8 a Good Buy?](https://bestdeals4u.trade/post/mewtwo-pokemon-tcg-carddass-vending-prism-1996-japanese-psa8-vintage-green-rare)
+- [Obf Ultra Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2023-pokemon-obf-en-obsidian-flames-ultra-rare-215-charizard-ex-psa-gem-mt-10)
+- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
-- [Market Review: Battlezone Atari 2600 Wata 7.0 Factory Sealed](https://bestdeals4u.trade/post/graded-game-battlezone-wata-7-0-b-atari-2600-factory-sealed-brand-new)
-- [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
+- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
+- [Yoshi's Cookie for SUPER NES Complete](https://bestdeals4u.trade/post/yoshi-s-cookie-super-nintendo-snes-complete-in-box-cib)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
