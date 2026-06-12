@@ -36,19 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Scott Kingery 2018 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2018-chrome-rookie-blue-refractor-33-150-scott-kingery-psa-10-gem-mt-auto-a2k)
-- [Mickey Moniak 2021 Panini Prizm RC PSA 10](https://bestdeals4u.trade/post/2021-panini-prizm-mickey-moniak-rc-teal-wave-prizm-rookie-auto-50-psa-10-pop-1)
+- [Spencer Horwitz 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/spencer-horwitz-2024-topps-chrome-rc-auto-gold-wave-refractor-50-psa-10)
+- [Alex Freeland 2022 Bowman Draft RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-alex-freeland-chrome-1st-rc-auto-150-blue-refractor-psa-10-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mercy #411 Exclusive](https://bestdeals4u.trade/post/rare-funko-pop-overwatch-mercy-witch-blizzard-exclusive-411-w-protector)
-- [Thinking About Buying Jewelry Bonney Glow Chase One Piece Figure 2255 Funko Pop? Read This First](https://bestdeals4u.trade/post/funko-pop-jewelry-bonney-glow-chase-one-piece-figure-2255)
+- [Funko Pop, Mr. Burns #1162 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-1162-glowing-mr-burns-the-simpsons-chase-px-exclusive-w-protector)
+- [Market Review: FUNKO POP! Inosuke Hashibira #875 (Flocked Chase)](https://bestdeals4u.trade/post/funko-pop-inosuke-hashibira-875-flocked-chase-bryce-papenbrook)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 75368 Darth Vader Mech Sealed](https://bestdeals4u.trade/post/lego-75368-star-wars-darth-vader-mech-new-sealed-retired-fs)
+- [LEGO Speed Champions Mercedes AMG Petronas Formula One Team (75883) New Retired: Condition, Value, and Listing Overview](https://bestdeals4u.trade/post/lego-speed-champions-mercedes-amg-petronas-formula-one-team-75883-new-retired)
+- [LEGO 10243 Parisian Restaurant Sealed](https://bestdeals4u.trade/post/lego-10243-creator-expert-parisian-restaurant-modular-nisb-ships-free)
+
+### 🃏 Pokémon Cards
+- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
+- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-3)
 
 ### 🎮 Video Games
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
