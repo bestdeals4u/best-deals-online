@@ -35,7 +35,25 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 <!-- RSS:START -->
 ## Latest from BestDeals4U.trade
 
-- No posts found.
+### ⚾ Baseball Cards
+- [Tarik Skubal 2022 Topps Chrome PSA 8](https://bestdeals4u.trade/post/2022-topps-chrome-tarik-skubal-blue-ray-wave-refractor-108-150-psa-9-auto-8)
+- [Jacob Wilson 2023 Bowman's Best PSA 9](https://bestdeals4u.trade/post/topps-2023-bowman-s-best-jacob-wilson-blue-refractor-auto-150-psa-9-athletics)
+
+### 🧸 Funko Pops
+- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
+- [Funko Pop Prince #79 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-prince-purple-rain-diamond-fye-exclusive-79-w-protector)
+
+### 🧱 LEGO
+- [LEGO 21318 Tree House Sealed](https://bestdeals4u.trade/post/lego-ideas-tree-house-21318-brand-new-sealed-in-box)
+- [LEGO 75225 Elite Praetorian Guard Battle Pack Sealed](https://bestdeals4u.trade/post/lego-star-wars-elite-praetorian-guard-battle-pack-75225-sealed-retired-2019)
+
+### 🃏 Pokémon Cards
+- [Venusaur PSA 7 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/psa-7-venusaur-15-102-base-set-pokemon-card-mint)
+- [Team Rockets Mewtwo Destined PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/team-rockets-mewtwo-ex-psa-10-english-pokemon-card-240-destined-rivals-gold-2025)
+
+### 🎮 Video Games
+- [Is This Super Monkey Ball 2 (2002) for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/super-monkey-ball-2-nintendo-gamecube-2002-nintendo-gamecube)
+
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
 
