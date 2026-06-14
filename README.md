@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Tarik Skubal 2022 Topps Chrome PSA 8](https://bestdeals4u.trade/post/2022-topps-chrome-tarik-skubal-blue-ray-wave-refractor-108-150-psa-9-auto-8)
-- [Jacob Wilson 2023 Bowman's Best PSA 9](https://bestdeals4u.trade/post/topps-2023-bowman-s-best-jacob-wilson-blue-refractor-auto-150-psa-9-athletics)
+- [Konnor Pilkington 2019 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-prospects-refractor-499-konnor-pilkington-bgs-9-5-auto-8at)
+- [Luke Adams 2024 Bowman PSA 9](https://bestdeals4u.trade/post/luke-adams-2024-1st-bowman-chrome-auto-mini-diamond-refractor-100-psa-9-mint-h6)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
 - [Funko Pop Prince #79 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-prince-purple-rain-diamond-fye-exclusive-79-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 21318 Tree House Sealed](https://bestdeals4u.trade/post/lego-ideas-tree-house-21318-brand-new-sealed-in-box)
-- [LEGO 75225 Elite Praetorian Guard Battle Pack Sealed](https://bestdeals4u.trade/post/lego-star-wars-elite-praetorian-guard-battle-pack-75225-sealed-retired-2019)
+- [LEGO Harry Potter 76388 Hogsmeade Village Visit at $77.95, below recent comps](https://bestdeals4u.trade/post/lego-harry-potter-76388-hogsmeade-village-visit-retired-new-factory-sealed)
+- [LEGO 75322 Hoth AT-ST Sealed](https://bestdeals4u.trade/post/lego-star-wars-hoth-at-st-75322-nisb-retired)
 
 ### 🃏 Pokémon Cards
+- [Mewtwo Promo Pokken PSA 9](https://bestdeals4u.trade/post/psa-9-shadow-dark-mewtwo-pokken-tournament-japanese-pokemon-card-2016)
 - [Venusaur PSA 7 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/psa-7-venusaur-15-102-base-set-pokemon-card-mint)
-- [Team Rockets Mewtwo Destined PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/team-rockets-mewtwo-ex-psa-10-english-pokemon-card-240-destined-rivals-gold-2025)
 
 ### 🎮 Video Games
+- [Market Review: Complete SpongeBob SquarePants Movie (Nintendo GameCube, 2004) CIB Tested Works](https://bestdeals4u.trade/post/complete-spongebob-squarepants-movie-nintendo-gamecube-2004-cib-tested-works)
 - [Is This Super Monkey Ball 2 (2002) for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/super-monkey-ball-2-nintendo-gamecube-2002-nintendo-gamecube)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
