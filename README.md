@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Konnor Pilkington 2019 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-prospects-refractor-499-konnor-pilkington-bgs-9-5-auto-8at)
-- [Luke Adams 2024 Bowman PSA 9](https://bestdeals4u.trade/post/luke-adams-2024-1st-bowman-chrome-auto-mini-diamond-refractor-100-psa-9-mint-h6)
+- [Kyle Teel 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-kyle-teel-1st-chrome-prospect-auto-hta-choice-ref-150-rc-psa-10)
+- [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cooper-pratt-chrome-1st-purple-refractor-auto-250-psa-10-autograph)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Him #202 Chase](https://bestdeals4u.trade/post/funko-pop-vinyl-him-202-chase-with-protector)
-- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
+- [Funko Pop, Vinsmoke Sanji #2346 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-sanji-in-raid-suit-glow-2346-one-piece-exclusive-protector-presale)
+- [Funko Pop, Punisher #216 Chase](https://bestdeals4u.trade/post/funko-pop-marvel-daredevil-punisher-216-chase-vinyl-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 40595 Tribute to Galileo Galilei Sealed](https://bestdeals4u.trade/post/lego-ideas-40595-tribute-to-galileo-galilei-brand-new-factory-sealed-2)
-- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box-see-shipping-note)
+- [LEGO 21321 International Space Station Sealed](https://bestdeals4u.trade/post/lego-ideas-21321-international-space-station-new-sealed-retired-nasa-iss-864pcs)
+- [LEGO 71720 Fire Stone Mech Sealed](https://bestdeals4u.trade/post/lego-fire-stone-mech-ninjago-71720-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Mewtwo Promo Pokken PSA 9](https://bestdeals4u.trade/post/psa-9-shadow-dark-mewtwo-pokken-tournament-japanese-pokemon-card-2016)
-- [Venusaur PSA 7 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/psa-7-venusaur-15-102-base-set-pokemon-card-mint)
+- [Market Review: 2025 POKEMON DRI EN-DESTINED RIVALS ULTRA RARE TEAM ROCKET'S MEWTWO EX PSA 10](https://bestdeals4u.trade/post/2025-pokemon-dri-en-destined-rivals-ultra-rare-team-rocket-s-mewtwo-ex-psa-10)
+- [Holo Shiny Star V PSA 9 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/psa-9-gengar-holo-071-190-shiny-star-v-s4a-pokemon-card-japanese)
 
 ### 🎮 Video Games
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib-complete-tested)
 - [Is This WD SN850P 4TB NVMe M.2 SSD for PlayStation 5 (Black) WDBBYV0040BNC-WRSN (sealed) a Good Deal Right Now?](https://bestdeals4u.trade/post/wd-sn850p-4tb-nvme-m-2-ssd-for-playstation-5-black-wdbbyv0040bnc-wrsn-sealed)
-- [Market Review: Complete SpongeBob SquarePants Movie (Nintendo GameCube, 2004) CIB Tested Works](https://bestdeals4u.trade/post/complete-spongebob-squarepants-movie-nintendo-gamecube-2004-cib-tested-works)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
