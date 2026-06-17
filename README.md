@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nick Lodolo 2019 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2019-bowman-draft-chrome-pick-refractor-499-nick-lodolo-psa-10-gem-mt-auto-3r1)
-- [Marco Dinges 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-1st-marco-dinges-refractor-auto-499-psa-10-2)
+- [Yordan Alvarez 2020 Topps RC PSA 9](https://bestdeals4u.trade/post/2020-topps-brooklyn-coll-yordan-alvarez-rc-yaz-auto-75-psa-9-ssp)
+- [Shohei Ohtani PSA9 2017 BBM Batting/Secret Rookie Used Japan Price Check - Worth It or Not?](https://bestdeals4u.trade/post/shohei-ohtani-psa9-2017-bbm-baseball-card-batting-secret-rookie-used-japan)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop Soda Two-Face (Metallic) 1/2300 CHASE 2022 Hot Topic Expo Exclusive](https://bestdeals4u.trade/post/funko-pop-soda-two-face-metallic-1-2300-chase-2022-hot-topic-expo-exclusive)
-- [My Hero Academia Burnin FYE Exclusive Glow Chase Funko Pop #1148 at $145.00, with recent sales closer to $175.92](https://bestdeals4u.trade/post/funko-pop-my-hero-academia-burnin-fye-exclusive-1148-glow-chase)
+- [Dwight Shrute The Office, And Ron With Baxter Anchorman. Funko Pop Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/funko-pop-dwight-shrute-1009-the-office-and-ron-with-baxter-946-anchorman)
+- [Funko Pop, Splinter #58 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-tmnt-58-splinter-target-exclusive-w-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 42107 Ducati Panigale V4 R Sealed](https://bestdeals4u.trade/post/lego-technic-ducati-panigale-v4-r-42107-retired-brand-new-sealed)
-- [LEGO 75341 Luke Skywalker’s Landspeeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-luke-skywalker-s-landspeeder-75341-retired-new-sealed)
+- [LEGO 6473145 Flower Trellis Display Sealed](https://bestdeals4u.trade/post/lego-40683-flower-trellis-display-new-sealed-retired)
+- [LEGO 21334 Jazz Quartet Sealed](https://bestdeals4u.trade/post/lego-ideas-jazz-quartet-21334-new-in-sealed-box-free-shipping-box-not-perfect)
 
 ### 🃏 Pokémon Cards
+- [Is This Mewtwo Svp Ultra-Premium PSA 9 a Good Buy?](https://bestdeals4u.trade/post/mewtwo-052-psa-9-pokemon-svp-promo-151-ultra-premium-collection)
 - [Shadowless 1st Edition Charizard CGC 9 Mint](https://bestdeals4u.trade/post/pokemon-1st-edition-base-set-shadowless-charizard-4-102-holo-rare-cgc-9-mint)
-- [M Charizard EX Ultra Rare Evolutions PSA 10](https://bestdeals4u.trade/post/2016-pokemon-xy-evolutions-101-fa-m-charizard-ex-evolutions-psa-9)
+
+### 🎮 Video Games
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
