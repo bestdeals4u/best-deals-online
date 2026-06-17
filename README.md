@@ -36,24 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jackson Chourio 2024 Topps Inception RC SGC 10](https://bestdeals4u.trade/post/2024-topps-inception-jackson-chourio-green-rookie-auto-125-sgc-10-brewers-rc)
-- [A.J. Puk 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-18-99-aj-puk-bgs-9-5-auto-2a9)
+- [Nick Lodolo 2019 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2019-bowman-draft-chrome-pick-refractor-499-nick-lodolo-psa-10-gem-mt-auto-3r1)
+- [Marco Dinges 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-1st-marco-dinges-refractor-auto-499-psa-10-2)
 
 ### 🧸 Funko Pops
-- [Funko Pop Romeo #708 Chase](https://bestdeals4u.trade/post/funko-pop-romeo-juliet-vinyl-figure-chase-708-limited-edition-vaulted)
-- [Is Batman (Bat-Manga!) ECCC 2026 Exclusive IN HAND Funko Pop #621 LE 5000 Priced Fairly at $59.99?](https://bestdeals4u.trade/post/funko-pop-batman-bat-manga-eccc-2026-exclusive-le-5000-in-hand-621)
+- [Market Review: Funko Pop Soda Two-Face (Metallic) 1/2300 CHASE 2022 Hot Topic Expo Exclusive](https://bestdeals4u.trade/post/funko-pop-soda-two-face-metallic-1-2300-chase-2022-hot-topic-expo-exclusive)
+- [My Hero Academia Burnin FYE Exclusive Glow Chase Funko Pop #1148 at $145.00, with recent sales closer to $175.92](https://bestdeals4u.trade/post/funko-pop-my-hero-academia-burnin-fye-exclusive-1148-glow-chase)
 
 ### 🧱 LEGO
-- [LEGO 21189 The Skeleton Dungeon Sealed](https://bestdeals4u.trade/post/lego-21189-minecraft-the-skeleton-dungeon-new-sealed-retired)
-- [LEGO 4440 Police Station Sealed](https://bestdeals4u.trade/post/2012-lego-city-4440-forest-police-station-retired-new-sealed-unopened)
+- [LEGO 42107 Ducati Panigale V4 R Sealed](https://bestdeals4u.trade/post/lego-technic-ducati-panigale-v4-r-42107-retired-brand-new-sealed)
+- [LEGO 75341 Luke Skywalker’s Landspeeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-luke-skywalker-s-landspeeder-75341-retired-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [Shadowless 1st Edition Charizard CGC 9 Mint](https://bestdeals4u.trade/post/pokemon-1st-edition-base-set-shadowless-charizard-4-102-holo-rare-cgc-9-mint)
 - [M Charizard EX Ultra Rare Evolutions PSA 10](https://bestdeals4u.trade/post/2016-pokemon-xy-evolutions-101-fa-m-charizard-ex-evolutions-psa-9)
-- [Thinking About Buying Pikachu V PSA 9? Read This First](https://bestdeals4u.trade/post/2022-pokemon-sword-shield-lost-origin-tg16-full-art-pikachu-v-psa-9)
-
-### 🎮 Video Games
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
