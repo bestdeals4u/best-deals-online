@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Émilien Pitre 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/milien-pitre-rc-499-1st-rookie-auto-refractor-2025-bowman-cpa-epi-psa-9)
-- [Colt Keith 2024 Finest PSA 9](https://bestdeals4u.trade/post/2024-topps-finest-baseball-colt-keith-fa-ck-auto-purple-refractor-125-psa-9)
+- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
+- [Junior Fernandez 2016 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-chrome-gold-refractor-3-50-junior-fernandez-bgs-9-5-auto-0t2)
 
 ### 🧸 Funko Pops
-- [KPop Demon Hunters Rumi Glow Chase Funko Pop #2430 at $57.00, with recent sales closer to $74.96](https://bestdeals4u.trade/post/funko-pop-kpop-demon-hunters-rumi-2430-glow-chase)
-- [Funko Bitty Pop JAN LEVINSON The Office TV Television 1/6 HYPER CHASE Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/funko-bitty-pop-jan-levinson-the-office-1047-tv-television-1-6-hyper-rare-chase)
+- [Funko Pop, Shrek #278 Exclusive](https://bestdeals4u.trade/post/funko-pop-shrek-278-chalice-collectible-exclusive-le9000-with-pop-protector)
+- [Brass Dragon Wyrmling ECCC 2026 Con Exclusive IN Funko Pop #1201 LE 8000 at $30.00, below recent comps](https://bestdeals4u.trade/post/brass-dragon-wyrmling-funko-pop-1201-eccc-2026-con-exclusive-le-8000-in-hand)
 
 ### 🧱 LEGO
-- [LEGO Harry Potter Hogwarts Wizard's Chess Set 76392 876 New Sealed Ret at $115.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-wizard-s-chess-set-76392-876-new-sealed-retired-nib)
-- [LEGO 21027 Berlin Sealed](https://bestdeals4u.trade/post/lego-21027-architecture-berlin-skyline-new-in-sealed-box-retired-2017-germany-3)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 60264 Ocean Exploration Submarine Sealed](https://bestdeals4u.trade/post/lego-60264-city-new-ocean-exploration-submarine-sealed-see-shipping-note)
 
 ### 🃏 Pokémon Cards
-- [Mega Evolution Mega Gardevoir PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-special-illustration-rare-mega-gardevoir-ex-psa-10)
-- [Market Review: Mewtwo - 1999 Holo Rare Shadowless PSA 6](https://bestdeals4u.trade/post/mewtwo-10-102-1999-holo-rare-base-set-shadowless-pokemon-card-psa-6)
+- [Cards PSA 7 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pokemon-cards-psa-7-shadowless-hitmonchan-7-102)
+- [Thinking About Buying GEM Dark Feraligatr HOLO PSA 9? Read This First](https://bestdeals4u.trade/post/psa-9-gem-mint-dark-feraligatr-5-105-holo-neo-destiny-1st-edition-pokemon-card)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
