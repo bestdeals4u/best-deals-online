@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kyle Teel 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-kyle-teel-cpa-kt-purple-refractor-250-auto-rc-psa-10)
-- [James Wood 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/james-wood-2025-topps-chrome-rc-auto-orange-refractor-25-silver-pack-psa-9-y6)
+- [Yairo Padilla 2025 Chrome RC PSA 10](https://bestdeals4u.trade/post/yairo-padilla-2025-bowman-chrome-reptilian-blue-refractor-auto-rc-150-psa-10)
+- [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mercy #304 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-overwatch-mercy-cobalt-gamestop-exclusive-304-w-protector)
-- [Funko Pop, Negan #390](https://bestdeals4u.trade/post/funko-pop-the-walking-dead-negan-390-vinyl-figure-mib-vaulted-w-protector)
+- [Funko Bitty Pop JAN LEVINSON The Office TV Television 1/6 HYPER CHASE Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/funko-bitty-pop-jan-levinson-the-office-1047-tv-television-1-6-hyper-rare-chase)
+- [Funko Pop, Rumi #2430 Chase Glow](https://bestdeals4u.trade/post/funko-pop-kpop-demon-hunters-rumi-2430-glow-chase-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 10306 Atari 2600 Sealed](https://bestdeals4u.trade/post/lego-icons-atari-2600-video-computer-system-10306-new-in-sealed-box)
-- [LEGO 10257 Carousel Sealed](https://bestdeals4u.trade/post/lego-creator-expert-fairground-carousel-10257-retired-factory-sealed-box)
+- [LEGO 31129 Majestic Tiger Sealed](https://bestdeals4u.trade/post/lego-31129-creator-majestic-tiger-3-in-1-new-factory-sealed-in-box-retired)
+- [LEGO 40697 Halloween Pumpkin Sealed](https://bestdeals4u.trade/post/lego-40697-halloween-pumpkin-new-retired-sealed-limited-edition)
 
 ### 🃏 Pokémon Cards
-- [Is Jolteon Gold Star PSA 1 Priced Fairly at $949.99?](https://bestdeals4u.trade/post/pokemon-jolteon-gold-star-101-108-power-keepers-psa-1)
-- [Topps Chrome PSA 10 at $499.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/2000-topps-chrome-pokemon-t-v-93-haunter-psa-10-gem-mint-low-pop-modern-grade)
+- [Market Review: Mewtwo - 1999 Holo Rare Shadowless PSA 6](https://bestdeals4u.trade/post/mewtwo-10-102-1999-holo-rare-base-set-shadowless-pokemon-card-psa-6)
+- [Mime Holo Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-mr-mime-holo-jungle-set-1999-wizards-of-the-coast-cgc-5-ex)
 
 ### 🎮 Video Games
 - [Baten Kaitos Origins 2006 for Nintendo GameCube](https://bestdeals4u.trade/post/baten-kaitos-origins-nintendo-gamecube-2006)
-- [Super Monkey Ball, Super Monkey Ball 2 2001, 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/nintendo-gamecube-super-monkey-ball-super-monkey-ball-2-complete-with-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
