@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Max Meyer 2020 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2020-bowman-chrome-draft-max-meyer-blue-refractor-auto-rc-150-psa-9-mint)
-- [Bralyn Brazoban 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-bralyn-brazoban-auto-refractor-d-499-psa-9-rc-pirates)
+- [Kyle Teel 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-kyle-teel-cpa-kt-purple-refractor-250-auto-rc-psa-10)
+- [James Wood 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/james-wood-2025-topps-chrome-rc-auto-orange-refractor-25-silver-pack-psa-9-y6)
 
 ### 🧸 Funko Pops
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-2)
-- [Funko Pop, Trix Rabbit #10 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-ad-icons-trix-rabbit-10-flocked-limited-edition-funko-shop-exclusive)
+- [Funko Pop, Mercy #304 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-overwatch-mercy-cobalt-gamestop-exclusive-304-w-protector)
+- [Funko Pop, Negan #390](https://bestdeals4u.trade/post/funko-pop-the-walking-dead-negan-390-vinyl-figure-mib-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 71004 Complete of 16 - The Movie Collectible Minifigures Sealed](https://bestdeals4u.trade/post/new-sealed-complete-set-of-16-71004-the-lego-movie-collectible-minifigures)
-- [LEGO 75308 R2-D2 Sealed](https://bestdeals4u.trade/post/lego-75308-star-wars-r2-d2-brand-new-factory-sealed)
+- [LEGO 10306 Atari 2600 Sealed](https://bestdeals4u.trade/post/lego-icons-atari-2600-video-computer-system-10306-new-in-sealed-box)
+- [LEGO 10257 Carousel Sealed](https://bestdeals4u.trade/post/lego-creator-expert-fairground-carousel-10257-retired-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Thinking About Buying Light Togetic Vintage Holo PSA 6? Read This First](https://bestdeals4u.trade/post/pokemon-light-togetic-15-105-neo-destiny-vintage-holo-psa-6-perfect-swirl)
-- [Is This Mewtwo Svp Ultra-Premium PSA 9 a Good Buy?](https://bestdeals4u.trade/post/mewtwo-052-psa-9-pokemon-svp-promo-151-ultra-premium-collection)
+- [Is Jolteon Gold Star PSA 1 Priced Fairly at $949.99?](https://bestdeals4u.trade/post/pokemon-jolteon-gold-star-101-108-power-keepers-psa-1)
+- [Topps Chrome PSA 10 at $499.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/2000-topps-chrome-pokemon-t-v-93-haunter-psa-10-gem-mint-low-pop-modern-grade)
 
 ### 🎮 Video Games
+- [Baten Kaitos Origins 2006 for Nintendo GameCube](https://bestdeals4u.trade/post/baten-kaitos-origins-nintendo-gamecube-2006)
 - [Super Monkey Ball, Super Monkey Ball 2 2001, 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/nintendo-gamecube-super-monkey-ball-super-monkey-ball-2-complete-with-manual)
-- [Market Review: Final Fantasy IX Greatest Hits CGC 9.2 A++ Sealed PS1](https://bestdeals4u.trade/post/final-fantasy-ix-greatest-hits-cgc-graded-9-2-a-sealed-ps1-sony-playstation)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
