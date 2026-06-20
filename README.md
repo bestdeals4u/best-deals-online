@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Quinn Priester 2019 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2019-bowman-draft-gold-wave-refractor-46-50-quinn-priester-psa-9-mint-auto-1q7)
-- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
+- [Mac Horvath 2023 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2023-bowman-draft-hta-choice-refractor-150-mac-horvath-psa-10-gem-mt-auto-0ok8)
+- [Lisbel Diaz 2024 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-lisbel-diaz-150-1st-rc-auto-blue-ref-cpa-ldi-psa-10)
 
 ### 🧸 Funko Pops
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Funko Pop, Ken Kaneki #61 GITD](https://bestdeals4u.trade/post/funko-pop-tokyo-ghoul-ken-kaneki-61-gitd-special-edition-new-protector)
+- [Is This Care Bears Share Bear 2024 Fall Convention Funko Pop #1417 a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-care-bears-share-bear-2024-fall-convention-1417)
 
 ### 🧱 LEGO
-- [Lego 10293 Santa's Visit - Winter Village Collection](https://bestdeals4u.trade/post/lego-10293-santa-s-visit-winter-village-collection-brand-new-sealed)
-- [LEGO 10227 B-wing Starfighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-b-wing-starfighter-10227-new-sealed-retired)
+- [LEGO 10224 Town Hall Sealed](https://bestdeals4u.trade/post/lego-creator-expert-town-hall-10224-retired-factory-sealed-box)
+- [LEGO 75292 The Razor Crest Sealed](https://bestdeals4u.trade/post/lego-star-wars-the-razor-crest-75292-retired-set-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
 - [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
+- [Metal Slug Tactics - Nintendo Switch Fast Shipping - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/metal-slug-tactics-nintendo-switch-brand-new-sealed-fast-shipping)
 - [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
-- [Is This Turok: Evolution (2002) No Manual for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/turok-evolution-nintendo-gamecube-2002-no-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
