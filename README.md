@@ -36,20 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Leo De Vries 2025 Bowman PSA 10](https://bestdeals4u.trade/post/2025-bowman-leo-de-vries-chrome-prospect-auto-purple-refractor-250-psa-10)
-- [Market Review: Roki Sasaki 2025 Topps Chrome Refractor Dodgers Baseball Card Used](https://bestdeals4u.trade/post/roki-sasaki-2025-topps-chrome-refractor-dodgers-baseball-card-used)
+- [Is This Topps Buc Belters Willie Stargell Clendenon Sgc 8.5 Nm/Mt a Good Buy?](https://bestdeals4u.trade/post/1966-topps-99-buc-belters-willie-stargell-clendenon-baseball-card-sgc-8-5-nm-mt)
+- [Is This Joe Mauer signed 2002 Topps Baseball Rookie Card PSA auth slab Rookie Card a Good Deal Right Now?](https://bestdeals4u.trade/post/joe-mauer-signed-2002-topps-baseball-rookie-card-622-psa-auth-slab-rc)
 
 ### 🧸 Funko Pops
 - [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 - [Funko Pop, Bon Clay #2235 Chase](https://bestdeals4u.trade/post/funko-pop-one-piece-2235-bon-clay-chase-limited-edition-protector)
 
 ### 🧱 LEGO
-- [LEGO 75343 Dark Trooper Helmet Sealed](https://bestdeals4u.trade/post/lego-star-wars-dark-trooper-75343-retired-new-sealed-box)
-- [LEGO 40172 Brick Calendar 2017 Sealed](https://bestdeals4u.trade/post/lego-iconic-40172-brick-calendar-brand-new-sealed-retired-rare-great-box-278-pcs)
+- [LEGO 76013 Batman: the Joker Steam Roller Sealed](https://bestdeals4u.trade/post/lego-batman-the-joker-steam-roller-76013-batgirl-new-factory-sealed-retired)
+- [LEGO 21318 Tree House Sealed](https://bestdeals4u.trade/post/lego-ideas-tree-house-21318-brand-new-factory-sealed-retired-set-rare-look-2)
+
+### 🃏 Pokémon Cards
+- [Shining Raichu - 2002 Neo Destiny/105 PSA GEM MT 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/shining-raichu-2002-neo-destiny-111-105-psa-gem-mt-10)
+- [Is Mega Art Gengar Holo Priced Fairly at $108.46?](https://bestdeals4u.trade/post/pokemon-jp-2025-mega-dream-230-mega-art-rare-gengar-holo-ace-gem-mint-10)
 
 ### 🎮 Video Games
-- [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
-- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
+- [Omikron: The Nomad Soul for Sega Dreamcast Complete](https://bestdeals4u.trade/post/omikron-the-nomad-soul-sega-dreamcast-cib-complete-in-box-tested)
+- [Wario World 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/wario-world-nintendo-gamecube-2003-e-everyone-ntsc-u-c-manual-included)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
