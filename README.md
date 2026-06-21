@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Mac Horvath 2023 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2023-bowman-draft-hta-choice-refractor-150-mac-horvath-psa-10-gem-mt-auto-0ok8)
-- [Lisbel Diaz 2024 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-lisbel-diaz-150-1st-rc-auto-blue-ref-cpa-ldi-psa-10)
+- [Jonathan Aranda 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-rookie-auto-jonathan-aranda-purple-refractor-250-psa-10)
+- [Jordan Lawlar 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/jordan-lawlar-2024-topps-chrome-rc-auto-blue-refractor-150-psa-9-ra-jla-t6-4)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Ken Kaneki #61 GITD](https://bestdeals4u.trade/post/funko-pop-tokyo-ghoul-ken-kaneki-61-gitd-special-edition-new-protector)
-- [Is This Care Bears Share Bear 2024 Fall Convention Funko Pop #1417 a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-care-bears-share-bear-2024-fall-convention-1417)
+- [Funko Pop, Bon Clay #2235 Chase](https://bestdeals4u.trade/post/funko-pop-one-piece-2235-bon-clay-chase-limited-edition-protector)
+- [Funko Pop, Will Byers #29 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-stranger-things-will-29-8-bit-target-exclusive-chase-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 10224 Town Hall Sealed](https://bestdeals4u.trade/post/lego-creator-expert-town-hall-10224-retired-factory-sealed-box)
-- [LEGO 75292 The Razor Crest Sealed](https://bestdeals4u.trade/post/lego-star-wars-the-razor-crest-75292-retired-set-new-in-sealed-box)
+- [LEGO 4193 The London Escape Sealed](https://bestdeals4u.trade/post/lego-pirates-of-the-caribbean-4193-the-london-escape-new-sealed-retired)
+- [LEGO Star Wars: BD - 1 (75335) ~/ ~ at $170.00, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-bd-1-75335-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
-- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
+- [Gengar Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/gengar-poke-ball-0302-07-gem-pack-vol-3-chinese-pokemon-tcg)
 
 ### 🎮 Video Games
-- [Metal Slug Tactics - Nintendo Switch Fast Shipping - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/metal-slug-tactics-nintendo-switch-brand-new-sealed-fast-shipping)
-- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
+- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
+- [SNES Jimmy Connor's Pro Tennis Tour (Super Nintendo) CGC 8.0 WATA VGA PSA Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/snes-jimmy-connor-s-pro-tennis-tour-super-nintendo-sealed-cgc-8-0-wata-vga-psa)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
