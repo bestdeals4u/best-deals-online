@@ -36,20 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Colton Cowser 2021 Bowman's Best RC PSA 9](https://bestdeals4u.trade/post/topps-2021-bowman-s-best-colton-cowser-bfva-cc-psa-9-auto-rc-80)
-- [Josh Jung 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/topps-2023-chrome-josh-jung-ra-jj-rookie-auto-blue-refractor-150-sgc-10)
+- [Market Review: 1964 Topps Braves Rookies Phil Niekro Phil Roof Rookie PSA 5 #541 Baseball Card](https://bestdeals4u.trade/post/1964-topps-braves-rookies-phil-niekro-phil-roof-rookie-psa-5-541-baseball-card)
+- [Carter Johnson 2025 Bowman Mega Box Bowman Prospect Mega Autographs PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-carter-johnson-1st-auto-blue-mojo-refractor-150-psa-10-pop-1)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mr. Knight #1048 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-moon-knight-mr-knight-1048-gitd-walmart-exclusive)
-- [Is NEW Sealed! Groundhog Day Game Punxsutawney Phil Flocked 1046 Vaulted Priced Fairly at $51.98?](https://bestdeals4u.trade/post/new-sealed-funko-pop-groundhog-day-game-punxsutawney-phil-flocked-1046-vaulted)
+- [Funko Pop, Eric Draven (Glow-in-the-Dark) #1429 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-eric-draven-glow-in-the-dark-1429-hot-topic-exclusive-vinyl-figure)
+- [Funko POP! Bleach Fully-Hollowfied Ichigo CHASE #1104 Glow in the Dark – Condition & Listing Overview](https://bestdeals4u.trade/post/funko-pop-bleach-fully-hollowfied-ichigo-chase-1104-glow-in-the-dark)
 
 ### 🧱 LEGO
-- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
-- [LEGO 92176 Lego NASA Apollo Saturn V Sealed](https://bestdeals4u.trade/post/lego-ideas-nasa-apollo-saturn-92176-brand-new-sealed)
+- [LEGO 40579 Eiffel's Apartment Sealed](https://bestdeals4u.trade/post/lego-icons-eiffel-s-apartment-40579-new-in-sealed-box)
+- [LEGO 8152 Police Car Sealed](https://bestdeals4u.trade/post/new-lego-8152-speed-racers-police-car-helicopter-sealed-box)
+
+### 🃏 Pokémon Cards
+- [Unseen Forces Gold Star PSA 4 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2005-ex-unseen-forces-gold-star-113-entei-holo-psa-4-minty-desc)
+- [Market Review: Pokemon Nami R Parallel 101 Trading Card PSA10 Authentic Rare Holo Mint](https://bestdeals4u.trade/post/pokemon-nami-r-parallel-101-trading-card-psa10-authentic-rare-holo-mint)
 
 ### 🎮 Video Games
-- [NES Remix Pack Nintendo Wii U Nintendo Selects - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/nes-remix-pack-nintendo-wii-u-nintendo-selects-brand-new-factory-sealed)
-- [Is This Mario Party 6 (Nintendo GameCube, 2004) No Manual Tested & Working! a Good Deal Right Now?](https://bestdeals4u.trade/post/mario-party-6-nintendo-gamecube-2004-no-manual-tested-working)
+- [Popplio S-Chinese - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/popplio-sealed-promo-pokemon-2026-s-chinese-30th-anniversary-first-partner-card)
+- [WWE: Day of Reckoning (2004) for GameCube Price Check - Worth It or Not?](https://bestdeals4u.trade/post/wwe-day-of-reckoning-nintendo-gamecube-2004)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
