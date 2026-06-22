@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1964 Topps Braves Rookies Phil Niekro Phil Roof Rookie PSA 5 #541 Baseball Card](https://bestdeals4u.trade/post/1964-topps-braves-rookies-phil-niekro-phil-roof-rookie-psa-5-541-baseball-card)
-- [Carter Johnson 2025 Bowman Mega Box Bowman Prospect Mega Autographs PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-carter-johnson-1st-auto-blue-mojo-refractor-150-psa-10-pop-1)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-psa-9-2023-1st-bowman-chrome-auto-prospect-refractor-499-rc-z2)
+- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Eric Draven (Glow-in-the-Dark) #1429 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-eric-draven-glow-in-the-dark-1429-hot-topic-exclusive-vinyl-figure)
-- [Funko POP! Bleach Fully-Hollowfied Ichigo CHASE #1104 Glow in the Dark – Condition & Listing Overview](https://bestdeals4u.trade/post/funko-pop-bleach-fully-hollowfied-ichigo-chase-1104-glow-in-the-dark)
+- [Funko Pop, Jetfire #35 Exclusive](https://bestdeals4u.trade/post/funko-pop-retro-toys-transformers-jetfire-35-w-protector-funko-shop-exclusive)
+- [Funko Pop, Invisible Woman #567 Exclusive](https://bestdeals4u.trade/post/funko-pop-fantastic-four-invisible-girl-567-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 40579 Eiffel's Apartment Sealed](https://bestdeals4u.trade/post/lego-icons-eiffel-s-apartment-40579-new-in-sealed-box)
-- [LEGO 8152 Police Car Sealed](https://bestdeals4u.trade/post/new-lego-8152-speed-racers-police-car-helicopter-sealed-box)
+- [LEGO 7142 X-Wing Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-x-wing-fighter-7142-sealed-new-in-box-vintage-2002-set-nisb)
+- [LEGO 76426 Hogwarts Castle Boathouse Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-castle-boathouse-76426-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Unseen Forces Gold Star PSA 4 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2005-ex-unseen-forces-gold-star-113-entei-holo-psa-4-minty-desc)
-- [Market Review: Pokemon Nami R Parallel 101 Trading Card PSA10 Authentic Rare Holo Mint](https://bestdeals4u.trade/post/pokemon-nami-r-parallel-101-trading-card-psa10-authentic-rare-holo-mint)
 
 ### 🎮 Video Games
-- [Popplio S-Chinese - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/popplio-sealed-promo-pokemon-2026-s-chinese-30th-anniversary-first-partner-card)
-- [WWE: Day of Reckoning (2004) for GameCube Price Check - Worth It or Not?](https://bestdeals4u.trade/post/wwe-day-of-reckoning-nintendo-gamecube-2004)
+- [Is This Pokémon TCG Perfect Order Elite Trainer Box ETB a Good Deal Right Now?](https://bestdeals4u.trade/post/pok-mon-tcg-perfect-order-elite-trainer-box-etb-sealed)
+- [Final Fantasy VII Rebirth Deluxe Edition (PS5) – Brand New](https://bestdeals4u.trade/post/final-fantasy-7-vii-rebirth-deluxe-edition-ps5-playstation-5-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
