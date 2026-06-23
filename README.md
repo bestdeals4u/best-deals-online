@@ -40,16 +40,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Baseball Cards Magazine 1951 Bowman Mickey Mantle Rookie PSA 7 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/1988-baseball-cards-magazine-1951-bowman-mickey-mantle-253-rookie-psa-7)
 
 ### 🧸 Funko Pops
-- [Eric Draven - The Crow - Movies Vaulted 1428 With Protector Funko Pop Price Check - Worth It or Not?](https://bestdeals4u.trade/post/eric-draven-the-crow-movies-vaulted-funko-pop-1428-with-protector)
-- [Market Review: Funko Pop! Batman Bat Manga ECCC 2026 Sticker Exclusive #621 LE 5000](https://bestdeals4u.trade/post/funko-pop-batman-bat-manga-eccc-2026-sticker-exclusive-621-le-5000)
+- [Funko Pop, Captain Cutler #632 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-animation-scooby-doo-captain-cutler-632-gitd-le-funko-shop-exclusive)
+- [Funko Pop! Caterpillar #1009 ECCC 2021 Limited Edition Exclusive Collector’s Box](https://bestdeals4u.trade/post/funko-pop-caterpillar-1009-eccc-2021-limited-edition-exclusive-collector-s-box)
 
 ### 🧱 LEGO
-- [LEGO 4841 Hogwarts Express Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-express-4841-sealed)
-- [LEGO 21254 The Turtle Beach Sealed](https://bestdeals4u.trade/post/lego-minecraft-the-turtle-beach-house-21254-new-sealed-retired)
+- [LEGO 10170 TTX Intermodal Double-Stack Car - in Sealed](https://bestdeals4u.trade/post/lego-set-10170-ttx-intermodal-double-stack-car-new-in-sealed-box)
+- [LEGO 75215 Cloud-Rider Swoop Bikes Sealed](https://bestdeals4u.trade/post/lego-star-wars-75215-solo-cloud-rider-swoop-bikes-sealed-set-retired)
 
 ### 🃏 Pokémon Cards
+- [Zapdos 1999 Pokémon Base Set 1st Edition PSA 8 #16 (Shadowless)](https://bestdeals4u.trade/post/zapdos-1999-pokemon-base-set-1st-edition-psa-8-16-shadowless)
 - [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
-- [Market Review: 2019 POKEMON SM PROMO HIDDEN FATES PIN COLLECTION #SM214 MEWTWO-HOLO PSA 9](https://bestdeals4u.trade/post/2019-pokemon-sm-promo-hidden-fates-pin-collection-sm214-mewtwo-holo-psa-9)
 
 ### 🎮 Video Games
 - [Sonic the Hedgehog for Sonic the Hedgehog](https://bestdeals4u.trade/post/sega-dreamcast-japan-karaoke-dc-segakara-system-hkt-4301-from-japan)
