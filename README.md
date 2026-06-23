@@ -36,19 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-psa-9-2023-1st-bowman-chrome-auto-prospect-refractor-499-rc-z2)
-- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
+- [Yoeilin Cespedes 2024 Bowman PSA 9](https://bestdeals4u.trade/post/2024-bowman-yoelin-cespedes-1st-bowman-auto-refractor-499-cpa-yce-psa-9-mint)
+- [Market Review: Topps Shohei Ohtani WBC PSA10 Topps Now Card](https://bestdeals4u.trade/post/topps-shohei-ohtani-wbc-psa10-topps-now-baseball-card-limited-edition)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Jetfire #35 Exclusive](https://bestdeals4u.trade/post/funko-pop-retro-toys-transformers-jetfire-35-w-protector-funko-shop-exclusive)
 - [Funko Pop, Invisible Woman #567 Exclusive](https://bestdeals4u.trade/post/funko-pop-fantastic-four-invisible-girl-567-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 7142 X-Wing Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-x-wing-fighter-7142-sealed-new-in-box-vintage-2002-set-nisb)
-- [LEGO 76426 Hogwarts Castle Boathouse Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-castle-boathouse-76426-new-sealed-retired)
+- [LEGO 32596, 4730 The Chamber of Secrets Sealed](https://bestdeals4u.trade/post/nisb-lego-harry-potter-chamber-of-secrets-4730-ministry-magic-76403-retired)
+- [LEGO 10230 Mini Modulars - Exclusive Retired Set](https://bestdeals4u.trade/post/lego-10230-mini-modulars-exclusive-vip-retired-creator-modular-buildings)
 
 ### 🃏 Pokémon Cards
-- [Unseen Forces Gold Star PSA 4 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2005-ex-unseen-forces-gold-star-113-entei-holo-psa-4-minty-desc)
+- [Is Mesprit PSA 10 Priced Fairly at $119.98?](https://bestdeals4u.trade/post/pokemon-surging-sparks-mesprit-204-illustration-rare-psa-10)
+- [Pokémon Base Set Charizard Holo PSA 6 EX-MT – Original WOTC Classic Price Check - Worth It or Not?](https://bestdeals4u.trade/post/1999-pok-mon-base-set-charizard-holo-4-psa-6-ex-mt-original-wotc-classic)
 
 ### 🎮 Video Games
 - [Is This Pokémon TCG Perfect Order Elite Trainer Box ETB a Good Deal Right Now?](https://bestdeals4u.trade/post/pok-mon-tcg-perfect-order-elite-trainer-box-etb-sealed)
