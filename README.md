@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Juan Corniel 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-orange-wave-refractor-auto-juan-corniel-25-dbacks-psa-9)
 - [Chris Cortez 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-draft-chris-cortez-1st-chrome-orange-wave-refractor-auto-25-psa-10)
-- [Spencer Horwitz 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/spencer-horwitz-2024-topps-chrome-rc-auto-gold-wave-refractor-50-psa-10-gem-v6-2)
 
 ### 🧸 Funko Pops
 - [Funko Pop, R2-D2 #420](https://bestdeals4u.trade/post/funko-pop-star-wars-valentines-r2-d2-420-w-protector-new-vaulted-funko-shop-exc)
 - [Funko Pop, Lock ##417](https://bestdeals4u.trade/post/funko-pop-vinyl-television-john-locke-417-lost-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 7204 Jedi Defense II Sealed](https://bestdeals4u.trade/post/lego-star-wars-jedi-defense-ii-7204-sealed-new-in-box-retired)
-- [LEGO 75918 T.Rex Tracker Sealed](https://bestdeals4u.trade/post/lego-jurassic-world-t-rex-tracker-75918-brand-new-sealed-box-retired)
+- [LEGO Star Wars: Imperial Star Destroyer UCS 10030 Retired Set](https://bestdeals4u.trade/post/lego-star-wars-imperial-star-destroyer-10030-new-retired-open-box-ucs-2002)
+- [LEGO Ideas 21325 Creator Expert Medieval Blacksmith Retired Sealed at $205.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/lego-ideas-21325-creator-expert-medieval-blacksmith-retired-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Is This Treecko Holo Gold Star PSA 3 a Good Buy?](https://bestdeals4u.trade/post/psa-3-2004-treecko-gold-star-011-084-holo-pokemon-card-japanese-vintage-rare)
-- [Zapdos 1999 Pokémon Base Set 1st Edition PSA 8 #16 (Shadowless)](https://bestdeals4u.trade/post/zapdos-1999-pokemon-base-set-1st-edition-psa-8-16-shadowless)
+- [Mewtwo Holo Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-base-set-unlimited-mewtwo-holo-10-102-vintage-pok-mon-card-cgc-8-5-nm)
+- [Market Review: PSA10 Charizard 212/172 Mewtwo 221/172 SAR VSTAR Universe](https://bestdeals4u.trade/post/psa10-charizard-212-172-mewtwo-221-172-sar-vstar-universe-pokemon-card-japanese)
 
 ### 🎮 Video Games
-- [Sonic the Hedgehog for Sonic the Hedgehog](https://bestdeals4u.trade/post/sega-dreamcast-japan-karaoke-dc-segakara-system-hkt-4301-from-japan)
-- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
+- [Is This Mass Effect: Andromeda - Xbox One (Complete in Box) a Good Deal Right Now?](https://bestdeals4u.trade/post/mass-effect-andromeda-xbox-one-complete-in-box)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
