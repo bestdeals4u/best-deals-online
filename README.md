@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [George Kirby Mega Box Mojo Refractor Prospect 2021 Bowman Card Mariners Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/george-kirby-mega-box-mojo-refractor-prospect-2021-bowman-card-bcp-117-mariners)
 - [Juan Corniel 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-orange-wave-refractor-auto-juan-corniel-25-dbacks-psa-9)
-- [Chris Cortez 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-draft-chris-cortez-1st-chrome-orange-wave-refractor-auto-25-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Itachi #578 Exclusive](https://bestdeals4u.trade/post/funko-pop-naruto-itachi-578-vinyl-special-edition-exclusive-mint)
 - [Funko Pop, R2-D2 #420](https://bestdeals4u.trade/post/funko-pop-star-wars-valentines-r2-d2-420-w-protector-new-vaulted-funko-shop-exc)
-- [Funko Pop, Lock ##417](https://bestdeals4u.trade/post/funko-pop-vinyl-television-john-locke-417-lost-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO Star Wars: Imperial Star Destroyer UCS 10030 Retired Set](https://bestdeals4u.trade/post/lego-star-wars-imperial-star-destroyer-10030-new-retired-open-box-ucs-2002)
-- [LEGO Ideas 21325 Creator Expert Medieval Blacksmith Retired Sealed at $205.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/lego-ideas-21325-creator-expert-medieval-blacksmith-retired-brand-new-sealed)
+- [LEGO 75292 The Razor Crest Sealed](https://bestdeals4u.trade/post/lego-star-wars-the-mandalorian-the-razor-crest-75292-new-and-sealed-in-box)
+- [LEGO 60101 Airport Cargo Plane Sealed](https://bestdeals4u.trade/post/lego-city-airport-cargo-plane-60101-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [PSA 1 Shining Steelix 112/105 2002 Pokémon Neo Destiny Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-1-shining-steelix-112-105-2002-pok-mon-neo-destiny)
 - [Mewtwo Holo Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-base-set-unlimited-mewtwo-holo-10-102-vintage-pok-mon-card-cgc-8-5-nm)
-- [Market Review: PSA10 Charizard 212/172 Mewtwo 221/172 SAR VSTAR Universe](https://bestdeals4u.trade/post/psa10-charizard-212-172-mewtwo-221-172-sar-vstar-universe-pokemon-card-japanese)
 
 ### 🎮 Video Games
+- [One Piece Odyssey - Sony PlayStation 4 PS4 - US Ver - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/one-piece-odyssey-sony-playstation-4-ps4-brand-new-factory-sealed-us-ver)
 - [Is This Mass Effect: Andromeda - Xbox One (Complete in Box) a Good Deal Right Now?](https://bestdeals4u.trade/post/mass-effect-andromeda-xbox-one-complete-in-box)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
