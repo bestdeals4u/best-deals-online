@@ -36,18 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bryan Rincon 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/bryan-rincon-2023-bowman-chrome-1st-auto-purple-refractor-250-psa-10)
-- [Christopher Suero 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/christopher-suero-mets-2025-bowman-chrome-refractor-auto-499-psa-10)
+- [Tanner Burns 2020 Bowman Draft RC PSA 10](https://bestdeals4u.trade/post/tanner-burns-2020-1st-bowman-draft-chrome-rookie-rc-auto-true-gold-50-psa-10)
+- [Bobby Bradley 2015 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2015-bowman-chrome-prospects-blue-refractor-150-bobby-bradley-bgs-9-5-auto-11rv)
 
 ### 🧸 Funko Pops
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 - [Funko Pop, Captain Cutler #632 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-scooby-doo-captain-cutler-glow-funko-exclusive-632)
-- [Funko Pop, Flynn #1856 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-tron-kevin-flynn-glow-funko-exclusive-1856)
 
 ### 🧱 LEGO
-- [LEGO 40566 Ray the Castaway Sealed](https://bestdeals4u.trade/post/lego-ideas-set-40566-ray-the-castaway-new-in-sealed-box-a)
-- [LEGO 76248 The Avengers Quinjet Sealed](https://bestdeals4u.trade/post/lego-marvel-the-avengers-quinjet-76248-free-shipping-new-sealed-box)
+- [LEGO 75324 Sunken Treasure Mission Sealed](https://bestdeals4u.trade/post/lego-75324-star-wars-dark-trooper-attack-battle-new-sealed-retired-safe-shipping)
+- [Market Review: LEGO Star Wars Boba Fett Helmet (75277) – New, Factory Sealed](https://bestdeals4u.trade/post/lego-star-wars-boba-fett-helmet-75277-new-factory-sealed)
+
+### 🃏 Pokémon Cards
+- [Market Review: 2023 Pokémon SVP EN-SV Promo 151 Ultra-Premium Collection #052 Mewtwo PSA 9](https://bestdeals4u.trade/post/2023-pokemon-svp-en-sv-promo-151-ultra-premium-collection-052-mewtwo-psa-9)
+- [Asc Ascended Heroes Illustration PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/2026-pokemon-asc-en-ascended-heroes-illustration-rare-cynthia-s-spiritomb-psa-10)
 
 ### 🎮 Video Games
+- [Market Review: SpongeBob SquarePants: The Battle for Bikini Bottom (GameCube, 2004)](https://bestdeals4u.trade/post/spongebob-squarepants-the-battle-for-bikini-bottom-gamecube-2004)
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
