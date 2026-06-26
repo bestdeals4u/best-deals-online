@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nate Lowe 2019 Bowman RC PSA 9](https://bestdeals4u.trade/post/nate-lowe-2019-bowman-chrome-1st-autograph-speckle-refractor-auto-299-psa-9-rc)
-- [Wyatt Langford 2024 Topps Chrome Update Series RC PSA 10](https://bestdeals4u.trade/post/wyatt-langford-psa-10-2024-topps-chrome-rc-auto-purple-magenta-refractor-299-z4-2)
+- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 - [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 
 ### 🧱 LEGO
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 76226 Spider-Man Figure Sealed](https://bestdeals4u.trade/post/lego-new-sealed-box-marvel-spider-man-figure-76226-building-kit-build-play)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
 
 ### 🃏 Pokémon Cards
 - [Evolutions Holo PSA 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pokemon-xy-evolutions-holo-2016-m-charizard-ex-full-art-101-108-psa-8)
 - [Market Review: 2021 Pokémon JPN Promo Pack 25th Anv Ed #012 Umbreon-Gold Star PSA 10](https://bestdeals4u.trade/post/2021-pokemon-jpn-promo-card-pack-25th-anv-ed-012-umbreon-gold-star-psa-10)
 
 ### 🎮 Video Games
+- [Danganronpa Decadence Collector's Edition 2021 Nintendo Switch Sealed](https://bestdeals4u.trade/post/danganronpa-decadence-collector-s-edition-nintendo-switch-2021-new-sealed)
 - [Thinking About Buying Astro Boy Sony PlayStation 2 PS2 PSA 9.8 A+ Graded NOT WATA Sega? Read This First](https://bestdeals4u.trade/post/astro-boy-sony-playstation-2-ps2-sealed-new-psa-9-8-a-graded-not-wata-sega)
-- [Tekken Hybrid 2011 Sony PlayStation 3 Sealed](https://bestdeals4u.trade/post/brand-new-sealed-tekken-hybrid-tekken-tag-tournament-hd-ps3-sony-playstation-3)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
