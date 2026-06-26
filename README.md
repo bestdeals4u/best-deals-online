@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Joe Mack 2021 Bowman Draft RC PSA 10](https://bestdeals4u.trade/post/2021-bowman-draft-chrome-joe-mack-aqua-lava-refractor-auto-199-psa-10-gem-rc)
-- [Bryce Eldridge 2023 Bowman Draft PSA 9](https://bestdeals4u.trade/post/bryce-eldridge-2023-1st-bowman-chrome-auto-choice-refractor-150-psa-9-giants-z6)
+- [Nate Lowe 2019 Bowman RC PSA 9](https://bestdeals4u.trade/post/nate-lowe-2019-bowman-chrome-1st-autograph-speckle-refractor-auto-299-psa-9-rc)
+- [Wyatt Langford 2024 Topps Chrome Update Series RC PSA 10](https://bestdeals4u.trade/post/wyatt-langford-psa-10-2024-topps-chrome-rc-auto-purple-magenta-refractor-299-z4-2)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Pegasus #26 Exclusive](https://bestdeals4u.trade/post/pegasus-funko-pop-myths-vinyl-26-funko-exclusive-limited-edition-figure)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
+- [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 
 ### 🧱 LEGO
-- [LEGO 75292 The Razor Crest Sealed](https://bestdeals4u.trade/post/lego-star-wars-75292-the-razor-crest-new-sealed-retired-set-mandalorian)
-- [LEGO 10214 Tower Bridge Sealed](https://bestdeals4u.trade/post/lego-10214-tower-bridge-london-brand-new-and-sealed-retired)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
-- [2002 Pokemon Neo Destiny Shining Charizard Secret Rare Holo #107 /105 MP](https://bestdeals4u.trade/post/v1-206128267187-0-2002-pokemon-neo-destiny-shining-charizard-secret-rare-holo-107-105-mp)
-- [Lugia Vstar PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/2023-2024-pokemon-play-pokemon-prize-pack-139-lugia-vstar-psa-10)
+- [Evolutions Holo PSA 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pokemon-xy-evolutions-holo-2016-m-charizard-ex-full-art-101-108-psa-8)
+- [Market Review: 2021 Pokémon JPN Promo Pack 25th Anv Ed #012 Umbreon-Gold Star PSA 10](https://bestdeals4u.trade/post/2021-pokemon-jpn-promo-card-pack-25th-anv-ed-012-umbreon-gold-star-psa-10)
 
 ### 🎮 Video Games
+- [Thinking About Buying Astro Boy Sony PlayStation 2 PS2 PSA 9.8 A+ Graded NOT WATA Sega? Read This First](https://bestdeals4u.trade/post/astro-boy-sony-playstation-2-ps2-sealed-new-psa-9-8-a-graded-not-wata-sega)
 - [Tekken Hybrid 2011 Sony PlayStation 3 Sealed](https://bestdeals4u.trade/post/brand-new-sealed-tekken-hybrid-tekken-tag-tournament-hd-ps3-sony-playstation-3)
-- [Is Charlie and the Chocolate Factory (2005) for GameCube Priced Fairly at $22.00?](https://bestdeals4u.trade/post/charlie-and-the-chocolate-factory-nintendo-gamecube-2005)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
