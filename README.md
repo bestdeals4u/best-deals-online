@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Eduardo Herrera 2024 Bowman PSA 10](https://bestdeals4u.trade/post/eduardo-herrera-2024-1st-bowman-chrome-auto-yellow-refractor-75-psa-10-gem-s6)
 - [Topps 1960 Mickey Mantle SGC Graded York Yankees Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/topps-1960-mickey-mantle-350-sgc-graded-new-york-yankees-baseball-card)
-- [Market Review: Topps 1972 Willie Mays #49 SGC 4 San Francisco Giants Baseball Card](https://bestdeals4u.trade/post/topps-1972-willie-mays-49-sgc-4-san-francisco-giants-baseball-card)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Ant-Man #340 Chase](https://bestdeals4u.trade/post/funko-pop-marvel-ant-man-and-the-wasp-ant-man-340-limited-edition-chase)
-- [Market Review: Funko Pop! Vinyl: Ghostbusters - Mini Puft (Zapped) - Target (Exclusive) #1053](https://bestdeals4u.trade/post/funko-pop-vinyl-ghostbusters-mini-puft-zapped-target-exclusive-1053)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
 
 ### 🧱 LEGO
-- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO 75946 Hungarian Horntail Triwizard Challenge Sealed](https://bestdeals4u.trade/post/lego-75946-hungarian-horntail-harry-potter-new-sealed-retired-set-2)
+- [LEGO 40385 Iconic Trophy RARE FREE POST Sealed](https://bestdeals4u.trade/post/lego-iconic-trophy-40385-brand-new-sealed-box-rare-retired-free-post)
 
 ### 🃏 Pokémon Cards
 - [PSA 10 Venusaur Pokemon GO Radiant Venusaur Secret Rare Card Market Review](https://bestdeals4u.trade/post/psa-10-venusaur-pokemon-go-radiant-venusaur-secret-rare-pokemon-card)
 - [PSA 4 CHARIZARD 1999 Pokemon Base Unlimited SHADOWLESS #4/102 Holo Rare VG-EX](https://bestdeals4u.trade/post/v1-143816428423-0-psa-4-charizard-1999-pokemon-base-unlimited-shadowless-4-102-holo-rare-vg-ex)
 
 ### 🎮 Video Games
+- [Is This The Pathless ? Nintendo Switch - iam8bit Exclusive Edition a Good Deal Right Now?](https://bestdeals4u.trade/post/the-pathless-nintendo-switch-iam8bit-exclusive-edition-factory-sealed)
 - [The Legend of Zelda: Four Swords Adventures 2004 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-four-swords-nintendo-gamecube-complete-cib-mint-disc)
-- [Yu-Gi-Oh Duelists Magical Hero Box 1st Edition Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/yu-gi-oh-legendary-duelists-magical-hero-box-1st-edition-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
