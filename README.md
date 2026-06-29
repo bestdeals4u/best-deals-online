@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: GARY SHEFFIELD Signed 1989 Donruss Rated Rookie Baseball Card #31](https://bestdeals4u.trade/post/gary-sheffield-signed-1989-donruss-rated-rookie-baseball-card-31-psa-auto-10)
-- [HENDRY MENDEZ 2022 BOWMAN CHROME PROSPECT AUTOGRAPHS RC PSA 10](https://bestdeals4u.trade/post/hendry-mendez-2022-bowman-1st-atomic-ref-rc-auto-100-psa-10-gem-mint-a)
+- [Ryan Clifford 2023 Bowman PSA 10](https://bestdeals4u.trade/post/2023-bowman-ryan-clifford-1st-chrome-prospect-refractor-auto-499-psa-10-cparc)
+- [Kodi Medeiros 2014 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-draft-orange-refractor-20-25-kodi-medeiros-bgs-9-5-gem-mint-auto-fm0)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Bo-Katan Kryze #463 Chase](https://bestdeals4u.trade/post/funko-pop-vinyl-star-wars-bo-katan-kryze-chase-limited-edition-bobblehead-463)
-- [Funko Pop, Blue Raspberry Sour Patch Kid #04 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-glow-in-the-dark-exclusive-blue-raspberry-sour-patch-kid-04)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Funko Pop! DC Super Heroes The Flash Metallic LE Chase 2015 (New)](https://bestdeals4u.trade/post/funko-pop-dc-super-heroes-the-flash-10-metallic-le-chase-vaulted-2015)
 
 ### 🧱 LEGO
-- [LEGO 21316 The Flintstones Sealed](https://bestdeals4u.trade/post/lego-ideas-the-flintstones-21316-sealed-box-brand-new-retired-set)
-- [LEGO 76262 Captain America's Shield Sealed](https://bestdeals4u.trade/post/lego-76262-marvel-captain-america-s-shield-new-sealed-18-display)
+- [LEGO 75220 Sandcrawler Sealed](https://bestdeals4u.trade/post/lego-star-wars-75220-sandcrawler-new-and-factory-sealed)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-21336-ideas-the-office-new-sealed-retired-dunder-mifflin-fast-ship-3)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Leafeon V 167/203 Pokémon TCG 2021 Evolving Skies Alt Art CGC Gem Mint 10!](https://bestdeals4u.trade/post/leafeon-v-167-203-pok-mon-tcg-2021-evolving-skies-alt-art-cgc-gem-mint-10)
-- [Market Review: PSA 10 Blastoise RADIANT BLASTOISE Secret Rare](https://bestdeals4u.trade/post/psa-10-blastoise-pokemon-radiant-blastoise-secret-rare-pokemon-card)
+- [Market Review: Charizard #6 - Base Set PSA 7 Japanese Holo Pokemon Card](https://bestdeals4u.trade/post/charizard-6-base-set-psa-7-nm-japanese-holo-pokemon-card-w-swirl)
+- [Thinking About Buying Pikachu PSA 10? Read This First](https://bestdeals4u.trade/post/2024-pokemon-sv8-japanese-pikachu-ex-122-super-rare-psa-10-gem-mt)
 
 ### 🎮 Video Games
 - [Harvest Moon: Magical Melody 2005 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-magical-melody-gamecube-2005-new-sealed)
-- [Nintendo Power Magazine 1995 Set Lot Vol 32-43(Missing Vol 33,38-39)With Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/nintendo-power-magazine-1995-set-lot-vol-32-43-missing-vol-33-38-39-with-posters)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
