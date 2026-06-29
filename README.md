@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kumar Rocker 2022 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/kumar-rocker-bgs-9-5-10-2022-1st-bowman-chrome-auto-blue-refractor-150-rc-z2)
-- [Market Review: 1964 Topps Baseball Card #243 Richie Allen HOF Phillies Rookie Stars SGC 2.5 GD+](https://bestdeals4u.trade/post/1964-topps-baseball-card-243-richie-allen-hof-phillies-rookie-stars-sgc-2-5-gd)
+- [Market Review: GARY SHEFFIELD Signed 1989 Donruss Rated Rookie Baseball Card #31](https://bestdeals4u.trade/post/gary-sheffield-signed-1989-donruss-rated-rookie-baseball-card-31-psa-auto-10)
+- [HENDRY MENDEZ 2022 BOWMAN CHROME PROSPECT AUTOGRAPHS RC PSA 10](https://bestdeals4u.trade/post/hendry-mendez-2022-bowman-1st-atomic-ref-rc-auto-100-psa-10-gem-mint-a)
 
 ### 🧸 Funko Pops
-- [Market Review: New Sealed Wolverine #1576 Funko Pop! with Protector LE 5000 2026 Shared ECCC](https://bestdeals4u.trade/post/new-sealed-wolverine-1576-funko-pop-with-protector-le-5000-2026-shared-eccc)
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Funko Pop, Bo-Katan Kryze #463 Chase](https://bestdeals4u.trade/post/funko-pop-vinyl-star-wars-bo-katan-kryze-chase-limited-edition-bobblehead-463)
+- [Funko Pop, Blue Raspberry Sour Patch Kid #04 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-glow-in-the-dark-exclusive-blue-raspberry-sour-patch-kid-04)
 
 ### 🧱 LEGO
-- [LEGO 70504 Garmatron Sealed](https://bestdeals4u.trade/post/lego-70504-ninjago-garmatron-misb-new-sealed-retired-zane-general-kozu-toy)
-- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
+- [LEGO 21316 The Flintstones Sealed](https://bestdeals4u.trade/post/lego-ideas-the-flintstones-21316-sealed-box-brand-new-retired-set)
+- [LEGO 76262 Captain America's Shield Sealed](https://bestdeals4u.trade/post/lego-76262-marvel-captain-america-s-shield-new-sealed-18-display)
 
 ### 🃏 Pokémon Cards
+- [Market Review: Leafeon V 167/203 Pokémon TCG 2021 Evolving Skies Alt Art CGC Gem Mint 10!](https://bestdeals4u.trade/post/leafeon-v-167-203-pok-mon-tcg-2021-evolving-skies-alt-art-cgc-gem-mint-10)
 - [Market Review: PSA 10 Blastoise RADIANT BLASTOISE Secret Rare](https://bestdeals4u.trade/post/psa-10-blastoise-pokemon-radiant-blastoise-secret-rare-pokemon-card)
-- [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
 
 ### 🎮 Video Games
-- [Resident Evil Zero GameCube - Black Label - Works - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/resident-evil-zero-gamecube-authentic-black-label-cib-tested-works)
+- [Harvest Moon: Magical Melody 2005 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-magical-melody-gamecube-2005-new-sealed)
+- [Nintendo Power Magazine 1995 Set Lot Vol 32-43(Missing Vol 33,38-39)With Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/nintendo-power-magazine-1995-set-lot-vol-32-43-missing-vol-33-38-39-with-posters)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
