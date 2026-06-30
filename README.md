@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Walker Jenkins 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/2025-walker-jenkins-bowman-chrome-prospect-true-blue-auto-150-psa-9-twins-rc)
-- [Brady Singer 2018 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2018-bowman-draft-chrome-brady-singer-blue-wave-refractor-auto-150-psa-9)
+- [Kenny Fenelon 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/kenny-fenelon-2025-1st-bowman-chrome-auto-orange-refractor-25-psa-9-brewers-y6-4)
+- [Jordan Westburg 2024 Topps Tribute RC PSA 9](https://bestdeals4u.trade/post/2024-topps-tribute-jordan-westburg-rc-auto-orange-sp-25-psa-9-rookie-all-star)
 
 ### 🧸 Funko Pops
+- [Pokémon Entei Jumbo 10” SDCC 2025 Convention Exclusive Funko Pop #1070 at $60.99, with recent sales closer to $71.78](https://bestdeals4u.trade/post/pok-mon-entei-jumbo-10-funko-pop-1070-sdcc-2025-convention-exclusive)
 - [Funko Pop Vinyl Robocop 2 Metallic CHASE #1989 – Brand New Listing](https://bestdeals4u.trade/post/funko-pop-vinyl-robocop-2-metallic-chase-1989-brand-new)
-- [Muzan Kibutsuji - ECCC (Shared Metallic) w / PROTECTOR Funko Pop #2196 at $20.00, with recent sales closer to $25.80](https://bestdeals4u.trade/post/funko-pop-muzan-kibutsuji-2196-eccc-shared-metallic-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75095 TIE Fighter Sealed](https://bestdeals4u.trade/post/lego-75095-1685-pcs-star-wars-tie-fighter-factory-sealed-box-new)
-- [LEGO 75887 Porsche 919 Hybrid Sealed](https://bestdeals4u.trade/post/lego-speed-champions-75887-porsche-919-hybrid-new-in-sealed-box-2)
+- [LEGO 75294 Bespin Duel Sealed](https://bestdeals4u.trade/post/lego-star-wars-bespin-duel-75294-brand-new-sealed-retired)
+- [LEGO 75379 R2-D2 Sealed](https://bestdeals4u.trade/post/new-lego-star-wars-r2-d2-with-darth-malak-25-years-75379-factory-sealed-box)
 
 ### 🎮 Video Games
 - [Star Wars: Jedi Knight II - Jedi Outcast Nintendo GameCube Sealed](https://bestdeals4u.trade/post/nintendo-gamecube-star-wars-jedi-knight-ii-jedi-outcast-sealed-game-new)
