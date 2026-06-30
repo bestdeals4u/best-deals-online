@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Topps 1968 Willie Mays SGC 5 San Francisco Giants MLB Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/topps-1968-willie-mays-50-sgc-5-san-francisco-giants-mlb-baseball-card)
-- [Yolfran Castillo 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/yolfran-castillo-2024-1st-bowman-chrome-auto-gold-refractor-50-psa-9-rangers-e6)
+- [Market Review: 1963 TOPPS AL KALINE SGC 2 DETROIT TIGERS Baseball Card #25](https://bestdeals4u.trade/post/1963-topps-al-kaline-sgc-2-detroit-tigers-baseball-card-25)
+- [Evan Carter 2024 Topps Now Road to Opening Day RC PSA 10](https://bestdeals4u.trade/post/2024-topps-now-road-to-opening-day-ec-a-evan-carter-rc-auto-blue-25-49-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Adam Bomb #01 Chase Glow](https://bestdeals4u.trade/post/garbage-pail-kids-01-adam-bomb-glow-chase-funko-pop-vinyl-figure-with-protector)
 - [Funko Pop, Beru #2022 Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-animation-2022-beru-glow-new-solo-leveling-special-edition)
-- [Market Review: Funko Pop! Vinyl: Coraline - Coraline with Dowsing Rod #1661 - NYCC Shared Exc.](https://bestdeals4u.trade/post/funko-pop-vinyl-coraline-coraline-with-dowsing-rod-1661-nycc-shared-exc)
 
 ### 🧱 LEGO
-- [LEGO 5971 Gold Heist Sealed](https://bestdeals4u.trade/post/lego-5971-space-police-gold-heist-new-sealed-retired)
-- [LEGO Icons Titanic 10294 Sealed Collectible](https://bestdeals4u.trade/post/lego-icons-titanic-10294-brand-new-sealed)
+- [LEGO 7139 Ewok Attack Sealed](https://bestdeals4u.trade/post/lego-star-wars-7139-ewok-attack-2002-brand-new-factory-sealed-box)
+- [LEGO 8404 Public Transport Sealed](https://bestdeals4u.trade/post/lego-city-8404-public-transport-limited-edition-retired-2010-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Charizard 006 Shining Darkness PSA 9](https://bestdeals4u.trade/post/2007-pokemon-japanese-shining-darkness-006-charizard-holo-1st-ed-psa-9)
-- [Umbreon Premium Figure Collection PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-10-umbreon-ex-premium-figure-collection-svp-176-pokemon-tcg)
 
 ### 🎮 Video Games
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-gamecube-complete)
-- [Is This Dunjungle (PlayStation 5,Ps5 2026) 4/10/2026 Release a Good Deal Right Now?](https://bestdeals4u.trade/post/dunjungle-playstation-5-ps5-2026-new-sealed-4-10-2026-release)
+- [Star Wars: Jedi Knight II - Jedi Outcast Nintendo GameCube Sealed](https://bestdeals4u.trade/post/nintendo-gamecube-star-wars-jedi-knight-ii-jedi-outcast-sealed-game-new)
+- [Perfect Order Elite Trainer Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/pokemon-perfect-order-elite-trainer-box-etb-factory-sealed-mega-evolution-tyrunt)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
