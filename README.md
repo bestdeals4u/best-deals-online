@@ -36,19 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1963 TOPPS AL KALINE SGC 2 DETROIT TIGERS Baseball Card #25](https://bestdeals4u.trade/post/1963-topps-al-kaline-sgc-2-detroit-tigers-baseball-card-25)
-- [Evan Carter 2024 Topps Now Road to Opening Day RC PSA 10](https://bestdeals4u.trade/post/2024-topps-now-road-to-opening-day-ec-a-evan-carter-rc-auto-blue-25-49-psa-10)
+- [Walker Jenkins 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/2025-walker-jenkins-bowman-chrome-prospect-true-blue-auto-150-psa-9-twins-rc)
+- [Brady Singer 2018 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2018-bowman-draft-chrome-brady-singer-blue-wave-refractor-auto-150-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Adam Bomb #01 Chase Glow](https://bestdeals4u.trade/post/garbage-pail-kids-01-adam-bomb-glow-chase-funko-pop-vinyl-figure-with-protector)
-- [Funko Pop, Beru #2022 Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-animation-2022-beru-glow-new-solo-leveling-special-edition)
+- [Funko Pop Vinyl Robocop 2 Metallic CHASE #1989 – Brand New Listing](https://bestdeals4u.trade/post/funko-pop-vinyl-robocop-2-metallic-chase-1989-brand-new)
+- [Muzan Kibutsuji - ECCC (Shared Metallic) w / PROTECTOR Funko Pop #2196 at $20.00, with recent sales closer to $25.80](https://bestdeals4u.trade/post/funko-pop-muzan-kibutsuji-2196-eccc-shared-metallic-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 7139 Ewok Attack Sealed](https://bestdeals4u.trade/post/lego-star-wars-7139-ewok-attack-2002-brand-new-factory-sealed-box)
-- [LEGO 8404 Public Transport Sealed](https://bestdeals4u.trade/post/lego-city-8404-public-transport-limited-edition-retired-2010-brand-new-sealed)
-
-### 🃏 Pokémon Cards
-- [Charizard 006 Shining Darkness PSA 9](https://bestdeals4u.trade/post/2007-pokemon-japanese-shining-darkness-006-charizard-holo-1st-ed-psa-9)
+- [LEGO 75095 TIE Fighter Sealed](https://bestdeals4u.trade/post/lego-75095-1685-pcs-star-wars-tie-fighter-factory-sealed-box-new)
+- [LEGO 75887 Porsche 919 Hybrid Sealed](https://bestdeals4u.trade/post/lego-speed-champions-75887-porsche-919-hybrid-new-in-sealed-box-2)
 
 ### 🎮 Video Games
 - [Star Wars: Jedi Knight II - Jedi Outcast Nintendo GameCube Sealed](https://bestdeals4u.trade/post/nintendo-gamecube-star-wars-jedi-knight-ii-jedi-outcast-sealed-game-new)
