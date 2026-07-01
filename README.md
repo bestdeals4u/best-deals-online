@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kumar Rocker 2022 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/kumar-rocker-bgs-9-5-10-2022-1st-bowman-chrome-auto-blue-refractor-150-rc-z2-4)
-- [Luis Rodriguez 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2021-luis-rodriguez-blue-refractor-1st-bowman-chrome-auto-psa-10-53-150)
+- [ICHIRO psa 10 2001 Bbm MLB Price Check - Worth It or Not?](https://bestdeals4u.trade/post/ichiro-13-psa-10-2001-bbm-baseball-card-mlb)
+- [Jordan Lawlar 2024 Topps Chrome RC SGC 9.5](https://bestdeals4u.trade/post/jordan-lawlar-2024-topps-chrome-rc-auto-blue-refractor-150-sgc-9-5-10-ra-jla-p6-2)
 
 ### 🧸 Funko Pops
-- [Pokémon Entei Jumbo 10” SDCC 2025 Convention Exclusive Funko Pop #1070 at $60.99, with recent sales closer to $71.78](https://bestdeals4u.trade/post/pok-mon-entei-jumbo-10-funko-pop-1070-sdcc-2025-convention-exclusive)
-- [Funko Pop Vinyl Robocop 2 Metallic CHASE #1989 – Brand New Listing](https://bestdeals4u.trade/post/funko-pop-vinyl-robocop-2-metallic-chase-1989-brand-new)
+- [Funko Pop, Moon Knight #796 Exclusive](https://bestdeals4u.trade/post/funko-pop-marvel-796-zombie-moon-knight-funko-exclusive-w-protector-vaulted)
+- [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-exclusive-hot-topic-protector)
 
 ### 🧱 LEGO
-- [LEGO 42155 The Batman – Batcycle Sealed](https://bestdeals4u.trade/post/lego-42155-technic-the-batman-batcycle-new-retired-sealed-slight-box-crease)
-- [LEGO 75078 Imperial Troop Transport Sealed](https://bestdeals4u.trade/post/lego-star-wars-75078-imperial-troop-transport-new-sealed-retired-2016)
+- [LEGO 6740 Xtreme Tower Sealed](https://bestdeals4u.trade/post/lego-island-xtreme-stunts-xtreme-tower-6740-retired-new-sealed)
+- [LEGO 7733 Truck & Forklift Sealed](https://bestdeals4u.trade/post/new-lego-7733-city-truck-forklift-special-edition-sealed-box-free-ship)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2023 POKEMON MEW EN-151 ILLUSTRATION RARE #181 DRAGONAIR PSA 10](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-illustration-rare-181-dragonair-psa-10)
