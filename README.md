@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kala'i Rosario 2020 Bowman Draft PSA 9](https://bestdeals4u.trade/post/kala-i-rosario-2020-1st-bowman-chrome-auto-gold-refractor-50-twins-psa-9-z6)
-- [Case Williams 2020 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2020-bowman-chrome-draft-case-williams-1st-blue-wave-refractor-auto-150-psa-9)
+- [Luinder Avila 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-luinder-avila-refractor-auto-499-psa-9)
+- [Leo De Vries 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-leo-de-vries-purple-mojo-refractor-auto-199-psa-9-bma-ld)
 
 ### 🧸 Funko Pops
-- [Marvel The Punisher ECCC 2026 Shared Exclusive Funko Pop #1577 at $23.99, with recent sales closer to $28.55](https://bestdeals4u.trade/post/marvel-the-punisher-funko-pop-1577-eccc-2026-shared-exclusive)
-- [Funko Pop, Batman #01 Exclusive GITD Glow](https://bestdeals4u.trade/post/funko-pop-dc-super-heroes-01-batman-gitd-glow-entertainment-earth-exclusive)
+- [Funko Pop, Jin Kazama #176 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-tekken-devil-jin-gamestop-exclusive-176-w-protector)
+- [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 
 ### 🧱 LEGO
-- [LEGO 60213 Dock Side Fire Sealed](https://bestdeals4u.trade/post/lego-city-dock-side-fire-60213-retired-fire-boat-toy-new-factory-sealed)
-- [LEGO 43196 Belle and the Beast's Castle Sealed](https://bestdeals4u.trade/post/lego-disney-princess-belle-and-the-beast-s-castle-43196-new-sealed-retired)
-
-### 🃏 Pokémon Cards
-- [Topps Tv Animation Clear PSA 10 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2000-topps-pokemon-tv-animation-clear-cards-pc5-mewtwo-psa-10)
+- [LEGO 75381 Droideka Sealed](https://bestdeals4u.trade/post/lego-star-wars-25th-anniversary-droideka-75381-brand-new-factory-sealed-box)
+- [LEGO 7678 Droid Gunship Sealed](https://bestdeals4u.trade/post/star-wars-lego-7678-droid-gunship-new-sealed-2)
 
 ### 🎮 Video Games
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
 - [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
