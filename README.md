@@ -36,20 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Luinder Avila 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-luinder-avila-refractor-auto-499-psa-9)
-- [Leo De Vries 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-leo-de-vries-purple-mojo-refractor-auto-199-psa-9-bma-ld)
+- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
+- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Jin Kazama #176 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-tekken-devil-jin-gamestop-exclusive-176-w-protector)
-- [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
+- [Funko Pop, Eddie Guerrero #284 Exclusive](https://bestdeals4u.trade/post/wwe-eddie-guerrero-with-low-rider-gamestop-exclusive-284-w-pop-protector-new)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 75381 Droideka Sealed](https://bestdeals4u.trade/post/lego-star-wars-25th-anniversary-droideka-75381-brand-new-factory-sealed-box)
-- [LEGO 7678 Droid Gunship Sealed](https://bestdeals4u.trade/post/star-wars-lego-7678-droid-gunship-new-sealed-2)
+- [LEGO 75002 At-Rt Sealed](https://bestdeals4u.trade/post/lego-star-wars-at-rt-75002-retired-sealed-brand-new)
+- [LEGO 40461 Tulips Sealed](https://bestdeals4u.trade/post/lego-botanicals-tulips-40461-new-sealed-retired-set)
+
+### 🃏 Pokémon Cards
+- [Vintage Charizard Holo 4/102 Base Set 1999 Pokémon Card BGS 6](https://bestdeals4u.trade/post/charizard-holo-4-102-base-set-unlimited-1999-vintage-pokemon-card-bgs-6-ex-mt)
+- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
-- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
-- [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
+- [Strider Returns Journey From Darkness Sega Genesis at $29.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/strider-returns-journey-from-darkness-sega-genesis-complete-in-box-tested)
+- [Market Review: Luigi's Mansion (GameCube) Complete w/ Manual VG](https://bestdeals4u.trade/post/luigi-s-mansion-nintendo-gamecube-complete-w-manual-vg-condition-nice-disc)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
