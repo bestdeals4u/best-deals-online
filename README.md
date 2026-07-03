@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Esmerlyn Valdez 2024 Bowman PSA 10](https://bestdeals4u.trade/post/esmerlyn-valdez-1st-auto-2024-bowman-cpa-ev-refractor-auto-499-psa-10-gem-mint)
-- [How Good of a Deal Is This Pat Corrales 1972 Topps Cincinnati Reds High Number?](https://bestdeals4u.trade/post/pat-corrales-1972-topps-baseball-card-705-cincinnati-reds-high-number)
+- [Zack Gelof 2024 Topps Chrome Black RC PSA 10](https://bestdeals4u.trade/post/topps-2024-chrome-black-ivory-auto-zack-gelof-cpa-zg-rc-50-psa-10-a-s)
+- [Bo Naylor 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/topps-2023-topps-chrome-bo-naylor-rookie-auto-blue-raywave-150-psa-10-ra-bn)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop!: Dragon Ball - Jiren (Glows In The Dark) - Funko (Exclusive) #1285](https://bestdeals4u.trade/post/funko-pop-dragon-ball-jiren-glows-in-the-dark-funko-exclusive-1285)
-- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
+- [Funko Pop, Fluffy #420 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-despicable-me-fluffy-flocked-420-kohls-exclusive)
+- [Funko Pop, Ichigo #1087 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-bleach-ichigo-chase-aaa-anime-exclusive-vinyl-figure-1087)
 
 ### 🧱 LEGO
-- [LEGO 75171 Battle on Scarif Sealed](https://bestdeals4u.trade/post/lego-star-wars-battle-on-scarif-75171-factory-sealed-retired)
-- [LEGO 10835 Family House Sealed](https://bestdeals4u.trade/post/lego-10835-duplo-family-house-new-sealed-retired-rare-child-car-home)
+- [LEGO 31077 Modular Sweet Surprises Sealed](https://bestdeals4u.trade/post/lego-31077-creator-3-in-1-modular-sweet-surprises-new-sealed-retired-town)
+- [LEGO 8092 Luke's Landspeeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-8092-luke-s-landspeeder-special-edition-7-retired-new)
 
 ### 🃏 Pokémon Cards
-- [Mega Charizard X EX 109 PSA 10 Ultra 2025 Pokémon PFL EN Gem PSA 10 at $274.65 - Buy Now or Wait?](https://bestdeals4u.trade/post/mega-charizard-x-ex-109-psa-10-ultra-rare-2025-pok-mon-pfl-en-gem-mint-psa-10)
-- [How Good of a Deal Is This Edition Slowking Holo PSA 8?](https://bestdeals4u.trade/post/pokemon-1st-edition-slowking-holo-neo-genesis-psa-8-swirl)
+- [Market Review: PSA 1 Vaporeon Gold Star 102/108 2007 Pokemon EX Power Keepers Holo](https://bestdeals4u.trade/post/psa-1-vaporeon-gold-star-102-108-2007-pokemon-ex-power-keepers-holo)
+- [Mega Evolution PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-180-mega-absol-ex-special-illustration-rare-psa-10)
 
 ### 🎮 Video Games
 - [Super Smash Bros. Melee 2001 for Nintendo GameCube](https://bestdeals4u.trade/post/super-smash-bros-melee-gamecube-2001-tested)
