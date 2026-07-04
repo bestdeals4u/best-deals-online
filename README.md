@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Enyel De Los Santos 2019 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2019-chrome-rookie-orange-refractor-15-25-enyel-de-los-santos-psa-10-auto-1da)
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
+- [Topps Turkey Red Justin Verlander Graded PSA 6 Rookie - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/2005-topps-turkey-red-justin-verlander-272-graded-psa-6-rookie-baseball-card)
+- [Jesus Rodriguez 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/jesus-rodriguez-2024-bowman-chrome-refractor-auto-499-1st-bowman-psa-9)
 
 ### 🧸 Funko Pops
 - [Market Review: Funko Pop! Digital #385 Festival Of Fun Franny As Ice Skater Legendary LE 1900](https://bestdeals4u.trade/post/funko-pop-digital-385-festival-of-fun-franny-as-ice-skater-legendary-le-1900)
 - [Funko Pop, Deadpool #328 Chase Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-pandapool-flocked-chase-328-hot-topic-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 21343 Viking Village Sealed](https://bestdeals4u.trade/post/lego-ideas-21343-viking-village-new-factory-sealed-unopened)
-- [LEGO 8012 Super Battle Droid Sealed](https://bestdeals4u.trade/post/lego-star-wars-super-battle-droid-8012-brand-new-sealed)
+- [LEGO 60234 People Pack - Fun Fair Sealed](https://bestdeals4u.trade/post/lego-60234-city-people-pack-fun-fair-new-sealed-retired-14-minifigures)
+- [LEGO Harry Potter 40677 Prisoner of Azkaban Brickheadz New Sealed Listing](https://bestdeals4u.trade/post/lego-harry-potter-40677-prisoner-of-azkaban-brickheadz-new-sealed-retired-rare)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Special Illustration Rare Pokemon Card SALAMENCE EX 187/159 Journey Together](https://bestdeals4u.trade/post/special-illustration-rare-pokemon-card-salamence-ex-187-159-journey-together)
-- [CGC Gem Aerodactyl - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/cgc-gem-mint-10-aerodactyl-v-106-100-alt-art-lost-abyss-japanese-pokemon-2022)
+- [Mewtwo 150 PSA 8](https://bestdeals4u.trade/post/psa-8-1996-japanese-bandai-carddass-vending-mewtwo-prism-150-nm-mt-pokemon)
+- [Market Review: PSA 9 2024 Giratina V Alt Art Chinese Lost Abyss #150/131 Pokemon Card SR](https://bestdeals4u.trade/post/psa-9-2024-giratina-v-alt-art-chinese-lost-abyss-150-131-pokemon-card-sr)
 
 ### 🎮 Video Games
 - [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
