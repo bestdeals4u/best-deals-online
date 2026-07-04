@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Enyel De Los Santos 2019 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2019-chrome-rookie-orange-refractor-15-25-enyel-de-los-santos-psa-10-auto-1da)
+- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Market Review: Funko Pop! Digital #385 Festival Of Fun Franny As Ice Skater Legendary LE 1900](https://bestdeals4u.trade/post/funko-pop-digital-385-festival-of-fun-franny-as-ice-skater-legendary-le-1900)
+- [Funko Pop, Deadpool #328 Chase Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-pandapool-flocked-chase-328-hot-topic-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
+- [LEGO 21343 Viking Village Sealed](https://bestdeals4u.trade/post/lego-ideas-21343-viking-village-new-factory-sealed-unopened)
+- [LEGO 8012 Super Battle Droid Sealed](https://bestdeals4u.trade/post/lego-star-wars-super-battle-droid-8012-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Wht White Flare PSA 10 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2025-pokemon-wht-en-white-flare-special-illustration-rare-167-keldeo-ex-psa-10)
+- [Market Review: Special Illustration Rare Pokemon Card SALAMENCE EX 187/159 Journey Together](https://bestdeals4u.trade/post/special-illustration-rare-pokemon-card-salamence-ex-187-159-journey-together)
+- [CGC Gem Aerodactyl - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/cgc-gem-mint-10-aerodactyl-v-106-100-alt-art-lost-abyss-japanese-pokemon-2022)
 
 ### 🎮 Video Games
-- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
+- [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
