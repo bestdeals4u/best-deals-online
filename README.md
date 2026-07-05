@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [How Good of a Deal Is This Bowman Enos Slaughter SGC 1 Rookie Vintage HOF Graded?](https://bestdeals4u.trade/post/1948-bowman-enos-slaughter-17-sgc-1-rookie-vintage-baseball-card-hof-graded)
 - [Joendry Vargas 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-10-dodgers-rc-v6-3)
-- [Topps Hal McRae / Bill Henry Graded PSA 4 Rookie Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/1968-topps-hal-mcrae-bill-henry-384-graded-psa-4-rookie-baseball-card)
 
 ### 🧸 Funko Pops
-- [Funko Pop! Movies #69 Kill Bill - Bill Vaulted Grail Condition Overview](https://bestdeals4u.trade/post/funko-pop-movies-69-kill-bill-bill-vaulted-grail)
-- [Funko Pop, Ben Chang #842](https://bestdeals4u.trade/post/funko-pop-television-842-ben-chang-community-new-w-protector-vaulted)
+- [Funko Pop Eric Draven (Glow-in-the-Dark) #1429 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-eric-draven-glow-in-the-dark-1429-vinyl-figure-hot-topic-exclusive)
+- [Funko Pop, Multiple #1207 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-animation-care-bears-40th-wish-bear-1207-flocked-chase-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 80105 Chinese New Year Temple Fair Sealed](https://bestdeals4u.trade/post/lego-80105-temple-fair-chinese-new-year-brand-new-sealed-box-free-shipping)
-- [LEGO 75157 Star Wars: Captain Rex's AT-TE (Sealed)](https://bestdeals4u.trade/post/lego-star-wars-captain-rex-s-at-te-75157-new-sealed)
+- [LEGO 70639 Street Race of Snake Jaguar Sealed](https://bestdeals4u.trade/post/lego-ninjago-masters-of-spinjitzu-street-race-of-snake-jaguar-70639-sealed-new)
+- [LEGO 70810 MetalBeard's Sea Cow Sealed](https://bestdeals4u.trade/post/lego-70810-the-lego-movie-metalbeard-s-sea-cow-2741pcs-retired-sealed-new)
 
 ### 🃏 Pokémon Cards
-- [Pokemon Mage Card Pikachu Gold BRG 9 | Used Collectible Listing](https://bestdeals4u.trade/post/pokemon-mage-card-pikachu-gold-brg-9-rare-collectible)
-- [Black PSA 6 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2013-pokemon-black-white-promo-bw83-lugia-ex-promo-psa-6)
+- [PSA 10 Charizard V 103/100 Alt Art Star Birth Pokemon Card (Japanese)](https://bestdeals4u.trade/post/psa-10-charizard-v-103-100-alt-art-star-birth-pokemon-card-japanese-japan-imp)
+- [SVP EN Ultra Premium PSA 9 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2023-pokemon-svp-en-151-ultra-premium-collection-upc-052-mewtwo-psa-9-mint)
 
 ### 🎮 Video Games
 - [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
