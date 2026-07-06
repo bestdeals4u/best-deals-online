@@ -36,24 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kevin Alvarez 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-kevin-alvarez-refractor-auto-rookie-cpa-ka-321-499-psa-9)
-- [Everson Pereira 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-everson-pereira-rookie-blue-refractor-auto-150-rc-psa-10)
+- [Eduardo Herrera 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/eduardo-herrera-psa-10-2024-1st-bowman-chrome-auto-orange-refractor-25-rc-u6)
+- [Zach Lee 2010 Bowman Sterling BGS 9.5](https://bestdeals4u.trade/post/2010-bowman-sterling-prospects-gold-refractor-8-50-zach-lee-bgs-9-5-auto-9wb)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Is This Franny Ice Skater PCs Funko Pop #385 LE 1900 a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-digital-festival-of-fun-385-franny-ice-skater-legendary-le-1900-pcs)
+- [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-hot-topic-exclusive-w-protector-new)
+- [Funko Pop, Shakira #357](https://bestdeals4u.trade/post/funko-pop-rocks-shakira-shakira-357-vaulted-w-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 42127 THE BATMAN - BATMOBILE Sealed](https://bestdeals4u.trade/post/lego-technic-42127-the-batman-batmobile-retired-new-sealed)
-- [LEGO 10249 Winter Toy Shop Sealed](https://bestdeals4u.trade/post/lego-10249-creator-expert-winter-toy-shop-898pc-8-minifigs-retired-2015-sealed)
+- [LEGO 40788 Friendly Snails Sealed](https://bestdeals4u.trade/post/lego-ideas-40788-friendly-snails-exclusive-gwp-new-in-box-retired-us-stock)
+- [LEGO 71360 Adventures with Mario Starter Course Sealed](https://bestdeals4u.trade/post/lego-super-mario-adventures-with-mario-starter-course-71360-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Is Destined Rivals Ultra PSA 10 Priced Fairly at $130.35?](https://bestdeals4u.trade/post/2025-pokemon-destined-rivals-ultra-rare-team-rocket-s-mewtwo-ex-psa-10)
-- [Pokemon Fusion Strike Gengar VMAX Alternate Art Secret Rare PSA 10](https://bestdeals4u.trade/post/pokemon-tcg-fusion-strike-gengar-vmax-271-264-alternate-art-secret-rare-psa-10)
-
-### 🎮 Video Games
-- [AEW: Fight Forever - Sony PlayStation 4 - PS4 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/aew-fight-forever-sony-playstation-4-ps4-brand-new-sealed)
-- [The Legend of Zelda 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-collector-s-edition-nintendo-gamecube-2003)
+- [Pokémon TCG Iron Crown ex 206/162 PSA 10 Holo - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pok-mon-tcg-iron-crown-ex-206-162-psa-10-holo-special-illustration-rare)
+- [Market Review: PSA 10 Hisuian Windy Pokemon Dark Phantasma Card](https://bestdeals4u.trade/post/psa-10-hisuian-windy-pokemon-dark-phantasma-character-rare-pokemon-card)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
