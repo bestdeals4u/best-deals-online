@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Eduardo Herrera 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/eduardo-herrera-psa-10-2024-1st-bowman-chrome-auto-orange-refractor-25-rc-u6)
-- [Zach Lee 2010 Bowman Sterling BGS 9.5](https://bestdeals4u.trade/post/2010-bowman-sterling-prospects-gold-refractor-8-50-zach-lee-bgs-9-5-auto-9wb)
+- [Matt Szczur 2012 Bowman Chrome BGS 9](https://bestdeals4u.trade/post/2012-bowman-chrome-prospects-gold-refractor-37-50-matt-szczur-bgs-9-auto-00em)
+- [Is This Ronald Acuna Jr 2020 Bowman Baseball Refractor Card - Atlanta Braves Actually a Good Value?](https://bestdeals4u.trade/post/ronald-acuna-jr-2020-bowman-baseball-refractor-card-90b-raj-atlanta-braves)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-hot-topic-exclusive-w-protector-new)
-- [Funko Pop, Shakira #357](https://bestdeals4u.trade/post/funko-pop-rocks-shakira-shakira-357-vaulted-w-pop-protector)
+- [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
+- [Market Review: Funko POP! TV Friends HUGSY THE PENGUIN #1256 2022 Summer Convention Exclusive](https://bestdeals4u.trade/post/funko-pop-tv-friends-hugsy-the-penguin-1256-2022-summer-convention-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 40788 Friendly Snails Sealed](https://bestdeals4u.trade/post/lego-ideas-40788-friendly-snails-exclusive-gwp-new-in-box-retired-us-stock)
-- [LEGO 71360 Adventures with Mario Starter Course Sealed](https://bestdeals4u.trade/post/lego-super-mario-adventures-with-mario-starter-course-71360-new-in-sealed-box)
+- [LEGO 76908 Lamborghini Countach Sealed](https://bestdeals4u.trade/post/lego-76908-speed-champions-lamborghini-countach-new-sealed-retired-5)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Pokémon TCG Iron Crown ex 206/162 PSA 10 Holo - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pok-mon-tcg-iron-crown-ex-206-162-psa-10-holo-special-illustration-rare)
-- [Market Review: PSA 10 Hisuian Windy Pokemon Dark Phantasma Card](https://bestdeals4u.trade/post/psa-10-hisuian-windy-pokemon-dark-phantasma-character-rare-pokemon-card)
+- [Market Review: PSA 7 2006 Pokemon Crystal Guardians 2/100 Blastoise Delta Species Holo](https://bestdeals4u.trade/post/psa-7-2006-pokemon-crystal-guardians-2-100-blastoise-delta-species-holo)
+- [SWIRL Crystal Kingdra Holo PSA 9 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/swirl-pokemon-crystal-kingdra-holo-2003-aquapolis-148-psa-9-mint)
+
+### 🎮 Video Games
+- [Nicktoons: Battle for Volcano Island (GameCube, 2006) — Market Review](https://bestdeals4u.trade/post/nicktoons-battle-for-volcano-island-nintendo-gamecube-2006)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
