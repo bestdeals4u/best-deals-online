@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1990 Topps #336 Ken Griffey Jr. All-Star Rookie PSA 6](https://bestdeals4u.trade/post/1990-topps-336-ken-griffey-jr-all-star-rookie-psa-6-graded-baseball-card-mlb)
-- [Eduardo Tait 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-eduardo-tait-1st-speckle-refractor-auto-299-cpa-et-psa-10)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-psa-9-2023-1st-bowman-chrome-auto-prospect-refractor-499-rc-z3-2)
+- [Rylan Bannon 2019 Bowman PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-prospect-refractor-499-rylan-bannon-psa-10-gem-mt-auto-16r2-2)
 
 ### 🧸 Funko Pops
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 - [Funko Pop, Star Wars #126 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-hooded-luke-galactic-convention-exclusive-126-w-protector)
-- [Is This CORRUPTED VENON Pin Marvel - New Sealed In Box Funko Pop #18 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-corrupted-venon-pin-marvel-18-new-sealed-in-box)
 
 ### 🧱 LEGO
-- [LEGO 40591 Death Star II Sealed](https://bestdeals4u.trade/post/lego-star-wars-death-star-ii-40591-gwp-new-sealed-2)
-- [LEGO 77904 Nebulon-B Frigate Sealed](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-comic-con-exclusive-sealed-retired)
+- [LEGO 70688 Kai's Spinjitzu Ninja Training Sealed](https://bestdeals4u.trade/post/lego-ninjago-kai-s-spinjitzu-ninja-training-70688-new-factory-sealed-box-6)
+- [LEGO 71841 Dragonian Storm Village Sealed](https://bestdeals4u.trade/post/lego-ninjago-dragonian-storm-village-71841-new-sealed-box)
 
 ### 🃏 Pokémon Cards
+- [Thinking About Buying Mewtwo Holo D&P Legends Awakened 11/146 2008 PSA 7 nm? Read This First](https://bestdeals4u.trade/post/mewtwo-holo-rare-d-p-legends-awakened-11-146-2008-psa-7-nm)
 - [Asc Ascended Heroes Illustration PSA 10 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2026-pokemon-asc-en-ascended-heroes-illustration-rare-246-mawile-psa-10)
-- [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
 
 ### 🎮 Video Games
 - [New 6FT HD Component Cable for PS3/PS2 – 12-Pin Video Connectors](https://bestdeals4u.trade/post/revive-retro-gaming-with-6ft-hd-component-cable-for-ps3-ps2-12-pin-connectors)
