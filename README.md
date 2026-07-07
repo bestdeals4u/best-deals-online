@@ -36,23 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [CJ Abrams 2022 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/cj-abrams-psa-9-2022-topps-chrome-rc-auto-rookie-orange-wave-refractor-25-z1)
-- [Drew Romo 2020 Bowman Draft RC PSA 10](https://bestdeals4u.trade/post/psa-10-drew-romo-2020-bowman-draft-chrome-1st-auto-rc-blue-wave-refractor-150)
+- [Justin Foscue 2024 Topps RC PSA 10](https://bestdeals4u.trade/post/justin-foscue-rc-2024-topps-silver-pack-auto-red-refractor-5-psa-10-10)
+- [Kyle Harrison 2024 Topps PSA 9](https://bestdeals4u.trade/post/2024-topps-silver-pack-chrome-kyle-harrison-gold-refractor-auto-50-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop Rock Michael Jackson Glove #26 — New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-glove-26-excellent-condition-vaulted-rare-grail)
-- [Brass Dragon Wyrmling Supreme! ECCC Exclusive LE Funko Pop #1201 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/brass-dragon-wyrmling-supreme-funko-pop-eccc-exclusive-le-8000pcs-1201)
+- [Is This CORRUPTED VENON Pin Marvel - New Sealed In Box Funko Pop #18 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-corrupted-venon-pin-marvel-18-new-sealed-in-box)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO 10220 Volkswagen T1 Camper Van Sealed](https://bestdeals4u.trade/post/10220-lego-volkswagen-t1-camper-van-creator-expert-brand-new-sealed-nisb)
-- [LEGO 42098 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-technic-42098-car-transporter-retired-2-in-1-truck-2493-pcs-new-sealed)
+- [LEGO 42079 Heavy Duty Forklift Sealed](https://bestdeals4u.trade/post/lego-42079-technic-heavy-duty-forklift-2-in-1-retired-sealed-new)
+- [LEGO 21343 Viking Village Sealed](https://bestdeals4u.trade/post/lego-ideas-set-21343-viking-village-new-sealed-retired-set)
 
 ### 🃏 Pokémon Cards
-- [Lugia V PSA 10 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/pokemon-psa-10-lugia-v-322-s-p-mystery-box-promo-2022-japanese)
-- [SHADOWLESS Machamp Base Set 1st Edition 8/102 Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/shadowless-machamp-base-set-1st-edition-8-102-holo-rare-pokemon-card)
+- [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
 
 ### 🎮 Video Games
-- [Call of Duty Advanced Warfare Gold Edition PS3 New Factory Sealed Insight](https://bestdeals4u.trade/post/call-of-duty-advanced-warfare-gold-edition-playstation-3-ps3-new-factory-sealed)
+- [New 6FT HD Component Cable for PS3/PS2 – 12-Pin Video Connectors](https://bestdeals4u.trade/post/revive-retro-gaming-with-6ft-hd-component-cable-for-ps3-ps2-12-pin-connectors)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
