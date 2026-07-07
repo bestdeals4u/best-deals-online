@@ -36,18 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Justin Foscue 2024 Topps RC PSA 10](https://bestdeals4u.trade/post/justin-foscue-rc-2024-topps-silver-pack-auto-red-refractor-5-psa-10-10)
-- [Kyle Harrison 2024 Topps PSA 9](https://bestdeals4u.trade/post/2024-topps-silver-pack-chrome-kyle-harrison-gold-refractor-auto-50-psa-9)
+- [Market Review: 1990 Topps #336 Ken Griffey Jr. All-Star Rookie PSA 6](https://bestdeals4u.trade/post/1990-topps-336-ken-griffey-jr-all-star-rookie-psa-6-graded-baseball-card-mlb)
+- [Eduardo Tait 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-eduardo-tait-1st-speckle-refractor-auto-299-cpa-et-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Star Wars #126 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-hooded-luke-galactic-convention-exclusive-126-w-protector)
 - [Is This CORRUPTED VENON Pin Marvel - New Sealed In Box Funko Pop #18 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-corrupted-venon-pin-marvel-18-new-sealed-in-box)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO 42079 Heavy Duty Forklift Sealed](https://bestdeals4u.trade/post/lego-42079-technic-heavy-duty-forklift-2-in-1-retired-sealed-new)
-- [LEGO 21343 Viking Village Sealed](https://bestdeals4u.trade/post/lego-ideas-set-21343-viking-village-new-sealed-retired-set)
+- [LEGO 40591 Death Star II Sealed](https://bestdeals4u.trade/post/lego-star-wars-death-star-ii-40591-gwp-new-sealed-2)
+- [LEGO 77904 Nebulon-B Frigate Sealed](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-comic-con-exclusive-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [Asc Ascended Heroes Illustration PSA 10 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2026-pokemon-asc-en-ascended-heroes-illustration-rare-246-mawile-psa-10)
 - [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
 
 ### 🎮 Video Games
