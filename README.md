@@ -44,10 +44,11 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop! Marvel Doctor Doom 591 Fantastic Four ECCC + Free Protector](https://bestdeals4u.trade/post/funko-pop-marvel-doctor-doom-591-fantastic-four-eccc-free-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
-- [LEGO 910040 Harbormaster’s Office Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-bricklink-designer-program-harbormaster-s-office-910040)
+- [LEGO 75281 Anakin's Jedi Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75281-anakin-s-jedi-interceptor-brand-new-sealed-retired-rare)
+- [Market Review: Lego #76403 The Ministry of Magic Harry Potter Retired Brand New Factory Sealed](https://bestdeals4u.trade/post/lego-76403-the-ministry-of-magic-harry-potter-retired-brand-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
+- [Reverse Holo PSA 8 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2000-pokemon-japanese-neo-2-charizard-006-promo-reverse-holo-psa-8)
 - [Cape of Toughness 200/185 Vivid Voltage 2020 Gold Secret Rare](https://bestdeals4u.trade/post/cape-of-toughness-200-185-2020-vivid-voltage-2020-pokemon-card-gold-secret-rare)
 
 ### 🎮 Video Games
