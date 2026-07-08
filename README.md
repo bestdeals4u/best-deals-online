@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Shota Imanaga 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/shota-imanaga-2024-topps-chrome-rasi-rookie-auto-purple-250-psa-10-gem-mt-cubs)
-- [Bralyn Brazoban 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-bralyn-brazoban-auto-refractor-d-499-psa-9-rc-pirates)
+- [Victor Izturis 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-orange-shimmer-refractor-25-25-victor-izturis-psa-9-auto-03ox)
+- [Hunter Goodman 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-1st-hunter-goodman-auto-50-gold-wave-refractor-mint-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Will Byers #29 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-stranger-things-will-29-8-bit-target-exclusive-chase-w-protector)
-- [Funko Pop, ! Vinyl: #203 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-wwe-john-cena-walmart-exclusive-203-protector)
+- [Funko Pop, Snoop Dogg #303 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-snoop-dogg-lakers-303-w-protector-new-vaulted-exclusive-15k-pc)
+- [Funko Pop! Marvel Doctor Doom 591 Fantastic Four ECCC + Free Protector](https://bestdeals4u.trade/post/funko-pop-marvel-doctor-doom-591-fantastic-four-eccc-free-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 75133 Battle Pack Sealed](https://bestdeals4u.trade/post/lego-star-wars-75133-rebel-alliance-battle-pack-sealed-box-retired-not-mint)
-- [LEGO 10266 NASA Apollo 11 Lunar Lander Sealed](https://bestdeals4u.trade/post/lego-10266-creator-nasa-apollo-11-lunar-lander-retired-set-new-sealed)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO 910040 Harbormaster’s Office Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-bricklink-designer-program-harbormaster-s-office-910040)
+
+### 🃏 Pokémon Cards
+- [Cape of Toughness 200/185 Vivid Voltage 2020 Gold Secret Rare](https://bestdeals4u.trade/post/cape-of-toughness-200-185-2020-vivid-voltage-2020-pokemon-card-gold-secret-rare)
 
 ### 🎮 Video Games
+- [Donkey Kong Country 3: Dixie Kong's Double Trouble! 1996 for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-3-snes-super-nintendo-complete-in-box)
 - [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
-- [My Universe Puppies And Kittens PlayStation 4 PS4 Video Game Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/my-universe-puppies-and-kittens-playstation-4-ps4-video-game-brand-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
