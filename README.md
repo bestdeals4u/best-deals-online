@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Yordan Alvarez 2020 Bowman Sterling RC PSA 10](https://bestdeals4u.trade/post/yordan-alvarez-2020-bowman-sterling-blue-die-cut-25-psa-10-rookie-auto-rc-pop-3)
-- [Braylon Payne 2024 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-chrome-braylon-payne-1st-bowman-auto-refractor-499-psa-9)
+- [Caden Dana 2023 Bowman RC PSA 10](https://bestdeals4u.trade/post/caden-dana-psa-10-2023-1st-bowman-chrome-auto-prospect-green-refractor-99-rc-z4-2)
+- [Junior Caminero 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-junior-caminero-gladiators-of-the-diamond-auto-99-rc-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
 - [Funko Pop, Invisible Woman #567 Exclusive](https://bestdeals4u.trade/post/funko-pop-fantastic-four-invisible-girl-567-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 8061 Gateway of the Squid Sealed](https://bestdeals4u.trade/post/lego-8061-atlantis-gateway-of-the-squid-retired-factory-sealed-new-nib-retired)
-- [LEGO 76426 Harry Potter Hogwarts Castle Boathouse - / at $49.49, below recent comps](https://bestdeals4u.trade/post/lego-76426-harry-potter-hogwarts-castle-boathouse-sealed-new)
+- [LEGO 8092 Luke's Landspeeder Sealed](https://bestdeals4u.trade/post/lego-8092-star-wars-luke-s-landspeeder-special-edition-new-sealed-mint-retired)
+- [LEGO 60110 Fire Station Sealed](https://bestdeals4u.trade/post/lego-city-fire-station-60110-new-sealed-retired-2018)
 
 ### 🃏 Pokémon Cards
+- [Team Rockets Mewtwo Destined PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/team-rockets-mewtwo-ex-psa-10-english-pokemon-card-240-destined-rivals-gold-2025)
 - [Market Review: Erika's Invitation - 203/165 - Pokemon 151 Special Illustration Rare Card NM](https://bestdeals4u.trade/post/erika-s-invitation-203-165-pokemon-151-special-illustration-rare-card-nm)
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
 
 ### 🎮 Video Games
 - [Market Review: EB GAMES Nintendo GameCube Magazine Ad Resident Evil 4 MK Deception 2005 Print](https://bestdeals4u.trade/post/eb-games-nintendo-gamecube-magazine-ad-resident-evil-4-mk-deception-2005-print)
