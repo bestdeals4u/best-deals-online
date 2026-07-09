@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [HENDRY MENDEZ 2022 BOWMAN CHROME PROSPECT AUTOGRAPHS RC PSA 10](https://bestdeals4u.trade/post/hendry-mendez-2022-bowman-1st-true-blue-ref-rc-auto-150-psa-9-mint-qty)
 - [Trevor Hauver 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-green-refractor-70-99-trevor-hauver-psa-10-gem-mt-auto-0rw8)
-- [Colt Emerson 2023 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/colt-emerson-rookie-auto-psa-9-10-2023-bowman-chrome-draft-class-of-23)
 
 ### 🧸 Funko Pops
 - [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
 - [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
 
 ### 🧱 LEGO
-- [LEGO 10265 Ford Mustang Sealed](https://bestdeals4u.trade/post/lego-10265-creator-expert-ford-mustang-car-vehicle-retired-brand-new-sealed)
-- [LEGO 10263 Winter Village Fire Station Sealed](https://bestdeals4u.trade/post/lego-10263-winter-village-fire-station-new-sealed-retired-christmas-set)
+- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: PSA 7 Lugia 2000 Japanese Promo #249](https://bestdeals4u.trade/post/psa-7-lugia-2000-pokemon-promo-249-neo-3-japanese-nm-low-pop)
