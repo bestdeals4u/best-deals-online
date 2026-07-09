@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Caden Dana 2023 Bowman RC PSA 10](https://bestdeals4u.trade/post/caden-dana-psa-10-2023-1st-bowman-chrome-auto-prospect-green-refractor-99-rc-z4-2)
-- [Junior Caminero 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-junior-caminero-gladiators-of-the-diamond-auto-99-rc-psa-9)
+- [Trevor Hauver 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-green-refractor-70-99-trevor-hauver-psa-10-gem-mt-auto-0rw8)
+- [Colt Emerson 2023 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/colt-emerson-rookie-auto-psa-9-10-2023-bowman-chrome-draft-class-of-23)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
-- [Funko Pop, Invisible Woman #567 Exclusive](https://bestdeals4u.trade/post/funko-pop-fantastic-four-invisible-girl-567-gamestop-exclusive-w-protector)
+- [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
+- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
 
 ### 🧱 LEGO
-- [LEGO 8092 Luke's Landspeeder Sealed](https://bestdeals4u.trade/post/lego-8092-star-wars-luke-s-landspeeder-special-edition-new-sealed-mint-retired)
-- [LEGO 60110 Fire Station Sealed](https://bestdeals4u.trade/post/lego-city-fire-station-60110-new-sealed-retired-2018)
+- [LEGO 10265 Ford Mustang Sealed](https://bestdeals4u.trade/post/lego-10265-creator-expert-ford-mustang-car-vehicle-retired-brand-new-sealed)
+- [LEGO 10263 Winter Village Fire Station Sealed](https://bestdeals4u.trade/post/lego-10263-winter-village-fire-station-new-sealed-retired-christmas-set)
 
 ### 🃏 Pokémon Cards
-- [Team Rockets Mewtwo Destined PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/team-rockets-mewtwo-ex-psa-10-english-pokemon-card-240-destined-rivals-gold-2025)
-- [Market Review: Erika's Invitation - 203/165 - Pokemon 151 Special Illustration Rare Card NM](https://bestdeals4u.trade/post/erika-s-invitation-203-165-pokemon-151-special-illustration-rare-card-nm)
+- [Market Review: PSA 7 Lugia 2000 Japanese Promo #249](https://bestdeals4u.trade/post/psa-7-lugia-2000-pokemon-promo-249-neo-3-japanese-nm-low-pop)
+- [Fates Collide PSA 8 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2016-pokemon-xy-fates-collide-79-lugia-break-psa-8)
 
 ### 🎮 Video Games
 - [Market Review: EB GAMES Nintendo GameCube Magazine Ad Resident Evil 4 MK Deception 2005 Print](https://bestdeals4u.trade/post/eb-games-nintendo-gamecube-magazine-ad-resident-evil-4-mk-deception-2005-print)
