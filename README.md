@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
+- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
+- [2024 Flawless 1st On Print #1/10 Auto Jacob Wilson Gold Jumbo Patch Rookie Card](https://bestdeals4u.trade/post/2024-flawless-1st-on-print-1-10-auto-jacob-wilson-gold-jumbo-patch-rookie-card)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Ben Chang #842](https://bestdeals4u.trade/post/funko-pop-television-842-ben-chang-community-new-w-protector-vaulted)
 - [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 71738 Zane's Titan Mech Battle Sealed](https://bestdeals4u.trade/post/retired-lego-ninjago-zane-s-titan-mech-battle-71738-brand-new-sealed)
-- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
+- [LEGO 42083 Bugatti Chiron Sealed](https://bestdeals4u.trade/post/lego-technic-bugatti-chiron-42083-retired-brand-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
 - [FULL ART/PIKACHU 160 2023 POKEMON SWORD AND SHIELD CROWN ZENITH PSA 9](https://bestdeals4u.trade/post/2023-pokemon-sword-shield-crown-zenith-160-full-art-pikachu-psa-9)
@@ -53,7 +53,6 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### 🎮 Video Games
 - [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
-- [Market Review: EB GAMES Nintendo GameCube Magazine Ad Resident Evil 4 MK Deception 2005 Print](https://bestdeals4u.trade/post/eb-games-nintendo-gamecube-magazine-ad-resident-evil-4-mk-deception-2005-print)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
