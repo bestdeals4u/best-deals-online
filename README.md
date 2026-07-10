@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [HENDRY MENDEZ 2022 BOWMAN CHROME PROSPECT AUTOGRAPHS RC PSA 10](https://bestdeals4u.trade/post/hendry-mendez-2022-bowman-1st-true-blue-ref-rc-auto-150-psa-9-mint-qty)
-- [Trevor Hauver 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-green-refractor-70-99-trevor-hauver-psa-10-gem-mt-auto-0rw8)
+- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Ben Chang #842](https://bestdeals4u.trade/post/funko-pop-television-842-ben-chang-community-new-w-protector-vaulted)
 - [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
-- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
 
 ### 🧱 LEGO
-- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 71738 Zane's Titan Mech Battle Sealed](https://bestdeals4u.trade/post/retired-lego-ninjago-zane-s-titan-mech-battle-71738-brand-new-sealed)
+- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [FULL ART/PIKACHU 160 2023 POKEMON SWORD AND SHIELD CROWN ZENITH PSA 9](https://bestdeals4u.trade/post/2023-pokemon-sword-shield-crown-zenith-160-full-art-pikachu-psa-9)
 - [Market Review: PSA 7 Lugia 2000 Japanese Promo #249](https://bestdeals4u.trade/post/psa-7-lugia-2000-pokemon-promo-249-neo-3-japanese-nm-low-pop)
-- [Fates Collide PSA 8 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/2016-pokemon-xy-fates-collide-79-lugia-break-psa-8)
 
 ### 🎮 Video Games
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
 - [Market Review: EB GAMES Nintendo GameCube Magazine Ad Resident Evil 4 MK Deception 2005 Print](https://bestdeals4u.trade/post/eb-games-nintendo-gamecube-magazine-ad-resident-evil-4-mk-deception-2005-print)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
