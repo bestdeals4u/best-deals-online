@@ -36,20 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Aristides Aquino 2020 Panini Prizm RC PSA 10](https://bestdeals4u.trade/post/2020-prizm-rookie-hot-box-red-orange-14-25-aristides-aquino-psa-10-auto-2zr-2)
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
+- [Tarik Skubal 2022 Topps Chrome PSA 8](https://bestdeals4u.trade/post/2022-topps-chrome-tarik-skubal-blue-ray-wave-refractor-108-150-psa-9-auto-8)
+- [Market Review: GIL GARRIDO 1972 TOPPS BASEBALL CARD #758 Atlanta Braves High Number](https://bestdeals4u.trade/post/gil-garrido-1972-topps-baseball-card-758-atlanta-braves-high-number)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Negan #390](https://bestdeals4u.trade/post/funko-pop-the-walking-dead-negan-390-vinyl-figure-mib-vaulted-w-protector)
 - [Market Review: Funko Pop! RoboCop 2 Metallic Vinyl Figure #1989 Limited Chase With Protector](https://bestdeals4u.trade/post/funko-pop-robocop-2-metallic-vinyl-figure-1989-limited-chase-with-protector)
-- [Funko Pop Son Goku, Super Saiyan Son Goku #860 Glow](https://bestdeals4u.trade/post/funko-pop-dbz-super-saiyan-goku-glow-first-appearance-860-go-exc-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 10270: Bookshop Creator Expert - New & Retired](https://bestdeals4u.trade/post/lego-10270-bookshop-creator-expert-new-factory-sealed-retired)
-- [Is This LEGO Star Wars: Inquisitor Transport Scythe (75336) | New, Sealed, ret a Good Deal Right Now?](https://bestdeals4u.trade/post/lego-star-wars-inquisitor-transport-scythe-75336-new-sealed-retired)
+- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-100th-anniversary-retired-set-sealed-new-in-box)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 1999 POKEMON BASE SET SHADOWLESS #2 BLASTOISE-HOLO PSA 5](https://bestdeals4u.trade/post/1999-pokemon-base-set-shadowless-2-blastoise-holo-psa-5)
 - [Regidrago V PSA 10 English Pokemon Card 184/195 Silver Tempest 2022](https://bestdeals4u.trade/post/regidrago-v-psa-10-english-pokemon-card-184-195-silver-tempest-2022-alt-art)
+
+### 🎮 Video Games
+- [Is This Nintendo The Legend of Zelda Wind Waker 2003 Action Manual not Included for Actually a Good Value?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-wind-waker-gamecube-2003-action-manual-not-included)
+- [Market Review: Pikmin (Nintendo GameCube, 2001) Black Label - Tested/Working - CIB W/Inserts!](https://bestdeals4u.trade/post/pikmin-nintendo-gamecube-2001-black-label-tested-working-cib-w-inserts)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
