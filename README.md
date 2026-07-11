@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Tarik Skubal 2022 Topps Chrome PSA 8](https://bestdeals4u.trade/post/2022-topps-chrome-tarik-skubal-blue-ray-wave-refractor-108-150-psa-9-auto-8)
-- [Market Review: GIL GARRIDO 1972 TOPPS BASEBALL CARD #758 Atlanta Braves High Number](https://bestdeals4u.trade/post/gil-garrido-1972-topps-baseball-card-758-atlanta-braves-high-number)
+- [Jesus Rodriguez 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/jesus-rodriguez-2024-bowman-chrome-refractor-auto-499-1st-bowman-psa-10)
+- [Adley Rutschman 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-blue-raywave-adley-rutschman-rookie-card-rc-auto-150-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Negan #390](https://bestdeals4u.trade/post/funko-pop-the-walking-dead-negan-390-vinyl-figure-mib-vaulted-w-protector)
-- [Market Review: Funko Pop! RoboCop 2 Metallic Vinyl Figure #1989 Limited Chase With Protector](https://bestdeals4u.trade/post/funko-pop-robocop-2-metallic-vinyl-figure-1989-limited-chase-with-protector)
+- [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
+- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
 
 ### 🧱 LEGO
-- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-100th-anniversary-retired-set-sealed-new-in-box)
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
+- [LEGO 40292 Christmas Gift Box Sealed](https://bestdeals4u.trade/post/lego-seasonal-christmas-gift-box-40292-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 1999 POKEMON BASE SET SHADOWLESS #2 BLASTOISE-HOLO PSA 5](https://bestdeals4u.trade/post/1999-pokemon-base-set-shadowless-2-blastoise-holo-psa-5)
-- [Regidrago V PSA 10 English Pokemon Card 184/195 Silver Tempest 2022](https://bestdeals4u.trade/post/regidrago-v-psa-10-english-pokemon-card-184-195-silver-tempest-2022-alt-art)
+- [Chansey 003/102 Base Set Holo PSA 7 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/chansey-003-102-base-set-holo-psa-7)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
 
 ### 🎮 Video Games
 - [Is This Nintendo The Legend of Zelda Wind Waker 2003 Action Manual not Included for Actually a Good Value?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-wind-waker-gamecube-2003-action-manual-not-included)
-- [Market Review: Pikmin (Nintendo GameCube, 2001) Black Label - Tested/Working - CIB W/Inserts!](https://bestdeals4u.trade/post/pikmin-nintendo-gamecube-2001-black-label-tested-working-cib-w-inserts)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
