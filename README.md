@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
-- [2024 Flawless 1st On Print #1/10 Auto Jacob Wilson Gold Jumbo Patch Rookie Card](https://bestdeals4u.trade/post/2024-flawless-1st-on-print-1-10-auto-jacob-wilson-gold-jumbo-patch-rookie-card)
+- [Joe Mack 2021 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2021-bowman-draft-cda-jma-joe-mack-sparkle-refractor-auto-71-psa-10-marlins)
+- [Pierce Johnson 2014 Bowman BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-gold-refractor-15-50-pierce-johnson-bgs-9-5-gem-mint-auto-00em)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Ben Chang #842](https://bestdeals4u.trade/post/funko-pop-television-842-ben-chang-community-new-w-protector-vaulted)
 - [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 42083 Bugatti Chiron Sealed](https://bestdeals4u.trade/post/lego-technic-bugatti-chiron-42083-retired-brand-new-factory-sealed)
+- [LEGO 6425781 YAMAHA MT-10sp Sealed](https://bestdeals4u.trade/post/new-in-box-nib-42159-lego-technic-yamaha-mt-10-sp-retired-set)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
 
 ### 🃏 Pokémon Cards
+- [Pokémon Neo Premium File 2 Umbreon Promo Regular Japanese PSA 9 2000 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pok-mon-neo-premium-file-2-umbreon-197-promo-regular-japanese-psa-9-2000)
 - [FULL ART/PIKACHU 160 2023 POKEMON SWORD AND SHIELD CROWN ZENITH PSA 9](https://bestdeals4u.trade/post/2023-pokemon-sword-shield-crown-zenith-160-full-art-pikachu-psa-9)
-- [Market Review: PSA 7 Lugia 2000 Japanese Promo #249](https://bestdeals4u.trade/post/psa-7-lugia-2000-pokemon-promo-249-neo-3-japanese-nm-low-pop)
 
 ### 🎮 Video Games
+- [Harvest Moon: A Wonderful Life 2004 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-a-wonderful-life-nintendo-gamecube-new-factory-sealed-2004)
 - [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
