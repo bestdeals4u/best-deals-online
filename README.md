@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Nolan Arenado 2013 Sterling RC BGS 9](https://bestdeals4u.trade/post/nolan-arenado-2013-bowman-sterling-rookie-auto-green-refractor-94-125-bgs-9-10)
 - [Cole Ragans 2016 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/cole-ragans-psa-9-2016-1st-bowman-chrome-auto-prospect-refractor-499-rc-mint-h6)
-- [Abimelec Ortiz 2024 Bowman's Best PSA 10](https://bestdeals4u.trade/post/2024-bowman-s-best-abimelec-ortiz-auto-gold-mini-diamond-refractor-50-psa-10)
 
 ### 🧸 Funko Pops
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 40539 Ahsoka Tano Sealed](https://bestdeals4u.trade/post/lego-star-wars-brickheadz-ashoka-tano-40539-tusken-raider-40615-new-sealed)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 60194 Arctic Scout Truck Sealed](https://bestdeals4u.trade/post/new-sealed-lego-city-arctic-scout-truck-60194-322-pieces-retired)
 
 ### 🎮 Video Games
 - [Monopoly Party (2002) No manual for GameCube Price Check - Worth It or Not?](https://bestdeals4u.trade/post/monopoly-party-nintendo-gamecube-2002-no-manual)
