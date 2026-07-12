@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Wilmin Candelario 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/topps-2022-bowman-chrome-wilmin-candelario-rc-auto-refractor-499-psa-10)
-- [Brice Matthews 2024 Bowman PSA 9](https://bestdeals4u.trade/post/2024-bowman-brice-matthews-true-gold-refractor-auto-10-50-psa-9)
+- [Cole Ragans 2016 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/cole-ragans-psa-9-2016-1st-bowman-chrome-auto-prospect-refractor-499-rc-mint-h6)
+- [Abimelec Ortiz 2024 Bowman's Best PSA 10](https://bestdeals4u.trade/post/2024-bowman-s-best-abimelec-ortiz-auto-gold-mini-diamond-refractor-50-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 75280 501st Legion Clone Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-501st-legion-clone-troopers-75280-sealed-box-brand-new)
-
-### 🃏 Pokémon Cards
-- [Chansey 003/102 Base Set Holo PSA 7 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/chansey-003-102-base-set-holo-psa-7)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
+- [LEGO 40539 Ahsoka Tano Sealed](https://bestdeals4u.trade/post/lego-star-wars-brickheadz-ashoka-tano-40539-tusken-raider-40615-new-sealed)
 
 ### 🎮 Video Games
-- [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
-- [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
+- [Monopoly Party (2002) No manual for GameCube Price Check - Worth It or Not?](https://bestdeals4u.trade/post/monopoly-party-nintendo-gamecube-2002-no-manual)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
