@@ -36,16 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nolan Arenado 2013 Sterling RC BGS 9](https://bestdeals4u.trade/post/nolan-arenado-2013-bowman-sterling-rookie-auto-green-refractor-94-125-bgs-9-10)
-- [Cole Ragans 2016 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/cole-ragans-psa-9-2016-1st-bowman-chrome-auto-prospect-refractor-499-rc-mint-h6)
+- [Spencer Horwitz 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/spencer-horwitz-2024-topps-chrome-rc-auto-gold-wave-refractor-50-psa-10-gem-v6)
+- [Émilien Pitre 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/milien-pitre-rc-499-1st-rookie-auto-refractor-2025-bowman-cpa-epi-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, ! LILLY #01](https://bestdeals4u.trade/post/funko-pop-lilly-01-you-are-one-of-one-vaulted-w-protector)
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
-- [LEGO 60194 Arctic Scout Truck Sealed](https://bestdeals4u.trade/post/new-sealed-lego-city-arctic-scout-truck-60194-322-pieces-retired)
+- [LEGO 75947 Hagrid's Hut: Buckbeak's Rescue Sealed](https://bestdeals4u.trade/post/retired-lego-75947-hagrid-s-hut-buckbeak-s-rescue-new-sealed-harry-potter-set)
+- [Lego Harry Potter 76409: Gryfindor House Banner Set - Factory Seal Price Check - Worth It or Not?](https://bestdeals4u.trade/post/lego-harry-potter-76409-gryfindor-house-banner-set-new-factory-sealed-retired)
+
+### 🃏 Pokémon Cards
+- [Market Review: CGC 10 Miltank 199/172 AR Art Rare VSTAR Universe s12a Pokemon Card](https://bestdeals4u.trade/post/cgc-10-miltank-199-172-ar-art-rare-vstar-universe-s12a-pokemon-card)
 
 ### 🎮 Video Games
 - [Monopoly Party (2002) No manual for GameCube Price Check - Worth It or Not?](https://bestdeals4u.trade/post/monopoly-party-nintendo-gamecube-2002-no-manual)
