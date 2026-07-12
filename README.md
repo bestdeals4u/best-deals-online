@@ -36,23 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jesus Rodriguez 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/jesus-rodriguez-2024-bowman-chrome-refractor-auto-499-1st-bowman-psa-10)
-- [Adley Rutschman 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-blue-raywave-adley-rutschman-rookie-card-rc-auto-150-psa-10)
+- [Wilmin Candelario 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/topps-2022-bowman-chrome-wilmin-candelario-rc-auto-refractor-499-psa-10)
+- [Brice Matthews 2024 Bowman PSA 9](https://bestdeals4u.trade/post/2024-bowman-brice-matthews-true-gold-refractor-auto-10-50-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
-- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 
 ### 🧱 LEGO
-- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
-- [LEGO 40292 Christmas Gift Box Sealed](https://bestdeals4u.trade/post/lego-seasonal-christmas-gift-box-40292-new-in-sealed-box)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 75280 501st Legion Clone Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-501st-legion-clone-troopers-75280-sealed-box-brand-new)
 
 ### 🃏 Pokémon Cards
 - [Chansey 003/102 Base Set Holo PSA 7 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/chansey-003-102-base-set-holo-psa-7)
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
 
 ### 🎮 Video Games
-- [Is This Nintendo The Legend of Zelda Wind Waker 2003 Action Manual not Included for Actually a Good Value?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-wind-waker-gamecube-2003-action-manual-not-included)
+- [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
+- [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
