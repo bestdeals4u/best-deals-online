@@ -36,23 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Spencer Horwitz 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/spencer-horwitz-2024-topps-chrome-rc-auto-gold-wave-refractor-50-psa-10-gem-v6)
-- [Émilien Pitre 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/milien-pitre-rc-499-1st-rookie-auto-refractor-2025-bowman-cpa-epi-psa-9)
+- [Caden Dana 2023 Bowman RC PSA 10](https://bestdeals4u.trade/post/caden-dana-psa-10-2023-1st-bowman-chrome-auto-prospect-green-refractor-99-rc-g6)
+- [Market Review: Leaf 1990 Frank Thomas #300 PSA 9 Rookie Chicago White Sox MLB Baseball Card](https://bestdeals4u.trade/post/leaf-1990-frank-thomas-300-psa-9-rookie-chicago-white-sox-mlb-baseball-card)
 
 ### 🧸 Funko Pops
-- [Funko Pop, ! LILLY #01](https://bestdeals4u.trade/post/funko-pop-lilly-01-you-are-one-of-one-vaulted-w-protector)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Funko Pop, Enel #2236 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-one-piece-enel-2236-chase-target-exclusive-w-protector)
+- [Funko Pop! Marvel Red Hulk GITD Glow Chase Hot Topic Exclusive #854 — Market Review](https://bestdeals4u.trade/post/funko-pop-marvel-red-hulk-gitd-glow-chase-hot-topic-exclusive-854-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75947 Hagrid's Hut: Buckbeak's Rescue Sealed](https://bestdeals4u.trade/post/retired-lego-75947-hagrid-s-hut-buckbeak-s-rescue-new-sealed-harry-potter-set)
-- [Lego Harry Potter 76409: Gryfindor House Banner Set - Factory Seal Price Check - Worth It or Not?](https://bestdeals4u.trade/post/lego-harry-potter-76409-gryfindor-house-banner-set-new-factory-sealed-retired)
+- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
+- [Market Review: LEGO Star Wars Nebulon-B Frigate 77904 (New Factory Sealed)](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: CGC 10 Miltank 199/172 AR Art Rare VSTAR Universe s12a Pokemon Card](https://bestdeals4u.trade/post/cgc-10-miltank-199-172-ar-art-rare-vstar-universe-s12a-pokemon-card)
 
 ### 🎮 Video Games
-- [Monopoly Party (2002) No manual for GameCube Price Check - Worth It or Not?](https://bestdeals4u.trade/post/monopoly-party-nintendo-gamecube-2002-no-manual)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
