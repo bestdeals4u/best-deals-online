@@ -36,23 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Ben Williamson 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-green-refractor-46-99-ben-williamson-psa-10-gem-mt-auto-1k9t)
-- [Brailer Guerrero 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-brailer-guerrero-rc-refractor-psa-9-mint-499-autograph)
+- [Maximo Acosta 2021 Bowman PSA 9](https://bestdeals4u.trade/post/maximo-acosta-2021-bowman-chrome-prospect-autograph-refractor-435-499-psa-9-mint)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 - [Funko Pop, Enel #2236 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-one-piece-enel-2236-chase-target-exclusive-w-protector)
-- [Funko Pop! Marvel Red Hulk GITD Glow Chase Hot Topic Exclusive #854 — Market Review](https://bestdeals4u.trade/post/funko-pop-marvel-red-hulk-gitd-glow-chase-hot-topic-exclusive-854-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 21311 Voltron Sealed](https://bestdeals4u.trade/post/lego-ideas-voltron-21311-retired-collectible-building-set-2-321-pieces)
-- [LEGO 75305 Scout Trooper Helmet Sealed](https://bestdeals4u.trade/post/lego-75305-star-wars-scout-trooper-helmet-retired-new-sealed)
+- [LEGO 40488 Coffee Cart Sealed](https://bestdeals4u.trade/post/lego-creator-coffee-cart-40488-retired-limited-edition-gwp-brand-new-sealed-2022)
+- [LEGO 7965 Millennium Falcon Sealed](https://bestdeals4u.trade/post/star-wars-lego-7965-millennium-falcon-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Inferno PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-japanese-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
-
-### 🎮 Video Games
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
-- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
