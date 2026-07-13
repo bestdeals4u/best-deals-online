@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jackson Merrill 2024 Topps Chrome Update RC PSA 10](https://bestdeals4u.trade/post/jackson-merrill-psa-10-2024-topps-chrome-a-s-game-rookie-x-fractor-auto-rc-125)
-- [Caden Dana 2023 Bowman RC PSA 10](https://bestdeals4u.trade/post/caden-dana-psa-10-2023-1st-bowman-chrome-auto-prospect-green-refractor-99-rc-g6)
+- [Ben Williamson 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-green-refractor-46-99-ben-williamson-psa-10-gem-mt-auto-1k9t)
+- [Brailer Guerrero 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-brailer-guerrero-rc-refractor-psa-9-mint-499-autograph)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Enel #2236 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-one-piece-enel-2236-chase-target-exclusive-w-protector)
 - [Funko Pop! Marvel Red Hulk GITD Glow Chase Hot Topic Exclusive #854 — Market Review](https://bestdeals4u.trade/post/funko-pop-marvel-red-hulk-gitd-glow-chase-hot-topic-exclusive-854-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 76200 Bro Thor’s New Asgard Sealed](https://bestdeals4u.trade/post/brand-new-retired-sealed-lego-marvel-avengers-bro-thor-s-new-asgard-76200-265-pc-2)
-- [LEGO 75243 Slave I-20th Anniversary Edition Sealed](https://bestdeals4u.trade/post/lego-75243-star-wars-slave-1-20th-anniversary-edition-new-sealed-box-retired-2)
+- [LEGO 21311 Voltron Sealed](https://bestdeals4u.trade/post/lego-ideas-voltron-21311-retired-collectible-building-set-2-321-pieces)
+- [LEGO 75305 Scout Trooper Helmet Sealed](https://bestdeals4u.trade/post/lego-75305-star-wars-scout-trooper-helmet-retired-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Inferno PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-japanese-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
-- [Market Review: CGC 10 Miltank 199/172 AR Art Rare VSTAR Universe s12a Pokemon Card](https://bestdeals4u.trade/post/cgc-10-miltank-199-172-ar-art-rare-vstar-universe-s12a-pokemon-card)
 
 ### 🎮 Video Games
 - [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
