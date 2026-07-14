@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-9-dodgers-rc-u6-2)
-- [Zach Cole 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/zach-cole-2025-bowman-chrome-auto-150-blue-raywave-refractor-cpa-zc-psa-10-gem)
+- [Spencer Horwitz 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/spencer-horwitz-2024-topps-chrome-rc-auto-gold-wave-refractor-50-psa-10-gem-v6-2)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-10-dodgers-rc-z4-2)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Pegasus #26 Exclusive](https://bestdeals4u.trade/post/pegasus-funko-pop-myths-vinyl-26-funko-exclusive-limited-edition-figure)
 - [Funko Pop, John Lennon #247 Chase Exclusive](https://bestdeals4u.trade/post/john-lennon-funko-pop-247-peacoat-exclusive-common-chase-set-vaulted-nib)
-- [Funko Pop, Audrey II #654](https://bestdeals4u.trade/post/funko-pop-audrey-ii-654-little-shop-of-horrors-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 40913 Vintage Parade Car Sealed](https://bestdeals4u.trade/post/vintage-parade-car-gwp-lego-40913-icons-limited-edition-new-sealed-retired)
-- [LEGO Star Wars 75324 Dark Trooper Attack Box at $31.00, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-75324-dark-trooper-attack-sealed-box-new)
+- [LEGO 21154 The Blaze Bridge Sealed](https://bestdeals4u.trade/post/lego-minecraft-blaze-bridge-21154-sealed-retired-set-new-2)
+- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Market Review: [PSA3] 1997-98 Pokemon Topsun VS Charizard #006 Gengar Japanese Card from Japan](https://bestdeals4u.trade/post/psa3-1997-98-pokemon-topsun-vs-charizard-006-gengar-japanese-card-from-japan)
 - [Market Review: Espeon VMAX 270/264 PSA 10 Secret Rare Alt Art](https://bestdeals4u.trade/post/espeon-vmax-270-264-pokemon-swsh-fusion-strike-secret-rare-alt-art-psa-10-card)
 
 ### 🎮 Video Games
+- [Yoshi's Cookie for SUPER NES Complete](https://bestdeals4u.trade/post/yoshi-s-cookie-super-nintendo-snes-complete-in-box-cib)
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
