@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Maximo Acosta 2021 Bowman PSA 9](https://bestdeals4u.trade/post/maximo-acosta-2021-bowman-chrome-prospect-autograph-refractor-435-499-psa-9-mint)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Ruben Santana 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-prospect-refractor-299-499-ruben-santana-psa-9-mint-auto-03ox)
+- [Joendry Vargas 2023 Bowman Chrome RC SGC 9.5](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-green-refractor-99-sgc-9-5-10-rc-h6)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 - [Funko Pop, Enel #2236 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-one-piece-enel-2236-chase-target-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 40488 Coffee Cart Sealed](https://bestdeals4u.trade/post/lego-creator-coffee-cart-40488-retired-limited-edition-gwp-brand-new-sealed-2022)
-- [LEGO 7965 Millennium Falcon Sealed](https://bestdeals4u.trade/post/star-wars-lego-7965-millennium-falcon-new-sealed)
+- [LEGO 76409 Gryffindor House Banner Sealed](https://bestdeals4u.trade/post/lego-76409-gryffindor-house-banner-retired-harry-potter-new-sealed-box-crease)
+- [LEGO 10320 Eldorado Fortress Sealed](https://bestdeals4u.trade/post/lego-10320-eldorado-fortress-icons-set-pirate-castle-retired-sealed-new)
 
 ### 🃏 Pokémon Cards
 - [Inferno PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-japanese-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
