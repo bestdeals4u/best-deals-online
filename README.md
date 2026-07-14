@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1962 Topps Warren Spahn #100 SGC 3 Braves Baseball Card HOF](https://bestdeals4u.trade/post/1962-topps-warren-spahn-100-sgc-3-braves-baseball-card-hof)
-- [Graeme Stinson 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-orange-refractor-17-25-graeme-stinson-psa-10-gem-mt-auto-0q0m-2)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-9-dodgers-rc-u6-2)
+- [Zach Cole 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/zach-cole-2025-bowman-chrome-auto-150-blue-raywave-refractor-cpa-zc-psa-10-gem)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
-- [Funko Pop, Enel #2236 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-one-piece-enel-2236-chase-target-exclusive-w-protector)
+- [Funko Pop, John Lennon #247 Chase Exclusive](https://bestdeals4u.trade/post/john-lennon-funko-pop-247-peacoat-exclusive-common-chase-set-vaulted-nib)
+- [Funko Pop, Audrey II #654](https://bestdeals4u.trade/post/funko-pop-audrey-ii-654-little-shop-of-horrors-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75300 Imperial TIE Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-imperial-tie-fighter-75300-new-sealed)
-- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
+- [LEGO 40913 Vintage Parade Car Sealed](https://bestdeals4u.trade/post/vintage-parade-car-gwp-lego-40913-icons-limited-edition-new-sealed-retired)
+- [LEGO Star Wars 75324 Dark Trooper Attack Box at $31.00, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-75324-dark-trooper-attack-sealed-box-new)
 
 ### 🃏 Pokémon Cards
+- [Market Review: [PSA3] 1997-98 Pokemon Topsun VS Charizard #006 Gengar Japanese Card from Japan](https://bestdeals4u.trade/post/psa3-1997-98-pokemon-topsun-vs-charizard-006-gengar-japanese-card-from-japan)
 - [Market Review: Espeon VMAX 270/264 PSA 10 Secret Rare Alt Art](https://bestdeals4u.trade/post/espeon-vmax-270-264-pokemon-swsh-fusion-strike-secret-rare-alt-art-psa-10-card)
-- [Inferno PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-japanese-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
+
+### 🎮 Video Games
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
