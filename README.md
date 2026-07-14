@@ -36,18 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Ruben Santana 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-prospect-refractor-299-499-ruben-santana-psa-9-mint-auto-03ox)
-- [Joendry Vargas 2023 Bowman Chrome RC SGC 9.5](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-green-refractor-99-sgc-9-5-10-rc-h6)
+- [Market Review: 1962 Topps Warren Spahn #100 SGC 3 Braves Baseball Card HOF](https://bestdeals4u.trade/post/1962-topps-warren-spahn-100-sgc-3-braves-baseball-card-hof)
+- [Graeme Stinson 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-orange-refractor-17-25-graeme-stinson-psa-10-gem-mt-auto-0q0m-2)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 - [Funko Pop, Enel #2236 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-one-piece-enel-2236-chase-target-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 76409 Gryffindor House Banner Sealed](https://bestdeals4u.trade/post/lego-76409-gryffindor-house-banner-retired-harry-potter-new-sealed-box-crease)
-- [LEGO 10320 Eldorado Fortress Sealed](https://bestdeals4u.trade/post/lego-10320-eldorado-fortress-icons-set-pirate-castle-retired-sealed-new)
+- [LEGO 75300 Imperial TIE Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-imperial-tie-fighter-75300-new-sealed)
+- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
 
 ### 🃏 Pokémon Cards
+- [Market Review: Espeon VMAX 270/264 PSA 10 Secret Rare Alt Art](https://bestdeals4u.trade/post/espeon-vmax-270-264-pokemon-swsh-fusion-strike-secret-rare-alt-art-psa-10-card)
 - [Inferno PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2025-pokemon-japanese-inferno-x-special-art-rare-110-mega-charizard-x-ex-psa-10)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
