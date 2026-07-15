@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [George Kirby 2019 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2019-bowman-draft-gold-refractor-14-50-george-kirby-c19a-gk-psa-9-mint-auto-ez6)
-- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
+- [Wyatt Langford 2024 Topps Chrome Update Series RC PSA 10](https://bestdeals4u.trade/post/wyatt-langford-psa-10-2024-topps-chrome-rc-auto-purple-magenta-refractor-299-z4-2)
+- [Rayner Arias 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-prospect-refractor-499-rayner-arias-psa-10-gem-mt-auto-yj0)
 
 ### 🧸 Funko Pops
+- [Animation 1319 Hunter x Hunter Awaken Gon SDCC Shared Funko Pop #2023 at $50.00, with recent sales closer to $60.22](https://bestdeals4u.trade/post/funko-pop-animation-1319-hunter-x-hunter-awaken-gon-2023-sdcc-shared-exclusive)
 - [Funko Pop, Ashley #874](https://bestdeals4u.trade/post/vaulted-sally-face-ashley-campbell-874-funko-pop-w-protector)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 40698 Books Are My Passion Sealed](https://bestdeals4u.trade/post/lego-ideas-40698-bookshelf-set-books-are-my-passion-285-pcs-sealed-actual-new-2)
-- [LEGO 70423 Paranormal Intercept Bus 3000 Sealed](https://bestdeals4u.trade/post/lego-70423-paranormal-intercept-school-bus-689-pieces-new-retired-sealed)
+- [LEGO 60104 Airport Passenger Terminal Sealed](https://bestdeals4u.trade/post/lego-60104-city-airport-passenger-terminal-airplane-new-sealed-retired-building)
+- [LEGO 76026 Gorilla Grodd Goes Bananas Sealed](https://bestdeals4u.trade/post/lego-76026-dc-super-heroes-gorilla-grodd-goes-bananas-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
