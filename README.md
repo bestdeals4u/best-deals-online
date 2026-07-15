@@ -36,24 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Wyatt Langford 2024 Topps Chrome Update Series RC PSA 10](https://bestdeals4u.trade/post/wyatt-langford-psa-10-2024-topps-chrome-rc-auto-purple-magenta-refractor-299-z4-2)
-- [Rayner Arias 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-prospect-refractor-499-rayner-arias-psa-10-gem-mt-auto-yj0)
+- [Grayson Rodriguez 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-grayson-rodriguez-au-rc-ra-gr-purple-auto-250-psa-10)
+- [Noelvi Marte Rookie, Noelvi Marte 2024 Topps Chrome Sapphire Edition RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-sapphire-auto-199-noelvi-marte-rookie-psa-mint-10-reds)
 
 ### 🧸 Funko Pops
-- [Animation 1319 Hunter x Hunter Awaken Gon SDCC Shared Funko Pop #2023 at $50.00, with recent sales closer to $60.22](https://bestdeals4u.trade/post/funko-pop-animation-1319-hunter-x-hunter-awaken-gon-2023-sdcc-shared-exclusive)
-- [Funko Pop, Ashley #874](https://bestdeals4u.trade/post/vaulted-sally-face-ashley-campbell-874-funko-pop-w-protector)
+- [Funko Pop, Sung Jinwoo #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982)
+- [Funko Pop, Luna #89](https://bestdeals4u.trade/post/funko-pop-anima-sailor-moon-luna-89-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 60104 Airport Passenger Terminal Sealed](https://bestdeals4u.trade/post/lego-60104-city-airport-passenger-terminal-airplane-new-sealed-retired-building)
-- [LEGO 76026 Gorilla Grodd Goes Bananas Sealed](https://bestdeals4u.trade/post/lego-76026-dc-super-heroes-gorilla-grodd-goes-bananas-new-in-sealed-box)
-
-### 🃏 Pokémon Cards
-- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
-- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-new-sealed-nib-retired-set)
 
 ### 🎮 Video Games
+- [Super Mario Sunshine 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-mario-sunshine-nintendo-gamecube-complete-cib-w-inserts-black-label)
 - [Nintendo Super Smash Bros. Melee 2001 T Rated Manual Included for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/nintendo-super-smash-bros-melee-gamecube-2001-t-rated-manual-included)
-- [Harvest Moon: A Wonderful Life 2004 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-a-wonderful-life-nintendo-gamecube-new-factory-sealed-2004)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
