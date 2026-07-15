@@ -36,20 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Grayson Rodriguez 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-grayson-rodriguez-au-rc-ra-gr-purple-auto-250-psa-10)
-- [Noelvi Marte Rookie, Noelvi Marte 2024 Topps Chrome Sapphire Edition RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-sapphire-auto-199-noelvi-marte-rookie-psa-mint-10-reds)
+- [Telvin Nash 2012 Bowman Platinum BGS 9.5](https://bestdeals4u.trade/post/2012-bowman-platinum-prospects-red-refractor-25-telvin-nash-bgs-9-5-auto-0s3)
+- [JORDAN YOST 2025 Bowman Draft PSA 9](https://bestdeals4u.trade/post/jordan-yost-1st-auto-2025-bowman-draft-chrome-yellow-refractor-75-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Sung Jinwoo #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982)
 - [Funko Pop, Luna #89](https://bestdeals4u.trade/post/funko-pop-anima-sailor-moon-luna-89-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-new-sealed-nib-retired-set)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
+
+### 🃏 Pokémon Cards
+- [Is This BSP Greninja Celebrations Gold Star PSA 8 a Good Deal Right Now?](https://bestdeals4u.trade/post/2021-pokemon-swsh-bsp-greninja-gold-star-celebrations-etb-144-psa-8)
+- [Regirock Star Ultra Rare Legend Maker PSA 5](https://bestdeals4u.trade/post/regirock-gold-star-legend-maker-holo-91-92-psa-5-pokemon-card-slab)
 
 ### 🎮 Video Games
+- [V-Rally Edition 99 (Nintendo Game Boy Color, 1999) GBC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/v-rally-edition-99-nintendo-game-boy-color-1999-gbc-cartridge-only-cib)
 - [Super Mario Sunshine 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-mario-sunshine-nintendo-gamecube-complete-cib-w-inserts-black-label)
-- [Nintendo Super Smash Bros. Melee 2001 T Rated Manual Included for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/nintendo-super-smash-bros-melee-gamecube-2001-t-rated-manual-included)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
