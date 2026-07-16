@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Is This Hoyt Wilhelm 1972 Topps Los Angeles Dodgers High Number a Good Deal Right Now?](https://bestdeals4u.trade/post/hoyt-wilhelm-1972-topps-baseball-card-777-los-angeles-dodgers-high-number)
-- [Leandro Arias 2023 Bowman PSA 9](https://bestdeals4u.trade/post/leandro-arias-psa-9-2023-1st-bowman-chrome-auto-sapphire-green-refractor-50-z1)
+- [Roger Clemens 2024 Stadium Club RC PSA 9](https://bestdeals4u.trade/post/roger-clemens-2024-topps-stadium-club-rc-red-refractor-chrome-auto-25-psa-9)
+- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-psa-9-2023-1st-bowman-chrome-auto-prospect-refractor-499-rc-z2-2)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Beerus #514 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-beerus-flocked-funimation-exclusive-514)
 - [Funko Pop, Sung Jinwoo #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982)
 
 ### 🧱 LEGO
-- [LEGO 7751 Ahsoka's Starfighter and Vulture Droid Sealed](https://bestdeals4u.trade/post/lego-7751-star-wars-ahsoka-s-starfighter-vulture-droid-new-sealed-retired-set)
-- [LEGO 10777 Mickey Mouse and Minnie Mouse's Camping Trip Sealed](https://bestdeals4u.trade/post/lego-disney-mickey-minnie-mouse-camping-trip-10777-pluto-new-in-sealed-box)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO 4217987 Hogwarts Express Sealed](https://bestdeals4u.trade/post/new-sealed-lego-harry-potter-4758-hogwarts-express-prisoner-of-azkaban)
 
 ### 🃏 Pokémon Cards
 - [Is This BSP Greninja Celebrations Gold Star PSA 8 a Good Deal Right Now?](https://bestdeals4u.trade/post/2021-pokemon-swsh-bsp-greninja-gold-star-celebrations-etb-144-psa-8)
