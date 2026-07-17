@@ -41,19 +41,18 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### 🧸 Funko Pops
 - [Funko Pop, Beerus #514 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-beerus-flocked-funimation-exclusive-514)
-- [Funko Pop, Sung Jinwoo #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982)
 
 ### 🧱 LEGO
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
-- [LEGO 4217987 Hogwarts Express Sealed](https://bestdeals4u.trade/post/new-sealed-lego-harry-potter-4758-hogwarts-express-prisoner-of-azkaban)
+- [LEGO 76161 1989 Batwing Sealed](https://bestdeals4u.trade/post/lego-dc-batman-1989-batwing-76161-retired-new-sealed-box)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
 - [Is This BSP Greninja Celebrations Gold Star PSA 8 a Good Deal Right Now?](https://bestdeals4u.trade/post/2021-pokemon-swsh-bsp-greninja-gold-star-celebrations-etb-144-psa-8)
 - [Regirock Star Ultra Rare Legend Maker PSA 5](https://bestdeals4u.trade/post/regirock-gold-star-legend-maker-holo-91-92-psa-5-pokemon-card-slab)
 
 ### 🎮 Video Games
-- [Rampage: Total Destruction (2006) for GameCube Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/rampage-total-destruction-nintendo-gamecube-2006-tested)
-- [Super Mario Sunshine 2002 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/super-mario-sunshine-nintendo-gamecube-2002-tested-working-no-manual)
+- [Sony Fat Ps2 SCPH-30001 Console Power Cord And Memory Card for Sony PlayStation 2](https://bestdeals4u.trade/post/sony-playstation-2-fat-ps2-scph-30001-console-power-cord-and-memory-card-tested)
+- [Mario Tennis Fever | Nintendo Switch 2 | PSA 9.8 A++ Graded](https://bestdeals4u.trade/post/mario-tennis-fever-nintendo-switch-2-psa-graded-9-8-a-wata-cgc-vga)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
