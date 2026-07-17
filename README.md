@@ -36,19 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nolan Schanuel 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-nolan-schanuel-rookie-auto-purple-speckle-299-psa-gem-mt-10)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Devin Fitz-Gerald 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-1st-devin-fitz-gerald-refractor-auto-499-rc-psa-9)
+- [Leo De Vries 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-mega-box-leo-de-vries-150-auto-blue-refractor-mint-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, ! LIONEL #50](https://bestdeals4u.trade/post/funko-pop-50-lionel-messi-psg-argentina-miami-soccer-new-w-protector-vaulted-2)
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
-
-### 🃏 Pokémon Cards
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
+- [LEGO 9676 Tie Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-9676-tie-interceptor-death-star-series-1-sealed-box-rare)
+- [LEGO Star Wars AT-ST Raider (75254) New Sealed Cara Dune Mandalorian](https://bestdeals4u.trade/post/lego-star-wars-at-st-raider-75254-new-sealed-retired-cara-dune-mandalorian)
 
 ### 🎮 Video Games
 - [WWE: Day of Reckoning (2004) for GameCube Price Check - Worth It or Not?](https://bestdeals4u.trade/post/wwe-day-of-reckoning-nintendo-gamecube-2004)
