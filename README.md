@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Terrin Vavra 2019 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-83-99-terrin-vavra-psa-9-auto-w5p)
-- [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
+- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Eric Draven (Glow-in-the-Dark) #1429 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-eric-draven-glow-in-the-dark-1429-hot-topic-exclusive-vinyl-figure)
-- [Funko Pop, Snow White #1427 Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-disney-snow-white-1427-le5000-glow-in-the-dark-limited-edition)
+- [Funko Pop, Spider-Man #725 GITD](https://bestdeals4u.trade/post/spider-man-symbiote-suit-rare-vaulted-gitd-725-funko-pop-w-protector)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 76249 Venomized Groot Sealed](https://bestdeals4u.trade/post/lego-marvel-venomized-groot-76249-collectible-factory-sealed-brand-new-630pc)
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO 76391 Hogwarts Icons - Collectors' Edition Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-icons-collectors-edition-76391-new-sealed)
+
+### 🃏 Pokémon Cards
+- [UMBREON-GOLD STAR 17 2021 POKEMON CELEBRATIONS CLASSIC COLLECTION PSA 9](https://bestdeals4u.trade/post/2021-pokemon-celebrations-classic-collection-17-umbreon-gold-star-psa-9)
 
 ### 🎮 Video Games
-- [Market Review: Tecmo Super Bowl – Sega Genesis Complete In Box](https://bestdeals4u.trade/post/tecmo-super-bowl-sega-genesis-complete-in-box-cib-great-condition)
-- [Super Smash Bros Melee 2001 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-cib-w-manual-tested-working)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
