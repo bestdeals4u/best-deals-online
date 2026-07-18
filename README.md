@@ -36,19 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
-- [Ryan Holgate 2021 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2021-bowman-draft-chrome-pick-blue-refractor-150-ryan-holgate-psa-10-auto-1o5e)
+- [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
+- [Devin Fitz-Gerald 2025 Bowman PSA 9](https://bestdeals4u.trade/post/devin-fitz-gerald-2025-bowman-refractor-auto-1st-bowman-psa-9-304-499-cpa-df)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Judge Smails #725 Exclusive](https://bestdeals4u.trade/post/funko-pop-judge-smails-with-hat-fye-exclusive-725-with-protector)
-- [Funko Pop Ursula #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-trains-disney-ursula-funko-exclusive-17-with-protector)
+- [Funko Pop, Scooby Doo #149 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-149-scooby-doo-orange-flocked-box-lunch-exclusive-protector)
+- [Funko Pop, Pegasus #26 Exclusive](https://bestdeals4u.trade/post/pegasus-funko-pop-myths-vinyl-26-funko-exclusive-limited-edition-figure)
 
 ### 🧱 LEGO
-- [Sealed LEGO 10294 Icons: The Titanic - Limited Offer](https://bestdeals4u.trade/post/sealed-new-in-box-lego-10294-icons-the-titanic)
-- [LEGO 21318 Tree House Sealed](https://bestdeals4u.trade/post/lego-ideas-tree-house-21318-brand-new-factory-sealed-retired-set-rare-look-4)
+- [LEGO 75230 Porg Sealed](https://bestdeals4u.trade/post/lego-star-wars-porg-75230-new-sealed)
+- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box-see-shipping-note)
 
 ### 🎮 Video Games
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [Market Review: Tecmo Super Bowl – Sega Genesis Complete In Box](https://bestdeals4u.trade/post/tecmo-super-bowl-sega-genesis-complete-in-box-cib-great-condition)
+- [Super Smash Bros Melee 2001 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-cib-w-manual-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
