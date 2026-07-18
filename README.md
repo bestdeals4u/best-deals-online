@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Terrin Vavra 2019 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-83-99-terrin-vavra-psa-9-auto-w5p)
 - [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
-- [Devin Fitz-Gerald 2025 Bowman PSA 9](https://bestdeals4u.trade/post/devin-fitz-gerald-2025-bowman-refractor-auto-1st-bowman-psa-9-304-499-cpa-df)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Scooby Doo #149 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-149-scooby-doo-orange-flocked-box-lunch-exclusive-protector)
-- [Funko Pop, Pegasus #26 Exclusive](https://bestdeals4u.trade/post/pegasus-funko-pop-myths-vinyl-26-funko-exclusive-limited-edition-figure)
+- [Funko Pop, Eric Draven (Glow-in-the-Dark) #1429 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-eric-draven-glow-in-the-dark-1429-hot-topic-exclusive-vinyl-figure)
+- [Funko Pop, Snow White #1427 Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-disney-snow-white-1427-le5000-glow-in-the-dark-limited-edition)
 
 ### 🧱 LEGO
-- [LEGO 75230 Porg Sealed](https://bestdeals4u.trade/post/lego-star-wars-porg-75230-new-sealed)
-- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box-see-shipping-note)
+- [LEGO 76249 Venomized Groot Sealed](https://bestdeals4u.trade/post/lego-marvel-venomized-groot-76249-collectible-factory-sealed-brand-new-630pc)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
 
 ### 🎮 Video Games
 - [Market Review: Tecmo Super Bowl – Sega Genesis Complete In Box](https://bestdeals4u.trade/post/tecmo-super-bowl-sega-genesis-complete-in-box-cib-great-condition)
