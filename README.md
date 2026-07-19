@@ -36,23 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Yolfran Castillo 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/yolfran-castillo-2024-1st-bowman-chrome-auto-gold-refractor-50-psa-9-rangers-e6-2)
-- [Ezequiel Tovar 2023 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/ezequiel-tovar-auto-topps-chrome-2023-blue-refractor-rc-150-psa-9-mint-raet)
+- [Caden Bodine 2025 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2025-1st-bowman-draft-chrome-orange-wave-ref-caden-bodine-auto-20-25-rc-sp-psa-9)
+- [Braylon Payne 2024 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/braylon-payne-2024-1st-bowman-chrome-auto-aqua-lava-refractor-199-psa-9-rc-h6-2)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Megazord #497 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-television-megazord-497-gitd-entertainment-earth-exclusive)
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
-- [LEGO 70608 Master Falls Sealed](https://bestdeals4u.trade/post/lego-70608-the-lego-ninjago-movie-master-falls-2017-retired-new-factory-sealed)
+- [LEGO 75326 Boba Fett's Throne Room Sealed](https://bestdeals4u.trade/post/2-lego-75326-star-wars-boba-fett-s-throne-room-set-new-factory-sealed-retired)
+- [LEGO 71707 Kai's Mech Jet Sealed](https://bestdeals4u.trade/post/lego-ninjago-kai-s-mech-jet-71707-retired-set-brand-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
-- [UMBREON-GOLD STAR 17 2021 POKEMON CELEBRATIONS CLASSIC COLLECTION PSA 9](https://bestdeals4u.trade/post/2021-pokemon-celebrations-classic-collection-17-umbreon-gold-star-psa-9)
-
-### 🎮 Video Games
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [Market Review: PSA10 Charizard 212/172 Mewtwo 221/172 SAR VSTAR Universe](https://bestdeals4u.trade/post/psa10-charizard-212-172-mewtwo-221-172-sar-vstar-universe-pokemon-card-japanese)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
