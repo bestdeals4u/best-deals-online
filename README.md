@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Yolfran Castillo 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/yolfran-castillo-2024-1st-bowman-chrome-auto-gold-refractor-50-psa-9-rangers-e6-2)
+- [Ezequiel Tovar 2023 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/ezequiel-tovar-auto-topps-chrome-2023-blue-refractor-rc-150-psa-9-mint-raet)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Spider-Man #725 GITD](https://bestdeals4u.trade/post/spider-man-symbiote-suit-rare-vaulted-gitd-725-funko-pop-w-protector)
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
+- [Funko Pop, Megazord #497 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-television-megazord-497-gitd-entertainment-earth-exclusive)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
-- [LEGO 76391 Hogwarts Icons - Collectors' Edition Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-icons-collectors-edition-76391-new-sealed)
+- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
+- [LEGO 70608 Master Falls Sealed](https://bestdeals4u.trade/post/lego-70608-the-lego-ninjago-movie-master-falls-2017-retired-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
 - [UMBREON-GOLD STAR 17 2021 POKEMON CELEBRATIONS CLASSIC COLLECTION PSA 9](https://bestdeals4u.trade/post/2021-pokemon-celebrations-classic-collection-17-umbreon-gold-star-psa-9)
