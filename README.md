@@ -36,19 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Caden Bodine 2025 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2025-1st-bowman-draft-chrome-orange-wave-ref-caden-bodine-auto-20-25-rc-sp-psa-9)
-- [Braylon Payne 2024 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/braylon-payne-2024-1st-bowman-chrome-auto-aqua-lava-refractor-199-psa-9-rc-h6-2)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Brooks Lee 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-brooks-lee-purple-speckle-rookie-auto-299-psa-10-pop-2)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Megazord #497 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-television-megazord-497-gitd-entertainment-earth-exclusive)
-- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 75326 Boba Fett's Throne Room Sealed](https://bestdeals4u.trade/post/2-lego-75326-star-wars-boba-fett-s-throne-room-set-new-factory-sealed-retired)
-- [LEGO 71707 Kai's Mech Jet Sealed](https://bestdeals4u.trade/post/lego-ninjago-kai-s-mech-jet-71707-retired-set-brand-new-factory-sealed)
+- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
+- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
 
 ### 🃏 Pokémon Cards
+- [Crystal Guardians Kyogre Holo PSA 3 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/swirl-psa-3-2006-pokemon-crystal-guardians-kyogre-ex-holo-foil-rare-95-100)
 - [Market Review: PSA10 Charizard 212/172 Mewtwo 221/172 SAR VSTAR Universe](https://bestdeals4u.trade/post/psa10-charizard-212-172-mewtwo-221-172-sar-vstar-universe-pokemon-card-japanese)
+
+### 🎮 Video Games
+- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
