@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Brooks Lee 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-brooks-lee-purple-speckle-rookie-auto-299-psa-10-pop-2)
 
 ### 🧸 Funko Pops
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop, Spikey #933 Exclusive](https://bestdeals4u.trade/post/funko-pop-933-spikey-blacklight-killer-klowns-gamestop-exclusive-w-protector)
+- [Vinyl Chase Jinu Kpop Demon Hunters with Patterns Funko Pop #2259 at $34.99, with recent sales closer to $39.28](https://bestdeals4u.trade/post/funko-pop-vinyl-chase-jinu-kpop-demon-hunters-with-patterns-2259)
 
 ### 🧱 LEGO
-- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
+- [LEGO 42122 Jeep Wrangler Sealed](https://bestdeals4u.trade/post/lego-technic-42122-jeep-wrangler-rubicon-665-pcs-retired-sealed-new)
+- [LEGO 70909 Batcave Break-in Sealed](https://bestdeals4u.trade/post/lego-70909-batman-movie-batcave-break-in-new-sealed-nib-retired-penguin)
 
 ### 🃏 Pokémon Cards
 - [Crystal Guardians Kyogre Holo PSA 3 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/swirl-psa-3-2006-pokemon-crystal-guardians-kyogre-ex-holo-foil-rare-95-100)
