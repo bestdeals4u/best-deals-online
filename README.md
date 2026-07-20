@@ -37,23 +37,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### ⚾ Baseball Cards
 - [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Gabriel Hughes 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/gabriel-hughes-psa-10-2022-1st-bowman-chrome-auto-prospect-gold-refractor-50-z2)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Spikey #933 Exclusive](https://bestdeals4u.trade/post/funko-pop-933-spikey-blacklight-killer-klowns-gamestop-exclusive-w-protector)
-- [Vinyl Chase Jinu Kpop Demon Hunters with Patterns Funko Pop #2259 at $34.99, with recent sales closer to $39.28](https://bestdeals4u.trade/post/funko-pop-vinyl-chase-jinu-kpop-demon-hunters-with-patterns-2259)
+- [Funko Pop, Rumi #2430 Chase Glow](https://bestdeals4u.trade/post/funko-pop-kpop-demon-hunters-rumi-2430-glow-chase-w-protector)
+- [Funko Pop, Bo-Katan Kryze #463 Chase](https://bestdeals4u.trade/post/funko-pop-vinyl-star-wars-bo-katan-kryze-chase-limited-edition-bobblehead-463)
 
 ### 🧱 LEGO
-- [LEGO 42122 Jeep Wrangler Sealed](https://bestdeals4u.trade/post/lego-technic-42122-jeep-wrangler-rubicon-665-pcs-retired-sealed-new)
-- [LEGO 70909 Batcave Break-in Sealed](https://bestdeals4u.trade/post/lego-70909-batman-movie-batcave-break-in-new-sealed-nib-retired-penguin)
+- [LEGO 80106 Story of Nian Sealed](https://bestdeals4u.trade/post/lego-chinese-festivals-80106-the-story-of-nian-new-in-sealed-box-retired)
+- [LEGO 75299 Trouble on Tatooine Sealed](https://bestdeals4u.trade/post/lego-star-wars-75299-the-mandalorian-trouble-on-tatooine-sealed-set-retired)
 
 ### 🃏 Pokémon Cards
 - [Crystal Guardians Kyogre Holo PSA 3 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/swirl-psa-3-2006-pokemon-crystal-guardians-kyogre-ex-holo-foil-rare-95-100)
-- [Market Review: PSA10 Charizard 212/172 Mewtwo 221/172 SAR VSTAR Universe](https://bestdeals4u.trade/post/psa10-charizard-212-172-mewtwo-221-172-sar-vstar-universe-pokemon-card-japanese)
 
 ### 🎮 Video Games
-- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
