@@ -36,18 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
-- [Kenny Fenelon 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/kenny-fenelon-2025-1st-bowman-chrome-auto-gold-refractor-50-psa-9-brewers-rc-p6-2)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Franklin Arias 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-1st-franklin-arias-cpa-fa-auto-refractor-499-psa-9-rc)
 
 ### 🧸 Funko Pops
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO 76261 Spider-Man Final Battle Sealed](https://bestdeals4u.trade/post/new-sealed-lego-marvel-76261-spider-man-final-battle-900pcs-retired)
-- [LEGO 75277 Boba Fett Helmet Sealed](https://bestdeals4u.trade/post/lego-boba-fett-helmet-75277-retired-star-wars-brand-new-factory-sealed-3)
+- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
+- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
+
+### 🃏 Pokémon Cards
+- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-3)
 
 ### 🎮 Video Games
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 - [Nintendo The Legend of Zelda Collector's Edition NTSC-U/C 2003 Manual for at $80.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-collector-s-edition-gamecube-ntsc-u-c-2003-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
