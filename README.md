@@ -36,23 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
-- [Gabriel Hughes 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/gabriel-hughes-psa-10-2022-1st-bowman-chrome-auto-prospect-gold-refractor-50-z2)
+- [Shotaro Morii 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-mega-box-purple-refractor-auto-shotaro-morii-rc-199-psa-9-as)
+- [Nick Kurtz 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-adios-auto-nick-kurtz-rookie-rc-gold-mini-diamond-50-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Wolfgang #18 Exclusive](https://bestdeals4u.trade/post/funko-pop-wolfgang-vinyl-figurine-18-limited-edition-exclusive-new-sealed)
 - [Funko Pop, Rumi #2430 Chase Glow](https://bestdeals4u.trade/post/funko-pop-kpop-demon-hunters-rumi-2430-glow-chase-w-protector)
-- [Funko Pop, Bo-Katan Kryze #463 Chase](https://bestdeals4u.trade/post/funko-pop-vinyl-star-wars-bo-katan-kryze-chase-limited-edition-bobblehead-463)
 
 ### 🧱 LEGO
-- [LEGO 80106 Story of Nian Sealed](https://bestdeals4u.trade/post/lego-chinese-festivals-80106-the-story-of-nian-new-in-sealed-box-retired)
-- [LEGO 75299 Trouble on Tatooine Sealed](https://bestdeals4u.trade/post/lego-star-wars-75299-the-mandalorian-trouble-on-tatooine-sealed-set-retired)
-
-### 🃏 Pokémon Cards
-- [Crystal Guardians Kyogre Holo PSA 3 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/swirl-psa-3-2006-pokemon-crystal-guardians-kyogre-ex-holo-foil-rare-95-100)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO 75031 Tie Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75031-tie-interceptor-microfighters-sealed-retired-rare)
 
 ### 🎮 Video Games
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [Microsoft E Slim Console Model 1538 Console Only *As-Is Untested* 2013 for Microsoft Xbox 360](https://bestdeals4u.trade/post/microsoft-xbox-360-e-slim-console-model-1538-console-only-as-is-untested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
