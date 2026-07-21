@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Anthony Bender 2022 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2022-chrome-rookie-gold-wave-refractor-5-50-anthony-bender-psa-10-auto-1j7t)
-- [Oneil Cruz 2022 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-mega-box-oneil-cruz-auto-99-psa-10-rookie-pirates-brm-oc)
+- [Leandro Arias 2023 Bowman PSA 9](https://bestdeals4u.trade/post/leandro-arias-psa-9-2023-1st-bowman-chrome-auto-sapphire-green-refractor-50-z1-2)
+- [Wyatt Langford 2024 Topps RC PSA 9](https://bestdeals4u.trade/post/2024-topps-baseball-wyatt-langford-black-baseball-stars-rc-auto-199-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Captain Cutler #632 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-animation-scooby-doo-captain-cutler-632-gitd-le-funko-shop-exclusive)
-- [Funko Pop, Kakashi #1199 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-naruto-kakashi-hatake-aaa-anime-exclusive-1199-chase)
+- [Funko Pop, Master Chief #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-halo-master-chief-w-energy-sword-11-gamestop-exclusive-vaulted)
+- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 
 ### 🧱 LEGO
-- [LEGO 6470456 Desert Skiff & Sarlacc Pit Sealed](https://bestdeals4u.trade/post/lego-75396-star-wars-desert-skiff-sarlacc-pit-new-sealed-retired)
-- [LEGO 3862 Harry Potter Hogwarts Sealed](https://bestdeals4u.trade/post/lego-games-harry-potter-hogwarts-3862-retired-set-2010-new-sealed-read)
-
-### 🃏 Pokémon Cards
-- [Market Review: [PSA3] 1997-98 Pokemon Topsun VS Charizard #006 Gengar Japanese Card from Japan](https://bestdeals4u.trade/post/psa3-1997-98-pokemon-topsun-vs-charizard-006-gengar-japanese-card-from-japan)
+- [LEGO 21328 Seinfeld Sealed](https://bestdeals4u.trade/post/lego-ideas-seinfeld-21328-1326-pieces-made-in-2021-retired-new-sealed)
+- [LEGO 10236 Ewok Village Sealed](https://bestdeals4u.trade/post/lego-star-wars-10236-ewok-village-ucs-style-retired-new-sealed-17-minifigures)
 
 ### 🎮 Video Games
-- [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
-- [Is This Mario Party 6 (Nintendo GameCube, 2004) No Manual Tested & Working! a Good Deal Right Now?](https://bestdeals4u.trade/post/mario-party-6-nintendo-gamecube-2004-no-manual-tested-working)
+- [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
+- [Super Smash Bros Melee 2001 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-cib-w-manual-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
