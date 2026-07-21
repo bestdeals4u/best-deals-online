@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Gage Workman 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/gage-workman-2020-bowman-draft-chrome-auto-blue-refractor-150-psa-10-tigers)
-- [James Wood 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/james-wood-2025-topps-chrome-rc-auto-orange-refractor-25-silver-pack-psa-9-y6-3)
+- [Anthony Bender 2022 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2022-chrome-rookie-gold-wave-refractor-5-50-anthony-bender-psa-10-auto-1j7t)
+- [Oneil Cruz 2022 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-mega-box-oneil-cruz-auto-99-psa-10-rookie-pirates-brm-oc)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Captain Cutler #632 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-animation-scooby-doo-captain-cutler-632-gitd-le-funko-shop-exclusive)
 - [Funko Pop, Kakashi #1199 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-naruto-kakashi-hatake-aaa-anime-exclusive-1199-chase)
 
 ### 🧱 LEGO
-- [LEGO 10607 Web Bike Workshop Sealed](https://bestdeals4u.trade/post/lego-duplo-marvel-spider-man-web-bike-workshop-set-10607-small-sealed-set-new)
-- [LEGO 75281 Anakin's Jedi Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75281-anakin-s-jedi-interceptor-brand-new-sealed-retired-rare-2)
+- [LEGO 6470456 Desert Skiff & Sarlacc Pit Sealed](https://bestdeals4u.trade/post/lego-75396-star-wars-desert-skiff-sarlacc-pit-new-sealed-retired)
+- [LEGO 3862 Harry Potter Hogwarts Sealed](https://bestdeals4u.trade/post/lego-games-harry-potter-hogwarts-3862-retired-set-2010-new-sealed-read)
 
 ### 🃏 Pokémon Cards
 - [Market Review: [PSA3] 1997-98 Pokemon Topsun VS Charizard #006 Gengar Japanese Card from Japan](https://bestdeals4u.trade/post/psa3-1997-98-pokemon-topsun-vs-charizard-006-gengar-japanese-card-from-japan)
-- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-3)
 
 ### 🎮 Video Games
 - [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
