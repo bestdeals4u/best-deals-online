@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Franklin Arias 2025 Bowman RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-1st-franklin-arias-cpa-fa-auto-refractor-499-psa-9-rc)
+- [Jose Caballero 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/jose-caballero-2023-topps-chrome-refractor-499-rc-auto-ac-jca-psa-10-yankees)
+- [Jeremy Rodriguez 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/jeremy-rodriguez-2024-bowman-chrome-1st-refractor-auto-sp-psa-10-gem-mint-499)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Funko Pop, Captain Cutler #632 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-animation-scooby-doo-captain-cutler-632-gitd-le-funko-shop-exclusive)
+- [Funko Pop, Kakashi #1199 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-naruto-kakashi-hatake-aaa-anime-exclusive-1199-chase)
 
 ### 🧱 LEGO
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
-- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
+- [LEGO 40625 Llama Sealed](https://bestdeals4u.trade/post/lego-brickheadz-minecraft-llama-40625-zombie-40626-retired-sets-new-sealed)
+- [LEGO 7155 Trade Federation AAT Sealed](https://bestdeals4u.trade/post/vintage-2000-lego-star-wars-episode-i-trade-federation-aat-7155-new-sealed-box)
 
 ### 🃏 Pokémon Cards
+- [Market Review: [PSA3] 1997-98 Pokemon Topsun VS Charizard #006 Gengar Japanese Card from Japan](https://bestdeals4u.trade/post/psa3-1997-98-pokemon-topsun-vs-charizard-006-gengar-japanese-card-from-japan)
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-3)
 
 ### 🎮 Video Games
+- [How Good of a Deal Is This 1PCS Mean Well NES-100-36 | 36V Switch Power Supply NES10036 | 36V Sea?](https://bestdeals4u.trade/post/1pcs-mean-well-nes-100-36-36v-switch-power-supply-nes10036-36v-sealed)
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [Nintendo The Legend of Zelda Collector's Edition NTSC-U/C 2003 Manual for at $80.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/nintendo-the-legend-of-zelda-collector-s-edition-gamecube-ntsc-u-c-2003-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
