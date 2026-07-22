@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Colt Emerson 2023 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2023-bowman-draft-stained-glass-colt-emerson-lava-refractor-auto-75-psa-9)
-- [Dylan Crews 2025 Topps RC PSA 10](https://bestdeals4u.trade/post/dylan-crews-2025-topps-chrome-sapphire-selections-rookie-auto-orange-25-psa-10)
+- [Jhonny Level 2025 Bowman PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-jhonny-level-green-refractor-auto-99-psa-10)
+- [Angel Martinez 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-angel-martinez-true-blue-refractor-auto-150-psa-10)
 
 ### 🧸 Funko Pops
+- [Market Review: New Sealed Wolverine #1576 Funko Pop! with Protector LE 5000 2026 Shared ECCC](https://bestdeals4u.trade/post/new-sealed-wolverine-1576-funko-pop-with-protector-le-5000-2026-shared-eccc)
 - [101 Dalmations Pongo 2026 ECCC Exclusive Pieces Funko Pop #1723 LE 1001 at $61.50, below recent sales](https://bestdeals4u.trade/post/funko-pop-101-dalmations-pongo-1723-2026-eccc-exclusive-le-1001-pieces-sealed)
-- [Funko Pop, Cersei Lannister #11](https://bestdeals4u.trade/post/funko-pop-cersei-lannister-vaulted-game-of-thrones-11-vinyl-figure-mint)
 
 ### 🧱 LEGO
-- [New LEGO 76968 Jurassic World T. rex Fossil Display Set](https://bestdeals4u.trade/post/new-sealed-no-wait-lego-76968-jurassic-world-t-rex-fossil-skeleton-adult-set)
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/nib-new-sealed-lego-ideas-the-office-tv-show-retired-21336-dunder-mifflin)
+- [LEGO 40591 Death Star II Sealed](https://bestdeals4u.trade/post/lego-star-wars-death-star-ii-40591-gwp-new-sealed)
+- [LEGO 75294 Bespin Duel Sealed](https://bestdeals4u.trade/post/lego-star-wars-bespin-duel-75294-brand-new-sealed-retired)
 
 ### 🎮 Video Games
 - [Blue Solid ESRB CIB PSA 7.5 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/pokemon-blue-solid-esrb-cib-complete-in-box-nintendo-gameboy-graded-psa-7-5)
-- [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
