@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jhonny Level 2025 Bowman PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-jhonny-level-green-refractor-auto-99-psa-10)
-- [Angel Martinez 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-angel-martinez-true-blue-refractor-auto-150-psa-10)
+- [Bryan Ramos 2021 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/bryan-ramos-psa-10-2021-1st-bowman-chrome-auto-red-refractor-5-cardinals-rc-e6)
+- [Arjun Nimmala 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-mega-box-arjun-nimmala-bma-an-blue-ref-auto-rc-150-psa-10)
 
 ### 🧸 Funko Pops
 - [Market Review: New Sealed Wolverine #1576 Funko Pop! with Protector LE 5000 2026 Shared ECCC](https://bestdeals4u.trade/post/new-sealed-wolverine-1576-funko-pop-with-protector-le-5000-2026-shared-eccc)
 - [101 Dalmations Pongo 2026 ECCC Exclusive Pieces Funko Pop #1723 LE 1001 at $61.50, below recent sales](https://bestdeals4u.trade/post/funko-pop-101-dalmations-pongo-1723-2026-eccc-exclusive-le-1001-pieces-sealed)
 
 ### 🧱 LEGO
-- [LEGO 40591 Death Star II Sealed](https://bestdeals4u.trade/post/lego-star-wars-death-star-ii-40591-gwp-new-sealed)
-- [LEGO 75294 Bespin Duel Sealed](https://bestdeals4u.trade/post/lego-star-wars-bespin-duel-75294-brand-new-sealed-retired)
+- [LEGO 75378 Barc Speeder Escape Sealed](https://bestdeals4u.trade/post/lego-75378-star-wars-barc-speeder-escape-grogu-clone-trooper-new-sealed-retired)
+- [LEGO 21344 The Orient Express Sealed](https://bestdeals4u.trade/post/lego-ideas-the-orient-express-train-21344-new-sealed-in-box-bags)
 
 ### 🎮 Video Games
 - [Blue Solid ESRB CIB PSA 7.5 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/pokemon-blue-solid-esrb-cib-complete-in-box-nintendo-gameboy-graded-psa-7-5)
