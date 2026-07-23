@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Is This Pongo 101 Dalmatians w/ Protector ECCC Exclusive Funko Pop #1723 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-101-dalmatians-w-protector-eccc-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 76403 The Ministry of Magic Sealed](https://bestdeals4u.trade/post/lego-harry-potter-the-ministry-of-magic-76403-retired-brand-new-sealed)
-- [LEGO 75214 Anakin's Jedi Starfighter Sealed](https://bestdeals4u.trade/post/brand-new-lego-star-wars-anakin-s-jedi-starfighter-75214-sealed-retired-2020)
+- [LEGO 21319 Central Perk Sealed](https://bestdeals4u.trade/post/lego-friends-tv-series-central-perk-1079-pieces-21319-retired-nib-new-sealed)
+- [LEGO 66674 Skywalker Adventures Pack Sealed](https://bestdeals4u.trade/post/lego-star-wars-skywalker-adventures-pack-66674-3-in-1-set-brand-new-sealed)
 
 ### 🎮 Video Games
 - [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
