@@ -36,18 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Addison Russell 2012 Bowman Draft Picks & Prospects RC PSA 9](https://bestdeals4u.trade/post/2012-bowman-draft-gold-refractor-50-addison-russell-bgs-9-bowman-1st-auto-rc)
+- [Kenny Fenelon 2025 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/kenny-fenelon-psa-10-2025-1st-bowman-chrome-auto-orange-wave-refractor-25-rc-u6)
+- [Hyeseong Kim 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-hyeseong-kim-rookie-lava-lamp-auto-magenta-purple-299-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Battle Beast #54](https://bestdeals4u.trade/post/funko-pop-vinyl-invincible-battle-beast-54-special-edition-figure-w-protector)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 40751 Legolas & Gimli Sealed](https://bestdeals4u.trade/post/lego-40751-brickheadz-lord-of-the-rings-legolas-gimli-new-sealed-retired-lotr)
+- [LEGO 75280 501st Legion Clone Troopers Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-star-wars-501st-legion-clone-troopers-75280)
 
 ### 🎮 Video Games
+- [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
