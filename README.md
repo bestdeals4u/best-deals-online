@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nick Yorke 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-update-rookie-autograph-nick-yorke-rookie-175-psa-10-pop-1)
-- [Kenny Fenelon 2025 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/kenny-fenelon-psa-10-2025-1st-bowman-chrome-auto-orange-wave-refractor-25-rc-u6)
+- [Kenny Fenelon 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/kenny-fenelon-2025-1st-bowman-chrome-auto-orange-refractor-25-psa-9-brewers-y6-2)
+- [Masyn Winn 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-aqua-wave-rookie-auto-masyn-winn-199-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Battle Beast #54](https://bestdeals4u.trade/post/funko-pop-vinyl-invincible-battle-beast-54-special-edition-figure-w-protector)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop, Sung Jinwoo #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982-2)
+- [Is This Pongo 101 Dalmatians w/ Protector ECCC Exclusive Funko Pop #1723 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-101-dalmatians-w-protector-eccc-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 21108 Ghostbusters Ecto-1 Sealed](https://bestdeals4u.trade/post/lego-ghostbusters-ecto-1-21108-brand-new-sealed-retired-lego-ideas-htf)
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 76403 The Ministry of Magic Sealed](https://bestdeals4u.trade/post/lego-harry-potter-the-ministry-of-magic-76403-retired-brand-new-sealed)
+- [LEGO 75214 Anakin's Jedi Starfighter Sealed](https://bestdeals4u.trade/post/brand-new-lego-star-wars-anakin-s-jedi-starfighter-75214-sealed-retired-2020)
 
 ### 🎮 Video Games
 - [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
