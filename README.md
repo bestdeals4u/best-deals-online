@@ -44,8 +44,14 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 6076795 NASA Mars Science Laboratory Curiosity Rover Sealed](https://bestdeals4u.trade/post/lego-21104-ideas-nasa-mars-curiosity-rover-new-sealed-rare-retired-2014-robot-3)
-- [LEGO Star Wars: UCS Slave 1 (75060) Brand New Factory Sealed Retired Set RARE](https://bestdeals4u.trade/post/v1-127709556624-0-lego-star-wars-ucs-slave-1-75060-brand-new-factory-sealed-retired-set-rare)
+- [LEGO 40188 Pencil Pot Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-40188-pencil-holder-garden-shed-187-pieces)
+- [LEGO 8430 Motorbike Sealed](https://bestdeals4u.trade/post/new-sealed-rare-lego-8430-technic-mag-wheel-master-retired-motorbike)
+
+### 🃏 Pokémon Cards
+- [Is Pokémon TCG Celebrations Elite Trainer Box SWSH144 Greninja Gold Star PSA 9 Priced Fairly at $79.95?](https://bestdeals4u.trade/post/2021-pok-mon-tcg-celebrations-elite-trainer-box-swsh144-greninja-gold-star-psa-9)
+
+### 🎮 Video Games
+- [Market Review: Sega Genesis TERMINATOR 2 Wata 9.6 A+ NEW Factory Sealed T2 VGA Arnold Top Pop](https://bestdeals4u.trade/post/sega-genesis-terminator-2-wata-9-6-a-new-factory-sealed-t2-vga-arnold-top-pop)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
