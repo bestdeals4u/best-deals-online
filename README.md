@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kenny Fenelon 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/kenny-fenelon-2025-1st-bowman-chrome-auto-orange-refractor-25-psa-9-brewers-y6-2)
-- [Masyn Winn 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-aqua-wave-rookie-auto-masyn-winn-199-psa-10)
+- [Luke Shliger 2023 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2023-bowman-draft-chrome-luke-shliger-cdals-auto-gold-refractor-50-psa-10)
+- [Austin Wilson 2014 Bowman Chrome RC BGS 10](https://bestdeals4u.trade/post/topps-bowman-chrome-austin-wilson-rc-auto-blue-refractor-150-bgs-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Sung Jinwoo #1982 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-solo-leveling-sung-jinwoo-glow-chase-1982-2)
-- [Is This Pongo 101 Dalmatians w/ Protector ECCC Exclusive Funko Pop #1723 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-101-dalmatians-w-protector-eccc-exclusive)
+- [Funko Pop, Ichigo #1087 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-bleach-ichigo-chase-aaa-anime-exclusive-vinyl-figure-1087)
+- [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 21319 Central Perk Sealed](https://bestdeals4u.trade/post/lego-friends-tv-series-central-perk-1079-pieces-21319-retired-nib-new-sealed)
-- [LEGO 66674 Skywalker Adventures Pack Sealed](https://bestdeals4u.trade/post/lego-star-wars-skywalker-adventures-pack-66674-3-in-1-set-brand-new-sealed)
+- [LEGO 75387 Tantive IV Sealed](https://bestdeals4u.trade/post/retired-lego-star-wars-75387-boarding-the-tantive-iv-brand-new-sealed-2)
+- [LEGO 41115 Emma's Creative Workshop Sealed](https://bestdeals4u.trade/post/lego-41115-friends-emma-s-creative-workshop-new-sealed-retired-photo)
 
 ### 🎮 Video Games
 - [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
