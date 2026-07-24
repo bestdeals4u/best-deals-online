@@ -36,18 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Bryan Ramos 2021 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/bryan-ramos-2021-1st-bowman-chrome-auto-orange-wave-refractor-25-psa-9-rc-p6-3)
 - [Luke Shliger 2023 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2023-bowman-draft-chrome-luke-shliger-cdals-auto-gold-refractor-50-psa-10)
-- [Austin Wilson 2014 Bowman Chrome RC BGS 10](https://bestdeals4u.trade/post/topps-bowman-chrome-austin-wilson-rc-auto-blue-refractor-150-bgs-10)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Ichigo #1087 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-bleach-ichigo-chase-aaa-anime-exclusive-vinyl-figure-1087)
 - [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 40188 Pencil Pot Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-40188-pencil-holder-garden-shed-187-pieces)
-- [LEGO 8430 Motorbike Sealed](https://bestdeals4u.trade/post/new-sealed-rare-lego-8430-technic-mag-wheel-master-retired-motorbike)
+- [LEGO 75019 AT-TE Walker Sealed](https://bestdeals4u.trade/post/lego-star-wars-at-te-walker-75019-new-factory-sealed-box)
+- [LEGO 60438 Sailboat Sealed](https://bestdeals4u.trade/post/lego-city-sailboat-set-60438-5-102-pcs-building-toy-retired-rare-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
 - [Is Pokémon TCG Celebrations Elite Trainer Box SWSH144 Greninja Gold Star PSA 9 Priced Fairly at $79.95?](https://bestdeals4u.trade/post/2021-pok-mon-tcg-celebrations-elite-trainer-box-swsh144-greninja-gold-star-psa-9)
 
 ### 🎮 Video Games
