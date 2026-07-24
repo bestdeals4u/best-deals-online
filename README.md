@@ -44,11 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 75387 Tantive IV Sealed](https://bestdeals4u.trade/post/retired-lego-star-wars-75387-boarding-the-tantive-iv-brand-new-sealed-2)
-- [LEGO 41115 Emma's Creative Workshop Sealed](https://bestdeals4u.trade/post/lego-41115-friends-emma-s-creative-workshop-new-sealed-retired-photo)
-
-### 🎮 Video Games
-- [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
+- [LEGO 6076795 NASA Mars Science Laboratory Curiosity Rover Sealed](https://bestdeals4u.trade/post/lego-21104-ideas-nasa-mars-curiosity-rover-new-sealed-rare-retired-2014-robot-3)
+- [LEGO Star Wars: UCS Slave 1 (75060) Brand New Factory Sealed Retired Set RARE](https://bestdeals4u.trade/post/v1-127709556624-0-lego-star-wars-ucs-slave-1-75060-brand-new-factory-sealed-retired-set-rare)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
