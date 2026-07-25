@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bryan Ramos 2021 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/bryan-ramos-2021-1st-bowman-chrome-auto-orange-wave-refractor-25-psa-9-rc-p6-3)
-- [Luke Shliger 2023 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2023-bowman-draft-chrome-luke-shliger-cdals-auto-gold-refractor-50-psa-10)
+- [Nick Pivetta 2025 Topps Chrome PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-signed-nick-pivetta-padres-blue-refractor-150-psa-10-auto)
+- [Thinking About Buying Bowman Johnny Lindell SGC 4.5 Vintage (1788)? Read This First](https://bestdeals4u.trade/post/1954-bowman-159-johnny-lindell-sgc-4-5-vintage-baseball-card-1788)
 
 ### 🧸 Funko Pops
+- [Funko Pop Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3)
 - [Funko Pop, Ichigo #1087 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-bleach-ichigo-chase-aaa-anime-exclusive-vinyl-figure-1087)
-- [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 75019 AT-TE Walker Sealed](https://bestdeals4u.trade/post/lego-star-wars-at-te-walker-75019-new-factory-sealed-box)
-- [LEGO 60438 Sailboat Sealed](https://bestdeals4u.trade/post/lego-city-sailboat-set-60438-5-102-pcs-building-toy-retired-rare-new-sealed)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-bookshop-10270-book-store-retired-sealed-note-in-descr)
 
 ### 🃏 Pokémon Cards
-- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
-- [Is Pokémon TCG Celebrations Elite Trainer Box SWSH144 Greninja Gold Star PSA 9 Priced Fairly at $79.95?](https://bestdeals4u.trade/post/2021-pok-mon-tcg-celebrations-elite-trainer-box-swsh144-greninja-gold-star-psa-9)
+- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 ### 🎮 Video Games
-- [Market Review: Sega Genesis TERMINATOR 2 Wata 9.6 A+ NEW Factory Sealed T2 VGA Arnold Top Pop](https://bestdeals4u.trade/post/sega-genesis-terminator-2-wata-9-6-a-new-factory-sealed-t2-vga-arnold-top-pop)
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [Donkey Kong Country 3: Dixie Kong's Double Trouble! 1996 for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-3-snes-super-nintendo-complete-in-box)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
