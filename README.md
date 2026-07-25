@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 - [Corbin Carroll 2023 Topps Finest PSA 10](https://bestdeals4u.trade/post/2023-topps-finest-green-refractor-25-99-corbin-carroll-psa-10-gem-mt-auto-04cw)
-- [Starlyn Nunez 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/starlyn-nunez-2024-1st-bowman-chrome-auto-green-refractor-99-psa-9-red-sox-z4)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
 - [Is This Meryl Stryfe with Kuroneko - Trigun - 2024 NYCC Fall Convention Funko Pop #1684 a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-meryl-stryfe-with-kuroneko-1684-trigun-2024-nycc-fall-convention)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
-- [LEGO 71785 Jay's Titan Mech Sealed](https://bestdeals4u.trade/post/lego-ninjago-71785-jay-s-titan-mech-794pcs-ninja-robot-retired-new-sealed)
+- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
 
 ### 🃏 Pokémon Cards
+- [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
 - [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
-- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 ### 🎮 Video Games
 - [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
