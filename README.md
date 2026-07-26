@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Corbin Carroll 2023 Topps Finest PSA 10](https://bestdeals4u.trade/post/2023-topps-finest-green-refractor-25-99-corbin-carroll-psa-10-gem-mt-auto-04cw)
+- [James Wood 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/james-wood-2025-topps-chrome-rc-auto-orange-refractor-25-silver-pack-psa-9-y6-2)
+- [Junior Fernandez 2016 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-chrome-gold-refractor-3-50-junior-fernandez-bgs-9-5-auto-0t2)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
-- [Is This Meryl Stryfe with Kuroneko - Trigun - 2024 NYCC Fall Convention Funko Pop #1684 a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-meryl-stryfe-with-kuroneko-1684-trigun-2024-nycc-fall-convention)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Funko Pop, Bon Clay #2235 Chase](https://bestdeals4u.trade/post/funko-pop-one-piece-2235-bon-clay-chase-limited-edition-protector)
 
 ### 🧱 LEGO
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 21310 Old Fishing Store Sealed](https://bestdeals4u.trade/post/lego-ideas-21310-old-fishing-store-2049pc-4-minifigs-retired-2017-new-sealed-box)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
 
 ### 🃏 Pokémon Cards
+- [Market Review: 2025 Pokémon M24 McDonald's Collection #009 Umbreon PSA 9](https://bestdeals4u.trade/post/2025-pokemon-m24-en-mcdonald-s-collection-009-umbreon-psa-9)
 - [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
-- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
-- [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
-- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
