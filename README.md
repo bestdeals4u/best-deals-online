@@ -36,23 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
-- [Jay Groome 2017 Bowman BGS 9.5](https://bestdeals4u.trade/post/2017-bowman-chrome-prospect-blue-refractor-jay-groome-bgs-9-5-gem-mint-auto-uk2)
+- [Eric Davis 2024 Topps Finest PSA 10](https://bestdeals4u.trade/post/2024-topps-finest-gold-refractor-32-50-eric-davis-fa-eda-psa-10-gem-mt-auto-v1x)
+- [William Contreras 2018 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2018-bowman-chrome-gold-refractor-39-50-william-contreras-psa-9-mint-auto-l5r)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
 - [Brass Dragon Wyrmling ECCC 2026 Con Exclusive IN Funko Pop #1201 LE 8000 at $30.00, below recent comps](https://bestdeals4u.trade/post/brass-dragon-wyrmling-funko-pop-1201-eccc-2026-con-exclusive-le-8000-in-hand)
-- [Funko Pop, Batman Arkham #52 Exclusive](https://bestdeals4u.trade/post/funko-pop-batman-52-arkham-asylum-hot-topic-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 71456 Mrs. Castillo's Turtle Van Sealed](https://bestdeals4u.trade/post/lego-dreamzzz-mrs-castillo-s-turtle-van-71456-new-sealed-retired)
-- [LEGO 21248 The Pumpkin Farm Sealed](https://bestdeals4u.trade/post/lego-minecraft-the-pumpkin-farm-21248-sealed-new-retired)
+- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
+- [LEGO 75381 Droideka Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-star-wars-droideka-75381)
 
 ### 🃏 Pokémon Cards
 - [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
 
 ### 🎮 Video Games
 - [Market Review: RetroN 1 HD Gaming Console for NES – Classic Black](https://bestdeals4u.trade/post/retron-1-hd-gaming-console-for-nes-classic-black-retro-gaming-system)
-- [Black 2001 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-black-label-complete)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
