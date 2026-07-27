@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Jay Groome 2017 Bowman BGS 9.5](https://bestdeals4u.trade/post/2017-bowman-chrome-prospect-blue-refractor-jay-groome-bgs-9-5-gem-mint-auto-uk2)
 - [Eduardo Herrera 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/eduardo-herrera-psa-10-2024-1st-bowman-chrome-auto-orange-refractor-25-rc-u6-2)
-- [Joendry Vargas 2023 Bowman Chrome RC SGC 9.5](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-green-refractor-99-sgc-9-5-10-rc-z4)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Batman Arkham #52 Exclusive](https://bestdeals4u.trade/post/funko-pop-batman-52-arkham-asylum-hot-topic-exclusive-w-protector)
 - [Funko Pop, Eddie Guerrero #284 Exclusive](https://bestdeals4u.trade/post/wwe-eddie-guerrero-with-low-rider-gamestop-exclusive-284-w-pop-protector-new)
-- [Funko Pop, Angela #464 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-angela-disney-gargoyles-464-chase-limited-gamestop-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired)
-- [LEGO 6531197 Northern Lights Diorama Sealed](https://bestdeals4u.trade/post/new-sealed-lego-40785-northern-lights-diorama-limited-edition-retired-2)
+- [LEGO 43225 The Little Mermaid Royal Clamshell Sealed](https://bestdeals4u.trade/post/lego-43225-disney-the-little-mermaid-royal-clamshell-new-sealed)
+- [LEGO 75352 Emperor's Throne Room Diorama Sealed](https://bestdeals4u.trade/post/lego-75352-emperor-s-throne-room-diorama-star-wars-new-sealed-retired-2)
 
 ### 🃏 Pokémon Cards
 - [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
