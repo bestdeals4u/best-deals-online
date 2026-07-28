@@ -36,19 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Braylon Payne 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-braylon-payne-aqua-lava-refractor-rookie-auto-199-psa-10)
 - [Eric Davis 2024 Topps Finest PSA 10](https://bestdeals4u.trade/post/2024-topps-finest-gold-refractor-32-50-eric-davis-fa-eda-psa-10-gem-mt-auto-v1x)
-- [William Contreras 2018 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2018-bowman-chrome-gold-refractor-39-50-william-contreras-psa-9-mint-auto-l5r)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
-- [Brass Dragon Wyrmling ECCC 2026 Con Exclusive IN Funko Pop #1201 LE 8000 at $30.00, below recent comps](https://bestdeals4u.trade/post/brass-dragon-wyrmling-funko-pop-1201-eccc-2026-con-exclusive-le-8000-in-hand)
+- [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
+- [Funko Pop, Jaime Lannister #10](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-jaime-lannister-10-vaulted-mint-condition)
 
 ### 🧱 LEGO
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
-- [LEGO 75381 Droideka Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-star-wars-droideka-75381)
+- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
-- [Mew VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-mew-vmax-269-fusion-strike-secret-alt-art-vmax-holo-psa-10)
+- [Charizard Holo Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/perfect-mouth-swirl-charizard-base-set-2-pokemon-holo-4-130-wotc)
 
 ### 🎮 Video Games
 - [Market Review: RetroN 1 HD Gaming Console for NES – Classic Black](https://bestdeals4u.trade/post/retron-1-hd-gaming-console-for-nes-classic-black-retro-gaming-system)
