@@ -36,18 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Eduardo Herrera 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/eduardo-herrera-psa-10-2024-1st-bowman-chrome-auto-orange-refractor-25-rc-u6)
-- [Bryan Ramos 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/bryan-ramos-psa-10-2021-1st-bowman-chrome-auto-orange-shim-refractor-25-z1)
+- [Paulino Santana 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-paulino-santana-auto-gold-mini-diamond-refractor-50-psa-10)
+- [Connor Norby 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-connor-norby-rookie-blue-refractor-rc-auto-150-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Buckbeak #103 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-harry-potter-buckbeak-flocked-hot-topic-exclusive-103)
 - [Funko Pop, Itachi #578 Exclusive](https://bestdeals4u.trade/post/funko-pop-naruto-itachi-578-vinyl-special-edition-exclusive-mint)
-- [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 21248 The Pumpkin Farm Sealed](https://bestdeals4u.trade/post/lego-minecraft-the-pumpkin-farm-21248-sealed-new-retired)
-- [LEGO 75099 Rey's Speeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-rey-s-speeder-75099-new-sealed-unkar-s-thug-rare-retired-nisb-2)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
+- [Leafeon VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-leafeon-vmax-205-203-alt-art-sr-evolving-skies-gem-mint-psa-10)
 - [Charizard Holo Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/perfect-mouth-swirl-charizard-base-set-2-pokemon-holo-4-130-wotc)
 
 ### 🎮 Video Games
