@@ -36,22 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Elian Pena 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/topps-bowman-chrome-elian-pe-a-rookie-auto-refractor-499-cpa-ep-psa-9)
 - [Braylon Payne 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-braylon-payne-aqua-lava-refractor-rookie-auto-199-psa-10)
-- [Eric Davis 2024 Topps Finest PSA 10](https://bestdeals4u.trade/post/2024-topps-finest-gold-refractor-32-50-eric-davis-fa-eda-psa-10-gem-mt-auto-v1x)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
 - [Funko Pop, Jaime Lannister #10](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-jaime-lannister-10-vaulted-mint-condition)
 
 ### 🧱 LEGO
-- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 21338 A-Frame Cabin Sealed](https://bestdeals4u.trade/post/lego-21338-ideas-a-frame-cabin-new-sealed-in-box-retired-set)
+- [LEGO 910044 Train Sealed](https://bestdeals4u.trade/post/lego-bricklink-designer-program-910044-wild-west-train-set-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Charizard Holo Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/perfect-mouth-swirl-charizard-base-set-2-pokemon-holo-4-130-wotc)
-
-### 🎮 Video Games
-- [Market Review: RetroN 1 HD Gaming Console for NES – Classic Black](https://bestdeals4u.trade/post/retron-1-hd-gaming-console-for-nes-classic-black-retro-gaming-system)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
