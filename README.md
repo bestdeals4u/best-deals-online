@@ -36,19 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Elian Pena 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/topps-bowman-chrome-elian-pe-a-rookie-auto-refractor-499-cpa-ep-psa-9)
-- [Braylon Payne 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-braylon-payne-aqua-lava-refractor-rookie-auto-199-psa-10)
+- [Eduardo Herrera 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/eduardo-herrera-psa-10-2024-1st-bowman-chrome-auto-orange-refractor-25-rc-u6)
+- [Bryan Ramos 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/bryan-ramos-psa-10-2021-1st-bowman-chrome-auto-orange-shim-refractor-25-z1)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Itachi #578 Exclusive](https://bestdeals4u.trade/post/funko-pop-naruto-itachi-578-vinyl-special-edition-exclusive-mint)
 - [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
-- [Funko Pop, Jaime Lannister #10](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-jaime-lannister-10-vaulted-mint-condition)
 
 ### 🧱 LEGO
-- [LEGO 21338 A-Frame Cabin Sealed](https://bestdeals4u.trade/post/lego-21338-ideas-a-frame-cabin-new-sealed-in-box-retired-set)
-- [LEGO 910044 Train Sealed](https://bestdeals4u.trade/post/lego-bricklink-designer-program-910044-wild-west-train-set-brand-new-sealed)
+- [LEGO 21248 The Pumpkin Farm Sealed](https://bestdeals4u.trade/post/lego-minecraft-the-pumpkin-farm-21248-sealed-new-retired)
+- [LEGO 75099 Rey's Speeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-rey-s-speeder-75099-new-sealed-unkar-s-thug-rare-retired-nisb-2)
 
 ### 🃏 Pokémon Cards
 - [Charizard Holo Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/perfect-mouth-swirl-charizard-base-set-2-pokemon-holo-4-130-wotc)
+
+### 🎮 Video Games
+- [Donkey Kong Country 2: Diddy's Kong Quest for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-2-super-nintendo-snes-complete-in-box-cib)
+- [Donkey Kong Bananza 2025 Nintendo Switch 2 Sealed](https://bestdeals4u.trade/post/donkey-kong-bananza-nintendo-switch-2-physical-copy-sealed-and-new)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
