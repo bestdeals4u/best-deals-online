@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Shao-Ching Chiang 2018 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2018-bowman-chrome-prospect-blue-refractor-auto-150-shao-ching-chiang-psa-9)
-- [Nazier Mule 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-chrome-pick-purple-refractor-250-nazier-mule-psa-10-auto-12wc)
+- [Brett Wallace 2011 Topps Finest RC BGS 9](https://bestdeals4u.trade/post/topps-2011-finest-brett-wallace-rookie-auto-green-refractor-199-bgs-9)
+- [Yanquiel Fernandez 2022 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/topps-2022-bowman-chrome-yanquiel-fernandez-rc-auto-speckle-refractor-299-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, The Fiend, Bray Wyatt #100 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wwe-the-fiend-bray-wyatt-100-glow-in-the-dark-walmart-exclusive)
+- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
+- [Ash Chase ~ Movies The Evil Dead in Protector Funko Pop #1142 at $38.98, with recent sales closer to $40.74](https://bestdeals4u.trade/post/ash-chase-1142-funko-pop-movies-the-evil-dead-in-protector)
 
 ### 🧱 LEGO
-- [LEGO 76390 LEGO Harry Potter Advent Calendar Sealed](https://bestdeals4u.trade/post/lego-harry-potter-advent-calendar-76390-wizarding-world-retired-sealed-free-ship)
-- [LEGO 10297 Boutique Hotel Sealed](https://bestdeals4u.trade/post/lego-icons-boutique-hotel-modular-building-10297-new-sealed-retired)
+- [LEGO 76261 Spider-Man Final Battle Sealed](https://bestdeals4u.trade/post/lego-76261-marvel-spider-man-final-battle-new-sealed-2)
+- [LEGO 7113 Tusken Raider Encounter Sealed](https://bestdeals4u.trade/post/lego-star-wars-tusken-raider-encounter-7113-in-2002-new-retired-p2)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
@@ -53,7 +53,6 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### 🎮 Video Games
 - [Donkey Kong Country 2: Diddy's Kong Quest for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-2-super-nintendo-snes-complete-in-box-cib)
-- [Donkey Kong Bananza 2025 Nintendo Switch 2 Sealed](https://bestdeals4u.trade/post/donkey-kong-bananza-nintendo-switch-2-physical-copy-sealed-and-new)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
