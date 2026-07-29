@@ -36,20 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nolan Ryan 1968 Topps Rookie SGC-Authenticated Graded Card](https://bestdeals4u.trade/post/nolan-ryan-1968-topps-sgc-authentic-hot-graded-rookie-rc-mlb-baseball-card-177)
-- [Christian Moore 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-draft-christian-moore-cpa-cm-chrome-auto-refractor-499-psa-10)
+- [Samuel Zavala 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-1st-bowman-chrome-auto-samuel-zavala-green-refractor-99-gem-mint-psa-10)
+- [Quinn Priester 2019 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2019-bowman-draft-gold-wave-refractor-46-50-quinn-priester-psa-9-mint-auto-1q7)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Vinsmoke Sanji #2346 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-sanji-in-raid-suit-glow-2346-one-piece-exclusive-protector-presale)
-- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [Lego 10293 Santa's Visit - Winter Village Collection](https://bestdeals4u.trade/post/lego-10293-santa-s-visit-winter-village-collection-brand-new-sealed)
-- [LEGO 10271 Fiat 500 Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10271-fiat-500-new-sealed-retired-excellent-box)
-
-### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
-- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+- [LEGO 10277 Crocodile Locomotive Sealed](https://bestdeals4u.trade/post/lego-icons-10277-crocodile-locomotive-new-sealed-retired-set)
+- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
 
 ### 🎮 Video Games
 - [Donkey Kong Bananza 2025 Nintendo Switch 2 Sealed](https://bestdeals4u.trade/post/donkey-kong-bananza-nintendo-switch-2-physical-copy-sealed-and-new)
