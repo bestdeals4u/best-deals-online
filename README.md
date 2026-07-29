@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Paulino Santana 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-paulino-santana-auto-gold-mini-diamond-refractor-50-psa-10)
-- [Connor Norby 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-connor-norby-rookie-blue-refractor-rc-auto-150-psa-9)
+- [Shao-Ching Chiang 2018 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2018-bowman-chrome-prospect-blue-refractor-auto-150-shao-ching-chiang-psa-9)
+- [Nazier Mule 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-chrome-pick-purple-refractor-250-nazier-mule-psa-10-auto-12wc)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Buckbeak #103 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-harry-potter-buckbeak-flocked-hot-topic-exclusive-103)
-- [Funko Pop, Itachi #578 Exclusive](https://bestdeals4u.trade/post/funko-pop-naruto-itachi-578-vinyl-special-edition-exclusive-mint)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Funko Pop, The Fiend, Bray Wyatt #100 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wwe-the-fiend-bray-wyatt-100-glow-in-the-dark-walmart-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 76390 LEGO Harry Potter Advent Calendar Sealed](https://bestdeals4u.trade/post/lego-harry-potter-advent-calendar-76390-wizarding-world-retired-sealed-free-ship)
+- [LEGO 10297 Boutique Hotel Sealed](https://bestdeals4u.trade/post/lego-icons-boutique-hotel-modular-building-10297-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Leafeon VMAX PSA 10 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-2021-leafeon-vmax-205-203-alt-art-sr-evolving-skies-gem-mint-psa-10)
-- [Charizard Holo Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/perfect-mouth-swirl-charizard-base-set-2-pokemon-holo-4-130-wotc)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
 
 ### 🎮 Video Games
 - [Donkey Kong Country 2: Diddy's Kong Quest for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-2-super-nintendo-snes-complete-in-box-cib)
