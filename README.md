@@ -36,18 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Samuel Zavala 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-1st-bowman-chrome-auto-samuel-zavala-green-refractor-99-gem-mint-psa-10)
-- [Quinn Priester 2019 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2019-bowman-draft-gold-wave-refractor-46-50-quinn-priester-psa-9-mint-auto-1q7)
+- [Alec Marsh 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-rookie-gold-refractor-10-50-alec-marsh-psa-10-gem-mt-auto-8uc)
+- [Adley Rutschman 2019 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-draft-adley-rutschman-rc-auto-250-bgs-9-5-10-0-autograph)
 
 ### 🧸 Funko Pops
-- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
-- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Funko Pop! DC Super Heroes The Flash Metallic LE Chase 2015 (New)](https://bestdeals4u.trade/post/funko-pop-dc-super-heroes-the-flash-10-metallic-le-chase-vaulted-2015)
+- [Funko Pop, Splinter #58 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-tmnt-58-splinter-target-exclusive-w-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 10277 Crocodile Locomotive Sealed](https://bestdeals4u.trade/post/lego-icons-10277-crocodile-locomotive-new-sealed-retired-set)
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
+- [LEGO 6477 Fire Fighters' Lift Truck Sealed](https://bestdeals4u.trade/post/vintage-2000-lego-city-center-fire-fighters-lift-truck-6477-new-sealed-box)
+- [LEGO 75305 Scout Trooper Helmet Sealed](https://bestdeals4u.trade/post/lego-star-wars-scout-trooper-helmet-75305-new-sealed)
+
+### 🃏 Pokémon Cards
+- [CGC 10 Umbreon ex SIR Alt Art](https://bestdeals4u.trade/post/cgc-10-umbreon-ex-prismatic-evolutions-sir-alt-art-pokemon-card-161-gem-mint)
 
 ### 🎮 Video Games
+- [Metal Slug Tactics - Nintendo Switch Fast Shipping - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/metal-slug-tactics-nintendo-switch-brand-new-sealed-fast-shipping)
 - [Donkey Kong Bananza 2025 Nintendo Switch 2 Sealed](https://bestdeals4u.trade/post/donkey-kong-bananza-nintendo-switch-2-physical-copy-sealed-and-new)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
