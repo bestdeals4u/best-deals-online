@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Alec Marsh 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-topps-chrome-rookie-gold-refractor-10-50-alec-marsh-psa-10-gem-mt-auto-8uc)
-- [Adley Rutschman 2019 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-draft-adley-rutschman-rc-auto-250-bgs-9-5-10-0-autograph)
+- [Conner Capel 2018 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2018-bowman-chrome-prospect-gold-refractor-20-50-conner-capel-psa-10-auto-l5r)
+- [HENDRY MENDEZ 2022 BOWMAN CHROME PROSPECT AUTOGRAPHS RC PSA 10](https://bestdeals4u.trade/post/hendry-mendez-2022-bowman-1st-true-gold-ref-rc-auto-50-psa-9-mint)
 
 ### 🧸 Funko Pops
-- [Funko Pop! DC Super Heroes The Flash Metallic LE Chase 2015 (New)](https://bestdeals4u.trade/post/funko-pop-dc-super-heroes-the-flash-10-metallic-le-chase-vaulted-2015)
-- [Funko Pop, Splinter #58 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-tmnt-58-splinter-target-exclusive-w-pop-protector)
+- [Is This Pongo 101 Dalmatians w/ Protector ECCC Exclusive Funko Pop #1723 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-101-dalmatians-w-protector-eccc-exclusive)
+- [Funko Pop, Georgie Denbrough #536 Chase](https://bestdeals4u.trade/post/funko-pop-movies-it-georgie-denbrough-536-limited-edition-chase-nib)
 
 ### 🧱 LEGO
-- [LEGO 6477 Fire Fighters' Lift Truck Sealed](https://bestdeals4u.trade/post/vintage-2000-lego-city-center-fire-fighters-lift-truck-6477-new-sealed-box)
-- [LEGO 75305 Scout Trooper Helmet Sealed](https://bestdeals4u.trade/post/lego-star-wars-scout-trooper-helmet-75305-new-sealed)
+- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-retired-vhs-books-watch-new-open-box-sealed-bags)
+- [LEGO 75326 Boba Fett's Throne Room Sealed](https://bestdeals4u.trade/post/new-retired-lego-star-wars-75326-boba-fett-s-throne-room-sealed)
 
 ### 🃏 Pokémon Cards
+- [Pokémon Base Set Unlimited Ivysaur 30/102 - PSA 7 NM! WOTC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-base-set-unlimited-ivysaur-30-102-psa-7-nm-wotc)
 - [CGC 10 Umbreon ex SIR Alt Art](https://bestdeals4u.trade/post/cgc-10-umbreon-ex-prismatic-evolutions-sir-alt-art-pokemon-card-161-gem-mint)
 
 ### 🎮 Video Games
-- [Metal Slug Tactics - Nintendo Switch Fast Shipping - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/metal-slug-tactics-nintendo-switch-brand-new-sealed-fast-shipping)
-- [Donkey Kong Bananza 2025 Nintendo Switch 2 Sealed](https://bestdeals4u.trade/post/donkey-kong-bananza-nintendo-switch-2-physical-copy-sealed-and-new)
+- [Pokémon TCG Team Rockets Moltres EX Ultra Premium Collection UPC Facto Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-tcg-team-rockets-moltres-ex-ultra-premium-collection-upc-factory-sealed)
+- [Console Only Model HKT-3000 NTSC-J Made In Japan 1998 for Sega Dreamcast](https://bestdeals4u.trade/post/sega-dreamcast-console-only-model-hkt-3000-ntsc-j-tested-made-in-japan)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
