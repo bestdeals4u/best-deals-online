@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Conner Capel 2018 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2018-bowman-chrome-prospect-gold-refractor-20-50-conner-capel-psa-10-auto-l5r)
-- [HENDRY MENDEZ 2022 BOWMAN CHROME PROSPECT AUTOGRAPHS RC PSA 10](https://bestdeals4u.trade/post/hendry-mendez-2022-bowman-1st-true-gold-ref-rc-auto-50-psa-9-mint)
+- [Yohendrick Pinango 2021 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2021-bowman-chrome-yohendrick-pinango-choice-refractor-auto-cpayp-psa-9-150)
+- [Henry Baez 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-cpa-hba-henry-baez-autograph-hta-choice-rc-82-150-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Fluffy #420 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-despicable-me-fluffy-flocked-420-kohls-exclusive)
 - [Is This Pongo 101 Dalmatians w/ Protector ECCC Exclusive Funko Pop #1723 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-101-dalmatians-w-protector-eccc-exclusive)
-- [Funko Pop, Georgie Denbrough #536 Chase](https://bestdeals4u.trade/post/funko-pop-movies-it-georgie-denbrough-536-limited-edition-chase-nib)
 
 ### 🧱 LEGO
-- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-retired-vhs-books-watch-new-open-box-sealed-bags)
-- [LEGO 75326 Boba Fett's Throne Room Sealed](https://bestdeals4u.trade/post/new-retired-lego-star-wars-75326-boba-fett-s-throne-room-sealed)
+- [LEGO 43188 Aurora's Forest Cottage Sealed](https://bestdeals4u.trade/post/lego-disney-princess-43188-aurora-s-forest-cottage-new-sealed-retired-set-300)
+- [LEGO 71389 Lakitu Sky World Expansion Set Sealed](https://bestdeals4u.trade/post/retired-lego-super-mario-expansion-set-71389-lakitu-sky-world-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [PSA 9 Vaporeon Jungle 1st Edition 12/64 Holo Rare Pokemon Card](https://bestdeals4u.trade/post/psa-9-vaporeon-jungle-1st-edition-12-64-holo-rare-pokemon-card)
 - [Pokémon Base Set Unlimited Ivysaur 30/102 - PSA 7 NM! WOTC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-base-set-unlimited-ivysaur-30-102-psa-7-nm-wotc)
-- [CGC 10 Umbreon ex SIR Alt Art](https://bestdeals4u.trade/post/cgc-10-umbreon-ex-prismatic-evolutions-sir-alt-art-pokemon-card-161-gem-mint)
 
 ### 🎮 Video Games
-- [Pokémon TCG Team Rockets Moltres EX Ultra Premium Collection UPC Facto Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-tcg-team-rockets-moltres-ex-ultra-premium-collection-upc-factory-sealed)
-- [Console Only Model HKT-3000 NTSC-J Made In Japan 1998 for Sega Dreamcast](https://bestdeals4u.trade/post/sega-dreamcast-console-only-model-hkt-3000-ntsc-j-tested-made-in-japan)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [One Piece Pirates Carnival Nintendo GameCube Factory Sealed Review](https://bestdeals4u.trade/post/one-piece-pirates-carnival-nintendo-gamecube-brand-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
