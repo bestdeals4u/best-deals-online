@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Yohendrick Pinango 2021 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2021-bowman-chrome-yohendrick-pinango-choice-refractor-auto-cpayp-psa-9-150)
-- [Henry Baez 2025 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-cpa-hba-henry-baez-autograph-hta-choice-rc-82-150-psa-10)
+- [Victor Mesa Jr. 2019 Bowman PSA 10](https://bestdeals4u.trade/post/2019-bowman-victor-mesa-jr-prospect-auto-chrome-refractor-psa-10-499-cpa-vmj)
+- [Jacob Amaya 2020 Bowman PSA 10](https://bestdeals4u.trade/post/bowman-2020-chrome-jacob-amaya-cpa-ja-purple-refractor-auto-250-psa-10-dodgers)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-hot-topic-exclusive-w-protector-new)
 - [Funko Pop, Fluffy #420 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-despicable-me-fluffy-flocked-420-kohls-exclusive)
-- [Is This Pongo 101 Dalmatians w/ Protector ECCC Exclusive Funko Pop #1723 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-pongo-facet-1723-101-dalmatians-w-protector-eccc-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 43188 Aurora's Forest Cottage Sealed](https://bestdeals4u.trade/post/lego-disney-princess-43188-aurora-s-forest-cottage-new-sealed-retired-set-300)
-- [LEGO 71389 Lakitu Sky World Expansion Set Sealed](https://bestdeals4u.trade/post/retired-lego-super-mario-expansion-set-71389-lakitu-sky-world-brand-new-sealed)
+- [LEGO 75931 Dilophosaurus Outpost Attack Sealed](https://bestdeals4u.trade/post/lego-jurassic-world-75931-dilophosaurus-outpost-attack-sealed-brand-new)
+- [LEGO 31132 Viking Ship and the Midgard Serpent Sealed](https://bestdeals4u.trade/post/lego-31132-creator-3-in-1-viking-ship-and-midgard-serpent-sealed-new-retired-set)
 
 ### 🃏 Pokémon Cards
 - [PSA 9 Vaporeon Jungle 1st Edition 12/64 Holo Rare Pokemon Card](https://bestdeals4u.trade/post/psa-9-vaporeon-jungle-1st-edition-12-64-holo-rare-pokemon-card)
 - [Pokémon Base Set Unlimited Ivysaur 30/102 - PSA 7 NM! WOTC Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/pok-mon-base-set-unlimited-ivysaur-30-102-psa-7-nm-wotc)
 
 ### 🎮 Video Games
+- [Beach Spikers Virtua Beach Volleyball Gamecube Ita Nintendo for Nintendo GameCube Complete](https://bestdeals4u.trade/post/beach-spikers-virtua-beach-volleyball-gamecube-complete-ita-nintendo)
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
-- [One Piece Pirates Carnival Nintendo GameCube Factory Sealed Review](https://bestdeals4u.trade/post/one-piece-pirates-carnival-nintendo-gamecube-brand-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
