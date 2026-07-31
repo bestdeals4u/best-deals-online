@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Zach Neto 2022 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/zach-neto-bowman-draft-chrome-1st-auto-rc-purple-refractor-250-cda-zn-psa-9)
-- [Colt Emerson 2023 Bowman Draft PSA 9](https://bestdeals4u.trade/post/topps-2023-bowman-draft-chrome-prospect-auto-colt-emerson-refractor-499-psa-9)
+- [Brody Brecht 2024 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-blue-wave-refractor-88-150-brody-brecht-psa-9-mint-auto-0m4x)
+- [Jase Bowen 2023 Bowman PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-true-green-refractor-99-jase-bowen-cpa-jbn-auto-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Moon Knight #796 Exclusive](https://bestdeals4u.trade/post/funko-pop-marvel-796-zombie-moon-knight-funko-exclusive-w-protector-vaulted)
 - [Funko Pop, Mr. Fantastic #689 Exclusive](https://bestdeals4u.trade/post/funko-pop-venomized-mr-fantastic-689-marvel-gamestop-exclusive-w-protector)
-- [Market Review: Funko Pop! Immortal Hulk #840 LE Glow Chase PX Previews Exclusive Marvel](https://bestdeals4u.trade/post/funko-pop-immortal-hulk-840-le-glow-chase-px-previews-exclusive-marvel)
 
 ### 🧱 LEGO
-- [LEGO 10312 Jazz Club Icons Modular Building – New, Sealed, Moderate-Confidence Seller Overview](https://bestdeals4u.trade/post/lego-10312-jazz-club-icons-modular-building-retired-brand-new-and-sealed)
-- [LEGO 76298 Iron Spider-Man Construction Figure Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-marvel-iron-spider-man-construction-figure-76298)
-
-### 🃏 Pokémon Cards
-- [Market Review: Mega Gengar ex 2026 Pokemon Ascended Heroes #284 PSA 10](https://bestdeals4u.trade/post/mega-gengar-ex-2026-pokemon-ascended-heroes-284-sir-psa-10-printed-picture)
+- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
+- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
 
 ### 🎮 Video Games
-- [Is This Pokémon TCG Perfect Order Elite Trainer Box ETB a Good Deal Right Now?](https://bestdeals4u.trade/post/pok-mon-tcg-perfect-order-elite-trainer-box-etb-sealed)
-- [Devil May Cry 3: Dante's Awakening 2006 Sony PlayStation 2 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/sealed-devil-may-cry-3-dante-s-awakening-cgc-9-9-a-ps2-capcom-2006-us)
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
+- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
