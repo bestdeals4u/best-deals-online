@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [CJ Rodriguez 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-cj-rodriguez-1st-gold-shimmer-refractor-auto-50-50-psa-10)
-- [Drew Gilbert 2022 Bowman Draft PSA 9](https://bestdeals4u.trade/post/drew-gilbert-2022-1st-bowman-chrome-auto-sparkle-refractor-71-psa-9-giants-h6)
+- [Dalton Rushing 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-s-best-dalton-rushing-green-refractor-auto-99-psa-gem-mt-10)
+- [Miguel Vargas 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/2023-topps-chrome-rookie-green-refractor-4-99-miguel-vargas-sgc-10-gem-auto-06z2)
 
 ### 🧸 Funko Pops
-- [Marvel The Punisher ECCC 2026 Shared Exclusive Funko Pop #1577 at $23.99, with recent sales closer to $28.55](https://bestdeals4u.trade/post/marvel-the-punisher-funko-pop-1577-eccc-2026-shared-exclusive)
-- [Funko Pop, Mr. Knight #1048 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-moon-knight-mr-knight-1048-gitd-walmart-exclusive)
+- [Market Review: Funko Pop! Immortal Hulk #840 LE Glow Chase PX Previews Exclusive Marvel](https://bestdeals4u.trade/post/funko-pop-immortal-hulk-840-le-glow-chase-px-previews-exclusive-marvel)
+- [Funko Pop, Victor Wembanyama #220 Exclusive](https://bestdeals4u.trade/post/funko-pop-nba-san-antonio-spurs-220-victor-wembanyama-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 41097 Heartlake Hot Air Balloon Sealed](https://bestdeals4u.trade/post/lego-friends-41097-heartlake-hot-air-balloon-andrea-noah-new-sealed-retired)
-- [LEGO 76401 Hogwarts Courtyard: Sirius's Rescue Sealed](https://bestdeals4u.trade/post/lego-harry-potter-76401-hogwarts-courtyard-sirius-s-rescue-new-factory-sealed)
+- [LEGO 75950 Aragog's Lair Sealed](https://bestdeals4u.trade/post/lego-harry-potter-aragog-s-lair-75950-new-in-sealed-box-157-pieces-2018-set)
+- [LEGO 40917 The Darksaber Sealed](https://bestdeals4u.trade/post/lego-40917-star-wars-the-darksaber-limited-edition-gwp-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Mega Gengar ex 2026 Pokemon Ascended Heroes #284 PSA 10](https://bestdeals4u.trade/post/mega-gengar-ex-2026-pokemon-ascended-heroes-284-sir-psa-10-printed-picture)
 - [Pokemon Card Muk & Alolan Muk GX 197/214 Alt Art PSA 10 Overview](https://bestdeals4u.trade/post/pokemon-card-muk-alolan-muk-gx-197-214-alt-art-unbroken-bonds-tag-team-psa-10)
 
 ### 🎮 Video Games
+- [Devil May Cry 3: Dante's Awakening 2006 Sony PlayStation 2 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/sealed-devil-may-cry-3-dante-s-awakening-cgc-9-9-a-ps2-capcom-2006-us)
 - [Is This Tested Grade “B” Microsoft 1538 Xbox 360 E Black Console Only - No Storage a Good Deal Right Now?](https://bestdeals4u.trade/post/tested-grade-b-microsoft-1538-xbox-360-e-black-console-only-no-storage)
-- [Beach Spikers Virtua Beach Volleyball Gamecube Ita Nintendo for Nintendo GameCube Complete](https://bestdeals4u.trade/post/beach-spikers-virtua-beach-volleyball-gamecube-complete-ita-nintendo)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
