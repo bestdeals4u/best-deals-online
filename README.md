@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Brody Brecht 2024 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-blue-wave-refractor-88-150-brody-brecht-psa-9-mint-auto-0m4x)
-- [Jase Bowen 2023 Bowman PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-true-green-refractor-99-jase-bowen-cpa-jbn-auto-psa-10)
+- [Wyatt Langford 2024 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-wyatt-langford-rc-rookie-patch-auto-rpa-150-psa-9-relic)
+- [Jordan Lawlar 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/jordan-lawlar-2024-topps-chrome-rc-auto-blue-refractor-150-psa-9-ra-jla-t6-2)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Beru #2022 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-beru-glow-solo-leveling-2022-ee-exclusive-w-pop-protector)
 - [Funko Pop, Moon Knight #796 Exclusive](https://bestdeals4u.trade/post/funko-pop-marvel-796-zombie-moon-knight-funko-exclusive-w-protector-vaulted)
-- [Funko Pop, Mr. Fantastic #689 Exclusive](https://bestdeals4u.trade/post/funko-pop-venomized-mr-fantastic-689-marvel-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
-- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
+- [LEGO 75133 Battle Pack Sealed](https://bestdeals4u.trade/post/lego-star-wars-75133-rebel-alliance-battle-pack-sealed-box-retired-not-mint)
+- [LEGO 75102 Poe's X-Wing Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-poe-s-x-wing-fighter-75102-brand-new-in-sealed-box)
 
 ### 🎮 Video Games
+- [Super Smash Bros Melee 2001 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-cib-w-manual-tested-working)
 - [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
-- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
