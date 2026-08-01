@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Hagen Smith 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/hagen-smith-2024-bowman-draft-1st-chrome-auto-purple-refractor-161-250-psa-10)
-- [Juan Corniel 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-orange-wave-refractor-auto-juan-corniel-25-dbacks-psa-9)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Isaiah Drake 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-isaiah-drake-refractor-499-auto-psa-10-braves)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Judge Smails #725 Exclusive](https://bestdeals4u.trade/post/funko-pop-judge-smails-with-hat-fye-exclusive-725-with-protector)
-- [Funko Pop, Ed #1897 Chase](https://bestdeals4u.trade/post/funko-pop-animation-ed-edd-n-eddy-ed-1897-chase-limited-edition-pop-vinyl)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-10283-nasa-space-shuttle-discovery-ship-new-sealed-retired-hubble-sts-31)
-- [LEGO 75900 Mummy Museum Mystery Sealed](https://bestdeals4u.trade/post/lego-scooby-doo-mummy-museum-mystery-75900-sealed-retired-set-light-wear)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
 
 ### 🃏 Pokémon Cards
+- [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint-3)
 - [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
 
 ### 🎮 Video Games
+- [My Universe Puppies And Kittens PlayStation 4 PS4 Video Game Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/my-universe-puppies-and-kittens-playstation-4-ps4-video-game-brand-new-sealed)
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [Danganronpa Decadence Collector's Edition 2021 Nintendo Switch Sealed](https://bestdeals4u.trade/post/danganronpa-decadence-collector-s-edition-nintendo-switch-2021-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
