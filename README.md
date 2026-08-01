@@ -36,16 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Joendry Vargas 2023 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/joendry-vargas-2023-1st-bowman-chrome-auto-refractor-499-psa-9-dodgers-rc-u6-4)
+- [Hagen Smith 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/hagen-smith-2024-bowman-draft-1st-chrome-auto-purple-refractor-161-250-psa-10)
+- [Juan Corniel 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-orange-wave-refractor-auto-juan-corniel-25-dbacks-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mercy #411 Exclusive](https://bestdeals4u.trade/post/rare-funko-pop-overwatch-mercy-witch-blizzard-exclusive-411-w-protector)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop, Judge Smails #725 Exclusive](https://bestdeals4u.trade/post/funko-pop-judge-smails-with-hat-fye-exclusive-725-with-protector)
+- [Funko Pop, Ed #1897 Chase](https://bestdeals4u.trade/post/funko-pop-animation-ed-edd-n-eddy-ed-1897-chase-limited-edition-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-10283-nasa-space-shuttle-discovery-ship-new-sealed-retired-hubble-sts-31)
+- [LEGO 75900 Mummy Museum Mystery Sealed](https://bestdeals4u.trade/post/lego-scooby-doo-mummy-museum-mystery-75900-sealed-retired-set-light-wear)
+
+### 🃏 Pokémon Cards
+- [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
 
 ### 🎮 Video Games
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
