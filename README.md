@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Slade Caldwell 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-prospect-auto-slade-caldwell-99-green-grass-refractor-psa-9)
 - [Luinder Avila 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-luinder-avila-refractor-auto-499-psa-9)
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop! 6” Baymax w/Mochi Box Lunch Exclusive Figure #988 Limited Glow Chase — New, $50](https://bestdeals4u.trade/post/funko-pop-6-baymax-w-mochi-box-lunch-exclusive-figure-988-limited-glow-chase)
 - [Funko Pop, Squirrel Girl #144 Exclusive](https://bestdeals4u.trade/post/vaulted-funko-pop-marvel-squirrel-girl-144-marvel-collector-corps-exclusive)
-- [Is This Boruto with Chakra Blade 1383 CHASE Glow AAA Anime Exclusive Naruto Funko Pop a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-boruto-with-chakra-blade-1383-chase-glow-aaa-anime-exclusive-naruto)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 75220 Sandcrawler Sealed](https://bestdeals4u.trade/post/lego-star-wars-75220-sandcrawler-new-and-factory-sealed)
+- [LEGO 4867 Hogwarts Sealed](https://bestdeals4u.trade/post/lego-harry-potter-4867-hogwarts-new-sealed-retired-castle-set-466-pcs)
+- [LEGO 76178 Daily Bugle Sealed](https://bestdeals4u.trade/post/daily-bugle-lego-marvel-76178-brand-new-sealed-3772-pcs-spider-man-retired)
 
 ### 🃏 Pokémon Cards
 - [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
 - [Market Review: Pokémon TCG Magneton Base Set Shadowless 9/102 Holo CGC 7.5 NM Near Mint](https://bestdeals4u.trade/post/pok-mon-tcg-magneton-base-set-shadowless-9-102-holo-cgc-7-5-nm-near-mint)
 
 ### 🎮 Video Games
+- [Market Review: MATO ANOMALIES NEW FACTORY SEALED 2023 Authentic Xbox Series X S One](https://bestdeals4u.trade/post/mato-anomalies-new-factory-sealed-2023-authentic-xbox-series-x-s-one)
 - [F-Zero GX 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/f-zero-gx-nintendo-gamecube-cib-complete-tested-working-great-condition)
-- [My Universe Puppies And Kittens PlayStation 4 PS4 Video Game Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/my-universe-puppies-and-kittens-playstation-4-ps4-video-game-brand-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
