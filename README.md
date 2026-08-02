@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Devin Fitz-Gerald 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-devin-fitz-gerald-1st-auto-refractor-499-psa-9-rangers)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Isaiah Drake 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-isaiah-drake-refractor-499-auto-psa-10-braves)
 
 ### 🧸 Funko Pops
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Is This Boruto with Chakra Blade 1383 CHASE Glow AAA Anime Exclusive Naruto Funko Pop a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-boruto-with-chakra-blade-1383-chase-glow-aaa-anime-exclusive-naruto)
+- [Funko Pop, Shakira #357](https://bestdeals4u.trade/post/funko-pop-rocks-shakira-shakira-357-vaulted-w-pop-protector)
 
 ### 🧱 LEGO
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 75387 Tantive IV Sealed](https://bestdeals4u.trade/post/lego-star-wars-75387-boarding-the-tantive-iv-new-sealed-free-postage)
+- [LEGO 40452 Hogwarts Gryffindor Dorms Sealed](https://bestdeals4u.trade/post/new-factory-sealed-lego-40452-harry-potter-hogwarts-gryffindor-dorms-retired)
 
 ### 🃏 Pokémon Cards
 - [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint-3)
-- [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
 
 ### 🎮 Video Games
 - [My Universe Puppies And Kittens PlayStation 4 PS4 Video Game Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/my-universe-puppies-and-kittens-playstation-4-ps4-video-game-brand-new-sealed)
