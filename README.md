@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Cole Mathis 2024 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-cole-mathis-blue-wave-refractor-auto-150-psa-9-mint)
-- [Devin Fitz-Gerald 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-devin-fitz-gerald-1st-auto-refractor-499-psa-9-rangers)
+- [Luinder Avila 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-luinder-avila-refractor-auto-499-psa-9)
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Squirrel Girl #144 Exclusive](https://bestdeals4u.trade/post/vaulted-funko-pop-marvel-squirrel-girl-144-marvel-collector-corps-exclusive)
 - [Is This Boruto with Chakra Blade 1383 CHASE Glow AAA Anime Exclusive Naruto Funko Pop a Good Deal Right Now?](https://bestdeals4u.trade/post/funko-pop-boruto-with-chakra-blade-1383-chase-glow-aaa-anime-exclusive-naruto)
 
 ### 🧱 LEGO
-- [LEGO 66787 Jedi Masters Gift Set Sealed](https://bestdeals4u.trade/post/lego-66787-star-wars-galactic-gift-set-new-sealed-retired-walmart-exclusive)
-- [LEGO 40289 Diagon Alley Sealed](https://bestdeals4u.trade/post/lego-harry-potter-diagon-alley-40289-brand-new-sealed)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 75220 Sandcrawler Sealed](https://bestdeals4u.trade/post/lego-star-wars-75220-sandcrawler-new-and-factory-sealed)
 
 ### 🃏 Pokémon Cards
-- [Dark Gengar PSA 8](https://bestdeals4u.trade/post/psa-8-2002-pokemon-neo-destiny-1st-edition-dark-gengar-holo-6-105-from-japan)
-- [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint-3)
+- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
+- [Market Review: Pokémon TCG Magneton Base Set Shadowless 9/102 Holo CGC 7.5 NM Near Mint](https://bestdeals4u.trade/post/pok-mon-tcg-magneton-base-set-shadowless-9-102-holo-cgc-7-5-nm-near-mint)
 
 ### 🎮 Video Games
 - [F-Zero GX 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/f-zero-gx-nintendo-gamecube-cib-complete-tested-working-great-condition)
