@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Slade Caldwell 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-prospect-auto-slade-caldwell-99-green-grass-refractor-psa-9)
-- [Luinder Avila 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-luinder-avila-refractor-auto-499-psa-9)
+- [Adley Rutschman 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/adley-rutschman-2020-bowman-chrome-mega-box-auto-blue-refractor-150-psa-10)
+- [Caden Dana 2023 Bowman RC PSA 10](https://bestdeals4u.trade/post/caden-dana-psa-10-2023-1st-bowman-chrome-auto-prospect-green-refractor-99-rc-z4)
 
 ### 🧸 Funko Pops
-- [Funko Pop! 6” Baymax w/Mochi Box Lunch Exclusive Figure #988 Limited Glow Chase — New, $50](https://bestdeals4u.trade/post/funko-pop-6-baymax-w-mochi-box-lunch-exclusive-figure-988-limited-glow-chase)
-- [Funko Pop, Squirrel Girl #144 Exclusive](https://bestdeals4u.trade/post/vaulted-funko-pop-marvel-squirrel-girl-144-marvel-collector-corps-exclusive)
+- [Funko Pop, Miss Minutes #1063 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-jumbo-miss-minutes-1063-glow-2022-summer-con-exclusive-pop-protector)
+- [Funko Pop, Jin Kazama #176 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-tekken-devil-jin-gamestop-exclusive-176-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 4867 Hogwarts Sealed](https://bestdeals4u.trade/post/lego-harry-potter-4867-hogwarts-new-sealed-retired-castle-set-466-pcs)
-- [LEGO 76178 Daily Bugle Sealed](https://bestdeals4u.trade/post/daily-bugle-lego-marvel-76178-brand-new-sealed-3772-pcs-spider-man-retired)
+- [LEGO 71756 Hydro Bounty Sealed](https://bestdeals4u.trade/post/lego-ninjago-hydro-bounty-71756-brand-new-sealed-box)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
-- [Market Review: Pokémon TCG Magneton Base Set Shadowless 9/102 Holo CGC 7.5 NM Near Mint](https://bestdeals4u.trade/post/pok-mon-tcg-magneton-base-set-shadowless-9-102-holo-cgc-7-5-nm-near-mint)
+- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
+- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
 - [Market Review: MATO ANOMALIES NEW FACTORY SEALED 2023 Authentic Xbox Series X S One](https://bestdeals4u.trade/post/mato-anomalies-new-factory-sealed-2023-authentic-xbox-series-x-s-one)
