@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
 - [Carter Johnson 2025 Bowman Mega Box Bowman Prospect Mega Autographs PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-carter-johnson-1st-auto-blue-mojo-refractor-150-psa-10-pop-1)
-- [Taylor Jungmann 2011 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2011-bowman-draft-gold-refractor-50-taylor-jungmann-bgs-9-5-gem-mint-auto-0ks)
 
 ### 🧸 Funko Pops
+- [Market Review: Funko Pop Sasuke #1040 Glow Chase Chalice Collectibles Exclusive Boruto](https://bestdeals4u.trade/post/funko-pop-sasuke-1040-glow-chase-chalice-collectibles-exclusive-boruto)
 - [Funko Pop, Miss Minutes #1063 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-jumbo-miss-minutes-1063-glow-2022-summer-con-exclusive-pop-protector)
-- [Funko Pop, Jin Kazama #176 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-tekken-devil-jin-gamestop-exclusive-176-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 42155 The Batman™ Batcycle Sealed](https://bestdeals4u.trade/post/lego-technic-the-batman-batcycle-42155-sealed-box-retired-set)
-- [LEGO 7673 MAGNA GUARD STARFIGHTER Sealed](https://bestdeals4u.trade/post/7673-magna-guard-starfighter-star-wars-lego-set-complete-factory-sealed-new)
+- [LEGO 6250897 San Francisco Sealed](https://bestdeals4u.trade/post/lego-architecture-21043-san-francisco-skyline-new-factory-sealed-retired)
+- [LEGO 75167 Bounty Hunter Speeder Bike Battle Pack Sealed](https://bestdeals4u.trade/post/lego-star-wars-bounty-hunter-speeder-bike-battle-pack-75167-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
