@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Adley Rutschman 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/adley-rutschman-2020-bowman-chrome-mega-box-auto-blue-refractor-150-psa-10)
-- [Caden Dana 2023 Bowman RC PSA 10](https://bestdeals4u.trade/post/caden-dana-psa-10-2023-1st-bowman-chrome-auto-prospect-green-refractor-99-rc-z4)
+- [Carter Johnson 2025 Bowman Mega Box Bowman Prospect Mega Autographs PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-carter-johnson-1st-auto-blue-mojo-refractor-150-psa-10-pop-1)
+- [Taylor Jungmann 2011 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2011-bowman-draft-gold-refractor-50-taylor-jungmann-bgs-9-5-gem-mint-auto-0ks)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Miss Minutes #1063 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-jumbo-miss-minutes-1063-glow-2022-summer-con-exclusive-pop-protector)
 - [Funko Pop, Jin Kazama #176 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-tekken-devil-jin-gamestop-exclusive-176-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 71756 Hydro Bounty Sealed](https://bestdeals4u.trade/post/lego-ninjago-hydro-bounty-71756-brand-new-sealed-box)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO 42155 The Batman™ Batcycle Sealed](https://bestdeals4u.trade/post/lego-technic-the-batman-batcycle-42155-sealed-box-retired-set)
+- [LEGO 7673 MAGNA GUARD STARFIGHTER Sealed](https://bestdeals4u.trade/post/7673-magna-guard-starfighter-star-wars-lego-set-complete-factory-sealed-new)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
@@ -53,7 +53,6 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### 🎮 Video Games
 - [Market Review: MATO ANOMALIES NEW FACTORY SEALED 2023 Authentic Xbox Series X S One](https://bestdeals4u.trade/post/mato-anomalies-new-factory-sealed-2023-authentic-xbox-series-x-s-one)
-- [F-Zero GX 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/f-zero-gx-nintendo-gamecube-cib-complete-tested-working-great-condition)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
