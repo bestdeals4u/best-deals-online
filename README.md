@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Luke Shliger 2023 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2023-bowman-draft-chrome-luke-shliger-cdals-auto-gold-refractor-50-psa-10)
-- [Denzer Guzman 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-228-499-denzer-guzman-psa-9-mint-auto-03ox-2)
+- [Nate Lowe 2019 Bowman RC PSA 9](https://bestdeals4u.trade/post/nate-lowe-2019-bowman-chrome-1st-autograph-speckle-refractor-auto-299-psa-9-rc)
+- [Jac Caglianone 2025 Bowman PSA 10](https://bestdeals4u.trade/post/2025-bowman-jac-caglianone-chrome-prospects-refractor-auto-499-cpajca-psa-10-9)
 
 ### 🧸 Funko Pops
 - [Market Review: Funko Pop Sasuke #1040 Glow Chase Chalice Collectibles Exclusive Boruto](https://bestdeals4u.trade/post/funko-pop-sasuke-1040-glow-chase-chalice-collectibles-exclusive-boruto)
 - [Funko Pop, Miss Minutes #1063 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-jumbo-miss-minutes-1063-glow-2022-summer-con-exclusive-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 75017 Duel on Geonosis Sealed](https://bestdeals4u.trade/post/lego-star-wars-duel-on-geonosis-75017-new-sealed-amazing-condition-box)
-- [LEGO 76216 Iron Man Armory Sealed](https://bestdeals4u.trade/post/lego-marvel-76216-iron-man-armory-the-infinity-saga-new-factory-sealed-2)
+- [LEGO 75089 Geonosis Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-75089-geonosis-troopers-battle-pack-clone-army-new-sealed-retired)
+- [LEGO 75396 Desert Skiff & Sarlacc Pit Sealed](https://bestdeals4u.trade/post/lego-star-wars-75396-desert-skiff-sarlacc-pit-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [2005 Pokemon Gold Star EX Deoxys Rayquaza Holo #107 - PSA 3 - (13 CERT)](https://bestdeals4u.trade/post/v1-377034080766-0-2005-pokemon-gold-star-ex-deoxys-rayquaza-holo-107-psa-3-13-cert)
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
 - [Super Smash Bros. Melee 2001 for Gamecube Manual included](https://bestdeals4u.trade/post/super-smash-bros-melee-gamecube-2001)
