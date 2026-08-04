@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Matthew Dyer 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-matthew-dyer-chrome-dp-black-refractor-auto-05-75-psa-10-pop-3)
-- [Jung-Hoo Lee 2024 Topps Chrome PSA 10](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-blue-raywave-refractor-auto-150-ra-jhl-psa-10)
+- [Landon Marceaux 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-landon-marceaux-1st-bowman-chrome-auto-black-refractor-75-psa)
+- [River Ryan 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-signed-river-ryan-blue-raywave-refractor-150-rc-auto-psa-coa)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Wanda Maximoff #1216 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wanda-maximoff-1216-entertainment-earth-exclusive-glow-marvel-vinyl)
 - [Funko Pop, Punisher #216 Chase](https://bestdeals4u.trade/post/funko-pop-marvel-daredevil-punisher-216-chase-vinyl-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-disney-villain-icons-set-43227-retired-brand-new-factory-sealed-2)
-- [LEGO 70608 Master Falls Sealed](https://bestdeals4u.trade/post/lego-70608-the-lego-ninjago-movie-master-falls-2017-retired-new-factory-sealed)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-1540-pieces-set-new-sealed-in-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: PSA 10 Wailord Journey Together Illustration Rare #162 2025 JTG Pokemon Gem Mint](https://bestdeals4u.trade/post/psa-10-wailord-journey-together-illustration-rare-162-2025-jtg-pokemon-gem-mint)
