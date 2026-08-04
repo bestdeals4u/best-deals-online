@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Matthew Dyer 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-matthew-dyer-chrome-dp-black-refractor-auto-05-75-psa-10-pop-3)
 - [Jung-Hoo Lee 2024 Topps Chrome PSA 10](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-blue-raywave-refractor-auto-150-ra-jhl-psa-10)
-- [Nate Lowe 2019 Bowman RC PSA 9](https://bestdeals4u.trade/post/nate-lowe-2019-bowman-chrome-1st-autograph-speckle-refractor-auto-299-psa-9-rc)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Wanda Maximoff #1216 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wanda-maximoff-1216-entertainment-earth-exclusive-glow-marvel-vinyl)
 - [Funko Pop, Punisher #216 Chase](https://bestdeals4u.trade/post/funko-pop-marvel-daredevil-punisher-216-chase-vinyl-w-protector)
-- [Funko Pop, ! Vinyl: #203 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-wwe-john-cena-walmart-exclusive-203-protector)
 
 ### 🧱 LEGO
-- [LEGO 40690 FC Barcelona Celebration Sealed](https://bestdeals4u.trade/post/lego-40690-tribute-to-jules-verne-s-books-gwp-limited-edition-new-sealed-box)
-- [LEGO 75880 McLaren 720S Sealed](https://bestdeals4u.trade/post/new-in-sealed-box-lego-speed-champions-mclaren-720s-retired-set-75880-mclaren)
+- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-disney-villain-icons-set-43227-retired-brand-new-factory-sealed-2)
+- [LEGO 70608 Master Falls Sealed](https://bestdeals4u.trade/post/lego-70608-the-lego-ninjago-movie-master-falls-2017-retired-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: PSA 10 Wailord Journey Together Illustration Rare #162 2025 JTG Pokemon Gem Mint](https://bestdeals4u.trade/post/psa-10-wailord-journey-together-illustration-rare-162-2025-jtg-pokemon-gem-mint)
