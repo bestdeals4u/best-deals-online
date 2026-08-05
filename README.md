@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Wanda Maximoff #1216 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wanda-maximoff-1216-entertainment-earth-exclusive-glow-marvel-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO 21109 Exo Suit Sealed](https://bestdeals4u.trade/post/lego-ideas-cuusoo-007-21109-exo-suit-set-new-in-factory-sealed-box-retired)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
