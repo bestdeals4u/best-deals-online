@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Landon Marceaux 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-landon-marceaux-1st-bowman-chrome-auto-black-refractor-75-psa)
-- [River Ryan 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-signed-river-ryan-blue-raywave-refractor-150-rc-auto-psa-coa)
+- [Cody Freeman 2025 Bowman PSA 9](https://bestdeals4u.trade/post/cody-freeman-2025-bowman-cpacfr-orange-shimmer-refractor-auto-24-25-psa-9)
+- [Jordan Walker 2023 Bowman's Best RC PSA 10](https://bestdeals4u.trade/post/2023-bowman-s-best-jordan-walker-gold-lava-refractor-auto-28-75-rc-psa-10-gem)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Trix Rabbit #10 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-ad-icons-trix-rabbit-10-flocked-limited-edition-funko-shop-exclusive)
 - [Funko Pop, Wanda Maximoff #1216 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wanda-maximoff-1216-entertainment-earth-exclusive-glow-marvel-vinyl)
-- [Funko Pop, Punisher #216 Chase](https://bestdeals4u.trade/post/funko-pop-marvel-daredevil-punisher-216-chase-vinyl-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
-- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-1540-pieces-set-new-sealed-in-box)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
 
 ### 🃏 Pokémon Cards
-- [Market Review: PSA 10 Wailord Journey Together Illustration Rare #162 2025 JTG Pokemon Gem Mint](https://bestdeals4u.trade/post/psa-10-wailord-journey-together-illustration-rare-162-2025-jtg-pokemon-gem-mint)
-- [2005 Pokemon Gold Star EX Deoxys Rayquaza Holo #107 - PSA 3 - (13 CERT)](https://bestdeals4u.trade/post/v1-377034080766-0-2005-pokemon-gold-star-ex-deoxys-rayquaza-holo-107-psa-3-13-cert)
-
-### 🎮 Video Games
-- [Super Smash Bros. Melee 2001 for Gamecube Manual included](https://bestdeals4u.trade/post/super-smash-bros-melee-gamecube-2001)
+- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
