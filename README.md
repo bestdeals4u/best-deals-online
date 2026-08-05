@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Welbyn Francisca 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-welbyn-francisca-prospect-purple-refractor-auto-250-psa-10)
 - [Cody Freeman 2025 Bowman PSA 9](https://bestdeals4u.trade/post/cody-freeman-2025-bowman-cpacfr-orange-shimmer-refractor-auto-24-25-psa-9)
-- [Jordan Walker 2023 Bowman's Best RC PSA 10](https://bestdeals4u.trade/post/2023-bowman-s-best-jordan-walker-gold-lava-refractor-auto-28-75-rc-psa-10-gem)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Brutus, Brutus (Call of Duty) #71 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-call-of-duty-brutus-71-gamestop-exclusive-vaulted)
 - [Funko Pop, Trix Rabbit #10 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-ad-icons-trix-rabbit-10-flocked-limited-edition-funko-shop-exclusive)
-- [Funko Pop, Wanda Maximoff #1216 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wanda-maximoff-1216-entertainment-earth-exclusive-glow-marvel-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 21109 Exo Suit Sealed](https://bestdeals4u.trade/post/lego-ideas-cuusoo-007-21109-exo-suit-set-new-in-factory-sealed-box-retired)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 75255 Yoda Sealed](https://bestdeals4u.trade/post/lego-star-wars-yoda-75255-brand-new-factory-sealed-retired-set-rare)
+- [LEGO 10264 Corner Garage Sealed](https://bestdeals4u.trade/post/lego-10264-corner-garage-retired-modular-new-box-corner-set-sealed-city-building)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
 - [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+
+### 🎮 Video Games
+- [Sony Fat Ps2 SCPH-30001 Console Power Cord And Memory Card for Sony PlayStation 2](https://bestdeals4u.trade/post/sony-playstation-2-fat-ps2-scph-30001-console-power-cord-and-memory-card-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
