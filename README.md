@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Lenyn Sosa 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-lenyn-sosa-1st-bowman-yellow-refractor-auto-gem-mint-psa-10-cpa-ls)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Derpy #01](https://bestdeals4u.trade/post/funko-pop-vinyl-my-little-pony-derpy-01-vaulted-protector)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Funko Pop, Megazord #497 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-television-megazord-497-gitd-entertainment-earth-exclusive)
+- [SCUD Funko Pop 4835 Toy Story Dog: Market Review](https://bestdeals4u.trade/post/scud-funko-pop-1-4835-pcs-toy-story-pixar-disney-dog)
 
 ### 🧱 LEGO
-- [LEGO 76391 Hogwarts Icons - Collectors' Edition Sealed](https://bestdeals4u.trade/post/lego-76391-hogwarts-icons-collectors-edition-harry-potter-hedwig-new-sealed)
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
+- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
+- [LEGO 10249 Winter Toy Shop Sealed](https://bestdeals4u.trade/post/lego-10249-winter-village-toy-shop-creator-expert-retired-rare-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
