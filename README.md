@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bryan Ramos 2021 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/bryan-ramos-2021-1st-bowman-chrome-auto-orange-wave-refractor-25-psa-9-rc-p6-2)
-- [Thinking About Buying Topps Chrome NPB Nippon Baseball Aqua Refractor /199 Daika Asama Card PWE? Read This First](https://bestdeals4u.trade/post/2021-topps-chrome-npb-nippon-baseball-aqua-refractor-199-daika-asama-card-pwe)
+- [Kyle Stowers 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-kyle-stowers-blue-refractor-rookie-auto-150-psa-10-10-pop-2)
+- [Lenyn Sosa 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-lenyn-sosa-1st-bowman-yellow-refractor-auto-gem-mint-psa-10-cpa-ls)
 
 ### 🧸 Funko Pops
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Funko Pop, Slayer #157](https://bestdeals4u.trade/post/funko-pop-rocks-slayer-kerry-king-157-vinyl-figure-mint-box-vaulted)
+- [Funko Pop, Derpy #01](https://bestdeals4u.trade/post/funko-pop-vinyl-my-little-pony-derpy-01-vaulted-protector)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO 21326 Winnie the Pooh Sealed](https://bestdeals4u.trade/post/lego-21326-winnie-the-pooh-new-sealed-piglet-tigger-eeyore-disney-nib-retired)
-- [LEGO 40186 Year of the Pig Sealed](https://bestdeals4u.trade/post/new-sealed-lego-40186-year-of-the-pig-retired-2019-chinese-new-year)
+- [LEGO 76391 Hogwarts Icons - Collectors' Edition Sealed](https://bestdeals4u.trade/post/lego-76391-hogwarts-icons-collectors-edition-harry-potter-hedwig-new-sealed)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
+- [Is Shining Steelix PSA 5 Priced Fairly at $361.08?](https://bestdeals4u.trade/post/psa-5-shining-steelix-112-105-neo-destiny-pokemon-description)
 
 ### 🎮 Video Games
-- [Sony Fat Ps2 SCPH-30001 Console Power Cord And Memory Card for Sony PlayStation 2](https://bestdeals4u.trade/post/sony-playstation-2-fat-ps2-scph-30001-console-power-cord-and-memory-card-tested)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
