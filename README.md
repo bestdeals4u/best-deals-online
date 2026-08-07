@@ -36,12 +36,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Nick Montgomery 2023 2024 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-nick-montgomery-auto-psa-9-green-lava-99-refractor-braves-rc)
 - [Ethan Salas 2024 Bowman Sterling RC PSA 9](https://bestdeals4u.trade/post/topps-2024-bowman-sterling-sterlingtek-rookie-auto-ethan-salas-50-psa-9-padres)
-- [Christian Moore 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-draft-christian-moore-cpa-cm-chrome-auto-refractor-499-psa-10)
 
 ### 🧸 Funko Pops
+- [Fallout Cooper Howard Chase Funko Pop 1767 Neutral Overview](https://bestdeals4u.trade/post/fallout-cooper-howard-chase-funko-pop-1767)
 - [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
-- [Funko Pop, Moss Man #568 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-motu-568-moss-man-flocked-toys-r-us-exclusive-pop-protector-read)
 
 ### 🧱 LEGO
 - [LEGO 9476 The Orc Forge Sealed](https://bestdeals4u.trade/post/new-sealed-rare-lego-9476-the-lord-of-the-rings-the-orc-forge-retired)
