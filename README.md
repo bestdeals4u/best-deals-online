@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Nick Montgomery 2023 2024 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-draft-nick-montgomery-auto-psa-9-green-lava-99-refractor-braves-rc)
-- [Ethan Salas 2024 Bowman Sterling RC PSA 9](https://bestdeals4u.trade/post/topps-2024-bowman-sterling-sterlingtek-rookie-auto-ethan-salas-50-psa-9-padres)
+- [Emaarion Boyd 2023 Bowman PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-emaarion-boyd-cpa-eb-pearl-refractor-auto-10-psa-9-marlins)
+- [Joshua Baez 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/joshua-baez-2022-bowman-chrome-mega-box-orange-mojo-refractor-auto-25-psa-10)
 
 ### 🧸 Funko Pops
 - [Fallout Cooper Howard Chase Funko Pop 1767 Neutral Overview](https://bestdeals4u.trade/post/fallout-cooper-howard-chase-funko-pop-1767)
 - [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
 
 ### 🧱 LEGO
-- [LEGO 10212 Imperial Shuttle Sealed](https://bestdeals4u.trade/post/lego-10212-star-wars-ucs-imperial-shuttle-new-sealed-2010-rare-retired)
-- [LEGO 9476 The Orc Forge Sealed](https://bestdeals4u.trade/post/new-sealed-rare-lego-9476-the-lord-of-the-rings-the-orc-forge-retired)
+- [LEGO 75183 Darth Vader Transformation Sealed](https://bestdeals4u.trade/post/lego-star-wars-set-75183-darth-vader-transformation-new-sealed-some-wear-on-box)
+- [LEGO 75044 Droid Tri-Fighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-droid-tri-fighter-75044-brand-new-sealed-set)
 
 ### 🃏 Pokémon Cards
 - [Pokémon Base Set Charizard Holo PSA 6 EX-MT – Original WOTC Classic Price Check - Worth It or Not?](https://bestdeals4u.trade/post/1999-pok-mon-base-set-charizard-holo-4-psa-6-ex-mt-original-wotc-classic)
