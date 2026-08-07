@@ -36,23 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Ethan Salas 2024 Bowman Sterling RC PSA 9](https://bestdeals4u.trade/post/topps-2024-bowman-sterling-sterlingtek-rookie-auto-ethan-salas-50-psa-9-padres)
 - [Christian Moore 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-draft-christian-moore-cpa-cm-chrome-auto-refractor-499-psa-10)
-- [Victor Hurtado 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/victor-hurtado-2024-1st-bowman-chrome-auto-blue-refractor-147-150-psa-9-rc-t6)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
 - [Funko Pop, Moss Man #568 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-motu-568-moss-man-flocked-toys-r-us-exclusive-pop-protector-read)
 
 ### 🧱 LEGO
-- [LEGO 75280 501st Legion Clone Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-501st-legion-clone-troopers-battle-pack-75280-sealed-new)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-new-sealed-nib-retired-set)
+- [LEGO 9476 The Orc Forge Sealed](https://bestdeals4u.trade/post/new-sealed-rare-lego-9476-the-lord-of-the-rings-the-orc-forge-retired)
+- [LEGO 40580 Blacktron Cruiser Sealed](https://bestdeals4u.trade/post/lego-icons-blacktron-cruiser-40580-new-in-sealed-box-gwp-rare-retired)
 
 ### 🃏 Pokémon Cards
 - [Pokémon Base Set Charizard Holo PSA 6 EX-MT – Original WOTC Classic Price Check - Worth It or Not?](https://bestdeals4u.trade/post/1999-pok-mon-base-set-charizard-holo-4-psa-6-ex-mt-original-wotc-classic)
 
 ### 🎮 Video Games
+- [Prismatic Evolutions Super Premium Collection Price Check - Worth It or Not?](https://bestdeals4u.trade/post/prismatic-evolutions-super-premium-collection-sealed)
 - [Tecmo Bowl for Nintendo Game Boy Complete](https://bestdeals4u.trade/post/tecmo-bowl-nintendo-game-boy-gameboy-complete-in-box-cib-tested)
-- [Call of Duty: Modern Warfare 2 2009 Microsoft Xbox 360 Sealed VGA 85](https://bestdeals4u.trade/post/call-of-duty-modern-warfare-2-xbox-360-2009-vga-85-nm-sealed-not-psa-wata)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
