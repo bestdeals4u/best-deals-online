@@ -36,23 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kyle Stowers 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-kyle-stowers-blue-refractor-rookie-auto-150-psa-10-10-pop-2)
-- [Lenyn Sosa 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-lenyn-sosa-1st-bowman-yellow-refractor-auto-gem-mint-psa-10-cpa-ls)
+- [Christian Moore 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-draft-christian-moore-cpa-cm-chrome-auto-refractor-499-psa-10)
+- [Victor Hurtado 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/victor-hurtado-2024-1st-bowman-chrome-auto-blue-refractor-147-150-psa-9-rc-t6)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Megazord #497 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-television-megazord-497-gitd-entertainment-earth-exclusive)
-- [SCUD Funko Pop 4835 Toy Story Dog: Market Review](https://bestdeals4u.trade/post/scud-funko-pop-1-4835-pcs-toy-story-pixar-disney-dog)
+- [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
+- [Funko Pop, Moss Man #568 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-motu-568-moss-man-flocked-toys-r-us-exclusive-pop-protector-read)
 
 ### 🧱 LEGO
-- [LEGO 40483 Luke Skywalker’s Lightsaber Sealed](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-s-lightsaber-40483-new-in-sealed-box)
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-brand-new-factory-sealed-retired-set-rare)
+- [LEGO 75280 501st Legion Clone Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-501st-legion-clone-troopers-battle-pack-75280-sealed-new)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-new-sealed-nib-retired-set)
 
 ### 🃏 Pokémon Cards
-- [Lugia Japan Edition PSA10 at $440.92 - Buy Now or Wait?](https://bestdeals4u.trade/post/pokemon-lugia-promo-card-psa10-japan-edition-2018-official)
+- [Pokémon Base Set Charizard Holo PSA 6 EX-MT – Original WOTC Classic Price Check - Worth It or Not?](https://bestdeals4u.trade/post/1999-pok-mon-base-set-charizard-holo-4-psa-6-ex-mt-original-wotc-classic)
 
 ### 🎮 Video Games
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [Tecmo Bowl for Nintendo Game Boy Complete](https://bestdeals4u.trade/post/tecmo-bowl-nintendo-game-boy-gameboy-complete-in-box-cib-tested)
+- [Call of Duty: Modern Warfare 2 2009 Microsoft Xbox 360 Sealed VGA 85](https://bestdeals4u.trade/post/call-of-duty-modern-warfare-2-xbox-360-2009-vga-85-nm-sealed-not-psa-wata)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
