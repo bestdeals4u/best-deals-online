@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Brady Singer 2018 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2018-bowman-draft-chrome-brady-singer-blue-wave-refractor-auto-150-psa-9)
 - [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Aang #1439 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-nickelodeon-floating-aang-glow-amazon-exclusive-1439)
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 76161 1989 Batwing Sealed](https://bestdeals4u.trade/post/lego-dc-batman-1989-batwing-76161-retired-new-sealed-box)
-- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 75320 Snowtrooper Battle Pack Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-star-wars-snowtrooper-battle-pack-75320)
 
 ### 🎮 Video Games
 - [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
