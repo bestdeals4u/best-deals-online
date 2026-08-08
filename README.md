@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Charlie Condon 2025 Bowman PSA 9](https://bestdeals4u.trade/post/2025-bowman-baseball-charlie-condon-1st-refractor-auto-499-psa-9-rockies)
 - [Brady Singer 2018 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2018-bowman-draft-chrome-brady-singer-blue-wave-refractor-auto-150-psa-9)
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Tails #978 Exclusive](https://bestdeals4u.trade/post/tails-funko-pop-games-978-specialty-series-exclusive-in-protector)
 - [Funko Pop, Aang #1439 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-nickelodeon-floating-aang-glow-amazon-exclusive-1439)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
-- [LEGO 75320 Snowtrooper Battle Pack Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-star-wars-snowtrooper-battle-pack-75320)
+- [LEGO 75387 Boarding the Tantive IV Sealed](https://bestdeals4u.trade/post/lego-star-wars-boarding-the-tantive-iv-75387-retired-set-new-sealed)
+- [Market Review: LEGO 76956 Jurassic Park T. rex Breakout BRAND NEW SEALED](https://bestdeals4u.trade/post/lego-76956-jurassic-park-t-rex-breakout-brand-new-sealed)
 
 ### 🎮 Video Games
 - [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
