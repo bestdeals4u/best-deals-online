@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 - [Mason Miller 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-mason-miller-blue-wave-refractor-auto-150-psa)
-- [Miguel Vargas 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/miguel-vargas-2020-bowman-chrome-true-blue-refractor-auto-140-150-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
-- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
+- [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
+- [Thinking About Buying Animation Glow Chase Tokyo Ghoul Hinami Fueguchi With Funko Pop #1546? Read This First](https://bestdeals4u.trade/post/funko-pop-animation-glow-chase-tokyo-ghoul-hinami-fueguchi-1546-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 75938 T. rex vs Dino-Mech Battle Sealed](https://bestdeals4u.trade/post/lego-jurassic-world-t-rex-vs-dino-mech-battle-75938-retired-new-sealed)
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
+- [LEGO 75533 Boba Fett Sealed](https://bestdeals4u.trade/post/lego-75533-star-wars-boba-fett-new-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
