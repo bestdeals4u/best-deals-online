@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
-- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
+- [Mason Miller 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-mason-miller-blue-wave-refractor-auto-150-psa)
+- [Miguel Vargas 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/miguel-vargas-2020-bowman-chrome-true-blue-refractor-auto-140-150-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
 - [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
-- [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
 
 ### 🧱 LEGO
-- [LEGO 10274 Ghostbusters Ecto-1 Sealed](https://bestdeals4u.trade/post/lego-icons-ghostbusters-ecto-1-10274-2352-pcs-retired-sealed-new)
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 75938 T. rex vs Dino-Mech Battle Sealed](https://bestdeals4u.trade/post/lego-jurassic-world-t-rex-vs-dino-mech-battle-75938-retired-new-sealed)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
 
 ### 🃏 Pokémon Cards
 - [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
