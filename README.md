@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Zack Gelof 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2024-zack-gelof-topps-chrome-blue-rookie-auto-raywave-refractor-auto-150-psa-10)
 - [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
-- [Mason Miller 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-mason-miller-blue-wave-refractor-auto-150-psa)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
 - [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
-- [Thinking About Buying Animation Glow Chase Tokyo Ghoul Hinami Fueguchi With Funko Pop #1546? Read This First](https://bestdeals4u.trade/post/funko-pop-animation-glow-chase-tokyo-ghoul-hinami-fueguchi-1546-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
-- [LEGO 75533 Boba Fett Sealed](https://bestdeals4u.trade/post/lego-75533-star-wars-boba-fett-new-sealed-box)
+- [LEGO 10229 Winter Village Cottage Sealed](https://bestdeals4u.trade/post/lego-10229-winter-village-cottage-new-sealed-nib-retired-christmas-vintage)
+- [LEGO 60101 Airport Cargo Plane Sealed](https://bestdeals4u.trade/post/lego-60101-city-airport-cargo-plane-157-pieces-2-mini-figures-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [SHADOWLESS Machamp Base Set 1st Edition 8/102 Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/shadowless-machamp-base-set-1st-edition-8-102-holo-rare-pokemon-card)
 - [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
 - [Donkey Kong Country 3: Dixie Kong's Double Trouble! 1996 for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-3-snes-super-nintendo-complete-in-box)
