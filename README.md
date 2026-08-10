@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Oscar Taveras 2012 Bowman BGS 9.5](https://bestdeals4u.trade/post/2012-bowman-chrome-prospects-blue-refractor-150-oscar-taveras-bgs-9-5-auto-h8b)
 - [Diego Velasquez 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/diego-velasquez-2022-1st-bowman-chrome-auto-gold-refractor-50-psa-9-giants-u6-3)
-- [David Sandlin 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/david-sandlin-1st-bowman-orange-wave-refractor-auto-25-cpadsa-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 - [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 40598 Gringotts Vault Sealed](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-vault-40598-limited-edition-new-sealed-box)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 76285 Spider-Man's Mask Sealed](https://bestdeals4u.trade/post/new-sealed-lego-marvel-super-heroes-76285-spider-man-s-mask-helmet-retired-set)
+- [LEGO 40788 Friendly Snails Sealed](https://bestdeals4u.trade/post/lego-ideas-40788-friendly-snails-exclusive-gwp-new-in-box-retired-us-stock)
 
 ### 🃏 Pokémon Cards
 - [SHADOWLESS Machamp Base Set 1st Edition 8/102 Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/shadowless-machamp-base-set-1st-edition-8-102-holo-rare-pokemon-card)
