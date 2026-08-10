@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kevin Smith 2017 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2017-bowman-draft-gold-wave-refractor-45-50-kevin-smith-psa-10-gem-mt-auto-7rd)
-- [Leo De Vries 2024 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-leo-de-vries-purple-mojo-refractor-auto-199-psa-9-bma-ld)
+- [Diego Velasquez 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/diego-velasquez-2022-1st-bowman-chrome-auto-gold-refractor-50-psa-9-giants-u6-3)
+- [David Sandlin 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/david-sandlin-1st-bowman-orange-wave-refractor-auto-25-cpadsa-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 - [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
-- [Funko Pop, She-Ra #38 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-masters-of-the-universe-she-ra-38-glow-exclusive-in-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 40598 Gringotts Vault Sealed](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-vault-40598-limited-edition-new-sealed-box)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
 - [SHADOWLESS Machamp Base Set 1st Edition 8/102 Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/shadowless-machamp-base-set-1st-edition-8-102-holo-rare-pokemon-card)
-- [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
