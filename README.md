@@ -36,23 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Xavier Edwards 2020 Bowman PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-xavier-edwards-atomic-refractor-100-auto-gem-mint-psa-10)
-- [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cooper-pratt-chrome-1st-purple-refractor-auto-250-psa-10-autograph)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Luis Severino 2016 Bowman RC BGS 9](https://bestdeals4u.trade/post/2016-bowman-chrome-rookie-blue-refractor-luis-severino-bgs-9-mint-auto-read-1h1)
 
 ### 🧸 Funko Pops
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Funko Pop, Olaf #53 Exclusive](https://bestdeals4u.trade/post/funko-pop-peanuts-olaf-53-target-exclusive-w-protector-vinyl-figure-new)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 71754 Water Dragon Sealed](https://bestdeals4u.trade/post/lego-ninjago-water-dragon-71754-retired-new-sealed)
-- [LEGO 75094 Imperial Shuttle Tydirium Sealed](https://bestdeals4u.trade/post/lego-star-wars-75094-imperial-shuttle-tydirium-retired-937pcs-new-sealed-rare)
+- [Market Review: LEGO Harry Potter: Hogwarts Gryffindor Dorms (40452) ~New / Factory Sealed~](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-gryffindor-dorms-40452-new-factory-sealed)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
 - [Pokémon Neo Premium File 2 Umbreon Promo Regular Japanese PSA 9 2000 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pok-mon-neo-premium-file-2-umbreon-197-promo-regular-japanese-psa-9-2000)
 
 ### 🎮 Video Games
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 - [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
-- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
