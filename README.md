@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cooper-pratt-chrome-1st-purple-refractor-auto-250-psa-10-autograph)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
-- [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Funko Pop, Olaf #53 Exclusive](https://bestdeals4u.trade/post/funko-pop-peanuts-olaf-53-target-exclusive-w-protector-vinyl-figure-new)
 
 ### 🧱 LEGO
-- [LEGO 10218 Pet Shop Sealed](https://bestdeals4u.trade/post/lego-10218-creator-expert-pet-shop-modular-building-new-sealed-nib-retired-201)
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 71754 Water Dragon Sealed](https://bestdeals4u.trade/post/lego-ninjago-water-dragon-71754-retired-new-sealed)
+- [LEGO 75094 Imperial Shuttle Tydirium Sealed](https://bestdeals4u.trade/post/lego-star-wars-75094-imperial-shuttle-tydirium-retired-937pcs-new-sealed-rare)
 
 ### 🃏 Pokémon Cards
 - [Pokémon Neo Premium File 2 Umbreon Promo Regular Japanese PSA 9 2000 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pok-mon-neo-premium-file-2-umbreon-197-promo-regular-japanese-psa-9-2000)
