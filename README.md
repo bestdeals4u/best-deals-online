@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cooper-pratt-chrome-1st-purple-refractor-auto-250-psa-10-autograph)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
 - [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
-- [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 
 ### 🧱 LEGO
-- [LEGO 43205 Ultimate Adventure Castle Sealed](https://bestdeals4u.trade/post/lego-disney-ultimate-adventure-castle-43205-new-sealed-retired)
-- [LEGO 8152 Police Car Sealed](https://bestdeals4u.trade/post/new-lego-8152-speed-racers-police-car-helicopter-sealed-box)
+- [LEGO 10218 Pet Shop Sealed](https://bestdeals4u.trade/post/lego-10218-creator-expert-pet-shop-modular-building-new-sealed-nib-retired-201)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Pokémon Neo Premium File 2 Umbreon Promo Regular Japanese PSA 9 2000 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pok-mon-neo-premium-file-2-umbreon-197-promo-regular-japanese-psa-9-2000)
