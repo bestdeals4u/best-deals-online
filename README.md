@@ -36,19 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Leandro Arias 2023 Bowman PSA 9](https://bestdeals4u.trade/post/leandro-arias-psa-9-2023-1st-bowman-chrome-auto-sapphire-green-refractor-50-z1-2)
-- [Christopher Suero 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/christopher-suero-mets-2025-bowman-chrome-refractor-auto-499-psa-10)
+- [Xavier Edwards 2020 Bowman PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-xavier-edwards-atomic-refractor-100-auto-gem-mint-psa-10)
+- [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cooper-pratt-chrome-1st-purple-refractor-auto-250-psa-10-autograph)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
-- [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
+- [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
+- [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 
 ### 🧱 LEGO
-- [LEGO 76266 Endgame Final Battle Sealed](https://bestdeals4u.trade/post/lego-marvel-super-heroes-avengers-endgame-final-battle-76266-new-sealed)
-- [LEGO 40591 Death Star II Sealed](https://bestdeals4u.trade/post/lego-star-wars-death-star-ii-40591-gwp-new-sealed-2)
+- [LEGO 43205 Ultimate Adventure Castle Sealed](https://bestdeals4u.trade/post/lego-disney-ultimate-adventure-castle-43205-new-sealed-retired)
+- [LEGO 8152 Police Car Sealed](https://bestdeals4u.trade/post/new-lego-8152-speed-racers-police-car-helicopter-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [SHADOWLESS Machamp Base Set 1st Edition 8/102 Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/shadowless-machamp-base-set-1st-edition-8-102-holo-rare-pokemon-card)
+- [Pokémon Neo Premium File 2 Umbreon Promo Regular Japanese PSA 9 2000 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pok-mon-neo-premium-file-2-umbreon-197-promo-regular-japanese-psa-9-2000)
+
+### 🎮 Video Games
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
+- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
