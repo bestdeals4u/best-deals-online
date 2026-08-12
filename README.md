@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
+- [LEGO 21180 The Guardian Battle Sealed](https://bestdeals4u.trade/post/lego-minecraft-the-guardian-battle-21180-new-sealed-box-damage)
 - [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 31077 Modular Sweet Surprises Sealed](https://bestdeals4u.trade/post/lego-31077-creator-3-in-1-modular-sweet-surprises-new-sealed-retired-town)
 
 ### 🃏 Pokémon Cards
 - [Mew Ivysaur Illustration Gem PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-ivysaur-illustration-rare-card-167-165-psa-10-gem-mint)
