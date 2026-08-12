@@ -36,7 +36,7 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Is This Topps Tom Seaver SGC 5 EX All-Star Rookie a Good Deal Right Now?](https://bestdeals4u.trade/post/1968-topps-tom-seaver-sgc-5-ex-all-star-rookie-45-baseball-card)
+- [Kyle Tucker 2019 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2019-topps-chrome-kyle-tucker-rookie-auto-ra-kt-refractor-499-rc-psa-9)
 - [Kenny Fenelon 2025 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/kenny-fenelon-psa-10-2025-1st-bowman-chrome-auto-orange-wave-refractor-25-rc-u6-3)
 
 ### 🧸 Funko Pops
@@ -44,15 +44,14 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 21180 The Guardian Battle Sealed](https://bestdeals4u.trade/post/lego-minecraft-the-guardian-battle-21180-new-sealed-box-damage)
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 75276 Stormtrooper Helmet Sealed](https://bestdeals4u.trade/post/new-in-factory-sealed-box-lego-star-wars-75276-stormtrooper-helmet-retired)
+- [LEGO 40625 Llama Sealed](https://bestdeals4u.trade/post/lego-40625-2023-brickheadz-minecraft-llama-200-retired-set-new-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Mew Ivysaur Illustration Gem PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-ivysaur-illustration-rare-card-167-165-psa-10-gem-mint)
 
 ### 🎮 Video Games
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
