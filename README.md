@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Kyle Tucker 2019 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2019-topps-chrome-kyle-tucker-rookie-auto-ra-kt-refractor-499-rc-psa-9)
-- [Kenny Fenelon 2025 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/kenny-fenelon-psa-10-2025-1st-bowman-chrome-auto-orange-wave-refractor-25-rc-u6-3)
+- [Dylan Crews 2025 Topps RC PSA 10](https://bestdeals4u.trade/post/dylan-crews-2025-topps-chrome-sapphire-selections-rookie-auto-orange-25-psa-10)
+- [Topps Turkey Red Justin Verlander Graded PSA 6 Rookie - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/2005-topps-turkey-red-justin-verlander-272-graded-psa-6-rookie-baseball-card)
 
 ### 🧸 Funko Pops
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 75276 Stormtrooper Helmet Sealed](https://bestdeals4u.trade/post/new-in-factory-sealed-box-lego-star-wars-75276-stormtrooper-helmet-retired)
-- [LEGO 40625 Llama Sealed](https://bestdeals4u.trade/post/lego-40625-2023-brickheadz-minecraft-llama-200-retired-set-new-sealed-box)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 21108 Ghostbusters Ecto-1 Sealed](https://bestdeals4u.trade/post/lego-ideas-ghostbusters-ecto-1-21108-retired-new-factory-sealed-2)
 
 ### 🃏 Pokémon Cards
 - [Mew Ivysaur Illustration Gem PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-ivysaur-illustration-rare-card-167-165-psa-10-gem-mint)
