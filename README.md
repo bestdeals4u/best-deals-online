@@ -36,18 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Dylan Crews 2025 Topps RC PSA 10](https://bestdeals4u.trade/post/dylan-crews-2025-topps-chrome-sapphire-selections-rookie-auto-orange-25-psa-10)
-- [Topps Turkey Red Justin Verlander Graded PSA 6 Rookie - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/2005-topps-turkey-red-justin-verlander-272-graded-psa-6-rookie-baseball-card)
+- [Jacob Amaya 2020 Bowman PSA 10](https://bestdeals4u.trade/post/bowman-2020-chrome-jacob-amaya-cpa-ja-purple-refractor-auto-250-psa-10-dodgers)
+- [Rayner Arias 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-prospect-refractor-499-rayner-arias-psa-10-gem-mt-auto-yj0-2)
 
 ### 🧸 Funko Pops
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
-- [LEGO 21108 Ghostbusters Ecto-1 Sealed](https://bestdeals4u.trade/post/lego-ideas-ghostbusters-ecto-1-21108-retired-new-factory-sealed-2)
+- [LEGO 76223 Nano Gauntlet Sealed](https://bestdeals4u.trade/post/lego-marvel-nano-gauntlet-76223-retired-set-new-sealed-box-read-description)
+- [LEGO 40579 Eiffel's Apartment Sealed](https://bestdeals4u.trade/post/lego-icons-eiffel-s-apartment-40579-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
+- [PSA 10 Bulbasaur Illustration 143/142 - 2024 Pokémon Sv06 Stellar Crown Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-10-bulbasaur-illustration-rare-143-142-2024-pok-mon-sv06-stellar-crown)
 - [Mew Ivysaur Illustration Gem PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-ivysaur-illustration-rare-card-167-165-psa-10-gem-mint)
 
 ### 🎮 Video Games
