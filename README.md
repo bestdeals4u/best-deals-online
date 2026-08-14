@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Lenyn Sosa 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-lenyn-sosa-1st-bowman-yellow-refractor-auto-gem-mint-psa-10-cpa-ls)
-- [Jackson Merrill 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/jackson-merrill-2022-bowman-chrome-refractor-auto-499-psa-10)
+- [Roger Clemens 2024 Stadium Club RC PSA 9](https://bestdeals4u.trade/post/roger-clemens-2024-topps-stadium-club-rc-red-refractor-chrome-auto-25-psa-9)
+- [Brandon Lowe 2019 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/brandon-lowe-2019-topps-chrome-sapphire-ed-rookie-auto-bl-psa-gem-mt-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-f2)
 
 ### 🧱 LEGO
-- [LEGO 75281 Anakin's Jedi Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75281-anakin-s-jedi-interceptor-brand-new-sealed-retired-rare-3)
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
+- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
 
 ### 🃏 Pokémon Cards
-- [Charizard Series Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-10-charizard-ex-pokemon-ex-series-ultra-rare-pokemon-card)
-- [PSA 10 Bulbasaur Illustration 143/142 - 2024 Pokémon Sv06 Stellar Crown Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-10-bulbasaur-illustration-rare-143-142-2024-pok-mon-sv06-stellar-crown)
+- [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint-3)
+- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
 
 ### 🎮 Video Games
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-gamecube-complete)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
