@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
-- [Noelvi Marte 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-upd-noelvi-marte-rookie-true-gold-auto-50-psa-mint-9-reds-rc)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Jasson Dominguez 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-jasson-dominguez-roy-jd-roy-favorites-auto-rc-psa-10-150-green)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Edgar Allan Poe #21 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-edgar-allan-poe-21-glow-in-dark-exclusive-figure-barnes-and-noble)
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO Icons Alpine Lodge 10325 Sealed](https://bestdeals4u.trade/post/lego-10325-icons-alpine-lodge-new-sealed-retired-free-shipping)
-- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
+- [LEGO 76100 Royal Talon Fighter Attack Sealed](https://bestdeals4u.trade/post/lego-marvel-royal-talon-fighter-attack-76100-new-sealed)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/nib-new-sealed-lego-ideas-the-office-tv-show-retired-21336-dunder-mifflin)
 
 ### 🃏 Pokémon Cards
 - [Asc Ascended Heroes Illustration PSA 10 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2026-pokemon-asc-en-ascended-heroes-illustration-rare-246-mawile-psa-10)
 - [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
-- [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
-- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
