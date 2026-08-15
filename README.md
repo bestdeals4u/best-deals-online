@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
-- [Christian Moore 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-draft-christian-moore-cpa-cm-chrome-auto-refractor-499-psa-10)
+- [Roger Clemens 2024 Stadium Club RC PSA 9](https://bestdeals4u.trade/post/roger-clemens-2024-topps-stadium-club-rc-red-refractor-chrome-auto-25-psa-9)
+- [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
+- [Funko Pop, Stannis Baratheon #41](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-stannis-baratheon-41-w-protector-vaulted)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
-- [LEGO 76248 The Avengers Quinjet Sealed](https://bestdeals4u.trade/post/lego-76248-marvel-avengers-quinjet-new-sealed-retired-loki-thor-iron-man-hero)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
+- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Charizard Series Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-10-charizard-ex-pokemon-ex-series-ultra-rare-pokemon-card)
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
+- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
+- [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
 
 ### 🎮 Video Games
-- [Tecmo Bowl for Nintendo Game Boy Complete](https://bestdeals4u.trade/post/tecmo-bowl-nintendo-game-boy-gameboy-complete-in-box-cib-tested)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
