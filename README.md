@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Jasson Dominguez 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-jasson-dominguez-roy-jd-roy-favorites-auto-rc-psa-10-150-green)
+- [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
+- [Christian Moore 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-draft-christian-moore-cpa-cm-chrome-auto-refractor-499-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Edgar Allan Poe #21 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-edgar-allan-poe-21-glow-in-dark-exclusive-figure-barnes-and-noble)
-- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
 
 ### 🧱 LEGO
-- [LEGO 76100 Royal Talon Fighter Attack Sealed](https://bestdeals4u.trade/post/lego-marvel-royal-talon-fighter-attack-76100-new-sealed)
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/nib-new-sealed-lego-ideas-the-office-tv-show-retired-21336-dunder-mifflin)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
+- [LEGO 76248 The Avengers Quinjet Sealed](https://bestdeals4u.trade/post/lego-76248-marvel-avengers-quinjet-new-sealed-retired-loki-thor-iron-man-hero)
 
 ### 🃏 Pokémon Cards
-- [Asc Ascended Heroes Illustration PSA 10 Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/2026-pokemon-asc-en-ascended-heroes-illustration-rare-246-mawile-psa-10)
+- [Charizard Series Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-10-charizard-ex-pokemon-ex-series-ultra-rare-pokemon-card)
 - [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
+- [Tecmo Bowl for Nintendo Game Boy Complete](https://bestdeals4u.trade/post/tecmo-bowl-nintendo-game-boy-gameboy-complete-in-box-cib-tested)
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
