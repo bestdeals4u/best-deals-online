@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Misael Urbina 2021 Bowman's Best PSA 10](https://bestdeals4u.trade/post/2021-bowman-s-best-of-green-refractor-98-99-misael-urbina-psa-10-auto-05ol)
-- [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
+- [Slade Cecconi 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/slade-cecconi-psa-10-2024-topps-chrome-rc-auto-gold-refractor-50-ra-sce-u6-2)
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, The Last Ronin #46 Exclusive](https://bestdeals4u.trade/post/funko-pop-comics-the-last-ronin-46-b-n-exclusive-w-protector)
-- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
+- [Funko Pop, Tails #978 Exclusive](https://bestdeals4u.trade/post/tails-funko-pop-games-978-specialty-series-exclusive-in-protector)
+- [Funko Pop, Scooby Doo #149 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-149-scooby-doo-orange-flocked-box-lunch-exclusive-protector)
 
 ### 🧱 LEGO
-- [LEGO 76958 Dilophosaurus Ambush Sealed](https://bestdeals4u.trade/post/lego-jurassic-park-dilophosaurus-ambush-set-76958-jeep-new-sealed-retired)
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 75886 Ferrari 488 GT3 “Scuderia Corsa” Sealed](https://bestdeals4u.trade/post/lego-75886-speed-champions-ferrari-488-gt3-scuderia-corsa-new-sealed)
+- [LEGO 40563 Tribute to Lego House Sealed](https://bestdeals4u.trade/post/retired-lego-promotional-tribute-to-lego-house-40563-brand-new-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
-- [FULL ART/PIKACHU 160 2023 POKEMON SWORD AND SHIELD CROWN ZENITH PSA 9](https://bestdeals4u.trade/post/2023-pokemon-sword-shield-crown-zenith-160-full-art-pikachu-psa-9)
+- [Charizard Series Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-10-charizard-ex-pokemon-ex-series-ultra-rare-pokemon-card)
+- [Is Shining Steelix PSA 5 Priced Fairly at $361.08?](https://bestdeals4u.trade/post/psa-5-shining-steelix-112-105-neo-destiny-pokemon-description)
 
 ### 🎮 Video Games
 - [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
