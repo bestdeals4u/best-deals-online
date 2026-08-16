@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Roger Clemens 2024 Stadium Club RC PSA 9](https://bestdeals4u.trade/post/roger-clemens-2024-topps-stadium-club-rc-red-refractor-chrome-auto-25-psa-9)
 - [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
+- [Yeison Morrobel 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-499-yeison-morrobel-psa-9-mint-auto-09an)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Stannis Baratheon #41](https://bestdeals4u.trade/post/funko-pop-vinyl-game-of-thrones-stannis-baratheon-41-w-protector-vaulted)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 - [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
+- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
-- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
-- [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
+- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
+- [FULL ART/PIKACHU 160 2023 POKEMON SWORD AND SHIELD CROWN ZENITH PSA 9](https://bestdeals4u.trade/post/2023-pokemon-sword-shield-crown-zenith-160-full-art-pikachu-psa-9)
 
 ### 🎮 Video Games
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
