@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Misael Urbina 2021 Bowman's Best PSA 10](https://bestdeals4u.trade/post/2021-bowman-s-best-of-green-refractor-98-99-misael-urbina-psa-10-auto-05ol)
 - [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
-- [Yeison Morrobel 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-499-yeison-morrobel-psa-9-mint-auto-09an)
 
 ### 🧸 Funko Pops
-- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
+- [Funko Pop, The Last Ronin #46 Exclusive](https://bestdeals4u.trade/post/funko-pop-comics-the-last-ronin-46-b-n-exclusive-w-protector)
+- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
 
 ### 🧱 LEGO
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 76958 Dilophosaurus Ambush Sealed](https://bestdeals4u.trade/post/lego-jurassic-park-dilophosaurus-ambush-set-76958-jeep-new-sealed-retired)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
 
 ### 🃏 Pokémon Cards
 - [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
 - [FULL ART/PIKACHU 160 2023 POKEMON SWORD AND SHIELD CROWN ZENITH PSA 9](https://bestdeals4u.trade/post/2023-pokemon-sword-shield-crown-zenith-160-full-art-pikachu-psa-9)
 
 ### 🎮 Video Games
+- [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
