@@ -44,12 +44,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Scooby Doo #149 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-149-scooby-doo-orange-flocked-box-lunch-exclusive-protector)
 
 ### 🧱 LEGO
-- [LEGO 75886 Ferrari 488 GT3 “Scuderia Corsa” Sealed](https://bestdeals4u.trade/post/lego-75886-speed-champions-ferrari-488-gt3-scuderia-corsa-new-sealed)
-- [LEGO 40563 Tribute to Lego House Sealed](https://bestdeals4u.trade/post/retired-lego-promotional-tribute-to-lego-house-40563-brand-new-sealed-box)
+- [LEGO 21320 Dinosaur Fossils Sealed](https://bestdeals4u.trade/post/lego-ideas-dinosaur-fossils-21320-new-sealed-box-retired)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
 
 ### 🃏 Pokémon Cards
-- [Charizard Series Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-10-charizard-ex-pokemon-ex-series-ultra-rare-pokemon-card)
-- [Is Shining Steelix PSA 5 Priced Fairly at $361.08?](https://bestdeals4u.trade/post/psa-5-shining-steelix-112-105-neo-destiny-pokemon-description)
+- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
+- [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
 
 ### 🎮 Video Games
 - [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
