@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [CONNOR CANNON 2020 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/psa-9-auto-connor-cannon-1st-2020-bowman-chrome-gold-shimmer-refractor-50-ssp)
 - [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Luke Skywalker #501 GITD](https://bestdeals4u.trade/post/funko-pop-vinyl-luke-skywalker-gitd-entertainment-earth-501-with-protector)
 - [Funko Pop, Shrek #278 Exclusive](https://bestdeals4u.trade/post/funko-pop-shrek-278-chalice-collectible-exclusive-le9000-with-pop-protector)
 
 ### 🧱 LEGO
-- [LEGO 76100 Royal Talon Fighter Attack Sealed](https://bestdeals4u.trade/post/lego-marvel-royal-talon-fighter-attack-76100-new-sealed)
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
+- [LEGO 10306 Atari 2600 Sealed](https://bestdeals4u.trade/post/rare-new-in-box-lego-icons-atari-2600-brand-new-sealed-box-10306-retired)
+- [LEGO 76391 Hogwarts Icons - Collectors' Edition Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-icons-collectors-edition-76391-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
+- [Harvest Moon: A Wonderful Life 2004 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-a-wonderful-life-nintendo-gamecube-new-factory-sealed-2004)
 - [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
-- [Thinking About Buying Pikmin (2001) for GameCube? Read This First](https://bestdeals4u.trade/post/pikmin-nintendo-gamecube-2001)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
