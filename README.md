@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Noah Schultz 2024 2022 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2022-bowman-draft-chrome-1st-true-blue-refractor-auto-150-noah-schultz-psa-10)
 - [Slade Cecconi 2024 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/slade-cecconi-psa-10-2024-topps-chrome-rc-auto-gold-refractor-50-ra-sce-u6-2)
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Tails #978 Exclusive](https://bestdeals4u.trade/post/tails-funko-pop-games-978-specialty-series-exclusive-in-protector)
-- [Funko Pop, Scooby Doo #149 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-animation-149-scooby-doo-orange-flocked-box-lunch-exclusive-protector)
+- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 21320 Dinosaur Fossils Sealed](https://bestdeals4u.trade/post/lego-ideas-dinosaur-fossils-21320-new-sealed-box-retired)
 - [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 42136 John Deere 9620R 4WD Tractor Sealed](https://bestdeals4u.trade/post/lego-technic-42136-john-deer-9620r-4wd-tractor-retired-set-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
+- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
 
 ### 🎮 Video Games
-- [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
+- [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
