@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Delino DeShields Jr. 2011 Bowman Platinum BGS 9.5](https://bestdeals4u.trade/post/2011-bowman-platinum-gold-refractor-50-delino-deshields-jr-bgs-9-5-auto-0s3)
-- [Wyatt Langford 2024 Topps RC PSA 9](https://bestdeals4u.trade/post/2024-topps-baseball-wyatt-langford-black-baseball-stars-rc-auto-199-psa-9)
+- [Victor Hurtado 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/victor-hurtado-2024-1st-bowman-chrome-auto-blue-refractor-147-150-psa-9-rc-t6)
+- [Starlyn Nunez 2024 Bowman PSA 9](https://bestdeals4u.trade/post/starlyn-nunez-psa-9-2024-1st-bowman-chrome-auto-prospect-gold-refractor-50-z1)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Blue Raspberry Sour Patch Kid #04 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-glow-in-the-dark-exclusive-blue-raspberry-sour-patch-kid-04)
-- [Funko Pop, Roronoa Zoro #327 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-one-piece-roronoa-zoro-327-kody-trading-exclusive-glow-in-the-dark)
+- [Funko Pop, LIONEL MESSI #50](https://bestdeals4u.trade/post/funko-pop-50-lionel-messi-psg-argentina-miami-soccer-new-w-protector-vaulted)
+- [Funko Pop, Negan #390](https://bestdeals4u.trade/post/funko-pop-the-walking-dead-negan-390-vinyl-figure-mib-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 71395 Super Mario 64 Question Mark Block Sealed](https://bestdeals4u.trade/post/lego-super-mario-64-question-mark-block-71395-new-factory-sealed)
-- [LEGO 75280 501st Legion Clone Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-75280-501st-legion-clone-troopers-retired-new-sealed-battle-pack)
+- [LEGO 60074 Bulldozer Sealed](https://bestdeals4u.trade/post/lego-city-60074-bulldozer-new-factory-sealed-retired-town-set)
+- [LEGO 10236 Ewok Village Sealed](https://bestdeals4u.trade/post/lego-star-wars-10236-ewok-village-ucs-style-retired-new-sealed-17-minifigures)
 
 ### 🃏 Pokémon Cards
+- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-3)
 - [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese-3)
-- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
+- [Monster Farm 1997 Sony PlayStation 1 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/1997-ps1-monster-farm-graded-cgc-9-9-a-y-fold-sealed-playstation-tecmo-japan-jp)
 - [Harvest Moon: A Wonderful Life 2004 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-a-wonderful-life-nintendo-gamecube-new-factory-sealed-2004)
-- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
