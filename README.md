@@ -36,19 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [CONNOR CANNON 2020 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/psa-9-auto-connor-cannon-1st-2020-bowman-chrome-gold-shimmer-refractor-50-ssp)
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
+- [Delino DeShields Jr. 2011 Bowman Platinum BGS 9.5](https://bestdeals4u.trade/post/2011-bowman-platinum-gold-refractor-50-delino-deshields-jr-bgs-9-5-auto-0s3)
+- [Wyatt Langford 2024 Topps RC PSA 9](https://bestdeals4u.trade/post/2024-topps-baseball-wyatt-langford-black-baseball-stars-rc-auto-199-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Luke Skywalker #501 GITD](https://bestdeals4u.trade/post/funko-pop-vinyl-luke-skywalker-gitd-entertainment-earth-501-with-protector)
-- [Funko Pop, Shrek #278 Exclusive](https://bestdeals4u.trade/post/funko-pop-shrek-278-chalice-collectible-exclusive-le9000-with-pop-protector)
+- [Funko Pop, Blue Raspberry Sour Patch Kid #04 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-glow-in-the-dark-exclusive-blue-raspberry-sour-patch-kid-04)
+- [Funko Pop, Roronoa Zoro #327 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-one-piece-roronoa-zoro-327-kody-trading-exclusive-glow-in-the-dark)
 
 ### 🧱 LEGO
-- [LEGO 10306 Atari 2600 Sealed](https://bestdeals4u.trade/post/rare-new-in-box-lego-icons-atari-2600-brand-new-sealed-box-10306-retired)
-- [LEGO 76391 Hogwarts Icons - Collectors' Edition Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-icons-collectors-edition-76391-sealed-retired)
+- [LEGO 71395 Super Mario 64 Question Mark Block Sealed](https://bestdeals4u.trade/post/lego-super-mario-64-question-mark-block-71395-new-factory-sealed)
+- [LEGO 75280 501st Legion Clone Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-75280-501st-legion-clone-troopers-retired-new-sealed-battle-pack)
 
 ### 🃏 Pokémon Cards
-- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
+- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese-3)
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
