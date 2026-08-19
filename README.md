@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Coby Mayo 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-update-rookie-debut-auto-coby-mayo-blue-raywave-150-psa-10)
-- [Jase Bowen 2023 Bowman PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-true-green-refractor-99-jase-bowen-cpa-jbn-auto-psa-10)
+- [Jonathon Long 2025 Bowman PSA 10](https://bestdeals4u.trade/post/jonathon-long-2025-bowman-cpa-jlg-psa-10-green-grass-refractor-99-auto)
+- [Pete Alonso 2019 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2019-pete-alonso-rc-499-topps-chrome-auto-ref-psa-10-ra-pa-rookie)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Star Wars #126 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-hooded-luke-galactic-convention-exclusive-126-w-protector)
 - [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
 
 ### 🧱 LEGO
-- [LEGO 10278 Police Station Sealed](https://bestdeals4u.trade/post/lego-icons-police-station-10278-brand-new-factory-sealed-in-box)
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 75327 Luke Skywalker (Red Five) Helmet Sealed](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-red-five-75327-retired-new-sealed-box)
+- [LEGO 40580 Blacktron Cruiser Sealed](https://bestdeals4u.trade/post/lego-icons-blacktron-cruiser-40580-new-sealed-gwp-rare-retired)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon 2023 Chien-Pao EX Special Illustration Rare Card #261/193 PSA 9](https://bestdeals4u.trade/post/pokemon-2023-chien-pao-ex-special-illustration-rare-card-261-193-psa-9)
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
+- [Sega Dreamcast HKT-3020 White Video Game Console w/ OEM Controller & - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/sega-dreamcast-hkt-3020-white-video-game-console-w-oem-controller-vmu-tested)
 - [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-gamecube-complete)
-- [Is This Jimmy Neutron: Boy Genius (2002), Working for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/jimmy-neutron-boy-genius-nintendo-gamecube-2002-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
