@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jonathon Long 2025 Bowman PSA 10](https://bestdeals4u.trade/post/jonathon-long-2025-bowman-cpa-jlg-psa-10-green-grass-refractor-99-auto)
-- [Pete Alonso 2019 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2019-pete-alonso-rc-499-topps-chrome-auto-ref-psa-10-ra-pa-rookie)
+- [Andres Gimenez 2021 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-rookie-orange-refractor-20-25-andres-gimenez-psa-10-auto-4f5)
+- [Rikuu Nishida 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospects-psa-9-1st-rikuu-nishida-green-shimmer-auto-99-rc)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Star Wars #126 Exclusive](https://bestdeals4u.trade/post/funko-pop-star-wars-hooded-luke-galactic-convention-exclusive-126-w-protector)
-- [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
+- [Funko Pop, Kirara, Shippo #1311 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-inuyasha-kirara-shippo-1311-animation-chase-exclusive)
+- [Funko Pop, Multiple #1207 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-animation-care-bears-40th-wish-bear-1207-flocked-chase-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75327 Luke Skywalker (Red Five) Helmet Sealed](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-red-five-75327-retired-new-sealed-box)
-- [LEGO 40580 Blacktron Cruiser Sealed](https://bestdeals4u.trade/post/lego-icons-blacktron-cruiser-40580-new-sealed-gwp-rare-retired)
+- [LEGO 10235 Winter Village Market Sealed](https://bestdeals4u.trade/post/lego-creator-expert-winter-village-market-10235-new-in-sealed-box)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon 2023 Chien-Pao EX Special Illustration Rare Card #261/193 PSA 9](https://bestdeals4u.trade/post/pokemon-2023-chien-pao-ex-special-illustration-rare-card-261-193-psa-9)
