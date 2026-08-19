@@ -44,12 +44,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Multiple #1207 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-animation-care-bears-40th-wish-bear-1207-flocked-chase-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 10235 Winter Village Market Sealed](https://bestdeals4u.trade/post/lego-creator-expert-winter-village-market-10235-new-in-sealed-box)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 40799 Monkey D. Luffy Sealed](https://bestdeals4u.trade/post/lego-brickheadz-40799-monkey-d-luffy-figure-one-piece-retired-brand-new-sealed)
+- [LEGO 75338 Ambush on Ferrix Sealed](https://bestdeals4u.trade/post/lego-star-wars-ambush-on-ferrix-75338-retired-set-kit-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Pokemon 2023 Chien-Pao EX Special Illustration Rare Card #261/193 PSA 9](https://bestdeals4u.trade/post/pokemon-2023-chien-pao-ex-special-illustration-rare-card-261-193-psa-9)
-- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
+- [Market Review: PSA10 Charizard 212/172 Mewtwo 221/172 SAR VSTAR Universe](https://bestdeals4u.trade/post/psa10-charizard-212-172-mewtwo-221-172-sar-vstar-universe-pokemon-card-japanese)
+- [Market Review: Pokemon Card TCG Umbreon Celebrations 17/17 Gold Star Pokemon TCG Holo Rare NM](https://bestdeals4u.trade/post/pokemon-card-tcg-umbreon-celebrations-17-17-gold-star-pokemon-tcg-holo-rare-nm)
 
 ### 🎮 Video Games
 - [Sega Dreamcast HKT-3020 White Video Game Console w/ OEM Controller & - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/sega-dreamcast-hkt-3020-white-video-game-console-w-oem-controller-vmu-tested)
