@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Logan O'Hoppe 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-gold-shimmer-refractor-24-50-logan-o-hoppe-psa-10-auto-v9t)
-- [Christopher Suero 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/christopher-suero-2025-bowman-chrome-refractor-auto-499-psa-10-mets)
+- [Kyle Tucker 2019 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/kyle-tucker-2019-topps-chrome-rc-auto-ra-kt-purple-refractor-250-sp-psa-9-mint)
+- [Grant Taylor 2023 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2023-grant-taylor-1st-bowman-chrome-true-blue-refractor-auto-150-psa-9-mint)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Buddy Elf #484 Chase](https://bestdeals4u.trade/post/funko-pop-vinyl-buddy-elf-elf-chase-limited-edition-484-movies-vinyl-figure)
 - [Funko Pop, Hellboy #01 Chase](https://bestdeals4u.trade/post/funko-pop-hellboy-01-limited-edition-chase-collectible-figure-pop-comics)
-- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
 
 ### 🧱 LEGO
-- [LEGO 76285 Spider-Man's Mask Sealed](https://bestdeals4u.trade/post/lego-76285-spider-man-mask-marvel-retired-new-sealed)
-- [LEGO 75324 Dark Trooper Attack Sealed](https://bestdeals4u.trade/post/lego-75324-star-wars-dark-trooper-attack-8-retired-brand-new-factory-sealed)
+- [Lego BrickHeadz La Catrina (40492) at $25.99, below recent comps](https://bestdeals4u.trade/post/lego-brickheadz-la-catrina-40492-new-sealed)
+- [LEGO 75276 Stormtrooper Helmet Sealed](https://bestdeals4u.trade/post/new-in-factory-sealed-box-lego-star-wars-75276-stormtrooper-helmet-retired)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
-- [Market Review: Rika 258/182 Special Illustration Rare Paradox Rift Pokemon Card](https://bestdeals4u.trade/post/rika-258-182-special-illustration-rare-paradox-rift-pokemon-card-mint-3-ex-s)
+- [Market Review: Noctowl 7 CGC 10 Gem Mint 2000 Silver Deck Part 2 Pokemon Poker Card Japanese](https://bestdeals4u.trade/post/noctowl-7-cgc-10-gem-mint-2000-silver-deck-part-2-pokemon-poker-card-japanese)
+- [How Good of a Deal Is This Ninetales Pokémon TCG Obsidian Flames Illustration PSA 10 199/197 Holo?](https://bestdeals4u.trade/post/ninetales-pok-mon-tcg-obsidian-flames-illustration-rare-psa-10-199-197-holo-en)
 
 ### 🎮 Video Games
 - [MotorStorm 2011 Sony PlayStation 2 Sealed](https://bestdeals4u.trade/post/motorstorm-sony-playstation-3-2007-brand-new-factory-sealed)
-- [Sega Dreamcast HKT-3020 White Video Game Console w/ OEM Controller & - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/sega-dreamcast-hkt-3020-white-video-game-console-w-oem-controller-vmu-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
