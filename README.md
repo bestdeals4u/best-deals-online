@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Logan O'Hoppe 2020 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2020-bowman-chrome-gold-shimmer-refractor-24-50-logan-o-hoppe-psa-10-auto-v9t)
 - [Christopher Suero 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/christopher-suero-2025-bowman-chrome-refractor-auto-499-psa-10-mets)
-- [Kyle Tucker 2019 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2019-topps-chrome-kyle-tucker-rookie-auto-blue-wave-refractor-150-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Beru #2022 Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-animation-2022-beru-glow-new-solo-leveling-special-edition-2)
-- [Funko Pop, R2-D2 #420](https://bestdeals4u.trade/post/funko-pop-star-wars-valentines-r2-d2-420-w-protector-new-vaulted-funko-shop-exc)
+- [Funko Pop, Hellboy #01 Chase](https://bestdeals4u.trade/post/funko-pop-hellboy-01-limited-edition-chase-collectible-figure-pop-comics)
+- [Funko Pop, Black Adam #1232 Chase Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-black-adam-glow-chase-limited-edition-1232-figure)
 
 ### 🧱 LEGO
-- [LEGO 75302 Imperial Shuttle Sealed](https://bestdeals4u.trade/post/lego-star-wars-imperial-shuttle-75302-retired-set-new-and-sealed-box)
-- [LEGO 76245 LEGO 6427724 Ghost Rider Mech and Bike Sealed](https://bestdeals4u.trade/post/2023-lego-marvel-sealed-set-76245-ghost-rider-mech-bike-see-pics-retired-cycle)
+- [LEGO 76285 Spider-Man's Mask Sealed](https://bestdeals4u.trade/post/lego-76285-spider-man-mask-marvel-retired-new-sealed)
+- [LEGO 75324 Dark Trooper Attack Sealed](https://bestdeals4u.trade/post/lego-75324-star-wars-dark-trooper-attack-8-retired-brand-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 Pokemon SWSH Celebrations Umbreon Gold Star Card #17/17 PSA 10](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-umbreon-gold-star-card-17-17-graded-psa-10)
-- [Market Review: Special Illustration Rare Pokemon Card SALAMENCE EX 187/159 Journey Together](https://bestdeals4u.trade/post/special-illustration-rare-pokemon-card-salamence-ex-187-159-journey-together)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Market Review: Rika 258/182 Special Illustration Rare Paradox Rift Pokemon Card](https://bestdeals4u.trade/post/rika-258-182-special-illustration-rare-paradox-rift-pokemon-card-mint-3-ex-s)
 
 ### 🎮 Video Games
 - [MotorStorm 2011 Sony PlayStation 2 Sealed](https://bestdeals4u.trade/post/motorstorm-sony-playstation-3-2007-brand-new-factory-sealed)
