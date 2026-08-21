@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Jose Rodriguez 2021 Bowman PSA 9](https://bestdeals4u.trade/post/2021-bowman-chrome-jose-rodriguez-1st-auto-yellow-refractor-75-75-psa-9-card)
 - [Delino DeShields Jr. 2011 Bowman Platinum BGS 9.5](https://bestdeals4u.trade/post/2011-bowman-platinum-gold-refractor-50-delino-deshields-jr-bgs-9-5-auto-0s3)
-- [Billy Amick 2024 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2024-bowman-draft-billy-amick-chrome-1st-refractor-auto-499-twins-psa-10)
 
 ### 🧸 Funko Pops
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 - [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 8129 AT-AT Walker Sealed](https://bestdeals4u.trade/post/lego-star-wars-at-at-walker-8129-limited-edition-815-sealed-set)
-- [LEGO 9455 Fangpyre Mech Sealed](https://bestdeals4u.trade/post/lego-ninjago-9455-fangpyre-mech-sealed-retired-scan-pics-read-desc-new)
+- [Market Review: LEGO Harry Potter: Hogwarts Gryffindor Dorms (40452) Retired - New in Sealed Box](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-gryffindor-dorms-40452-retired-new-in-sealed-box)
+- [LEGO 75298 AT-AT Sealed](https://bestdeals4u.trade/post/lego-75298-star-wars-microfighters-at-at-vs-tauntaun-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Market Review: Pokemon Card TCG Umbreon Celebrations 17/17 Gold Star Pokemon TCG Holo Rare NM](https://bestdeals4u.trade/post/pokemon-card-tcg-umbreon-celebrations-17-17-gold-star-pokemon-tcg-holo-rare-nm)
-- [PSA 9 Mew ex SV Black Star Promo SVP053](https://bestdeals4u.trade/post/psa-9-mint-pokemon-mew-ex-scarlet-violet-black-star-promo-holo-svp053)
+- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+- [Market Review: Noctowl 7 CGC 10 Gem Mint 2000 Silver Deck Part 2 Pokemon Poker Card Japanese](https://bestdeals4u.trade/post/noctowl-7-cgc-10-gem-mint-2000-silver-deck-part-2-pokemon-poker-card-japanese)
 
 ### 🎮 Video Games
+- [Little Nightmares III Sony PlayStation 5 Sealed](https://bestdeals4u.trade/post/little-nightmares-iii-ps5-playstation-5-brand-new-sealed)
 - [Donkey Kong Country 3: Dixie Kong's Double Trouble! 1996 for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-3-snes-super-nintendo-complete-in-box)
-- [Market Review: Elite Trainer Box ETB Surging Sparks TCG Sealed New](https://bestdeals4u.trade/post/elite-trainer-box-etb-surging-sparks-tcg-sealed-new)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
