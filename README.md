@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jared Serna 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-cpa-js-jared-serna-1st-chrome-auto-speckle-refractor-299-psa-10)
-- [Wander Franco 2022 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2022-topps-chrome-wander-franco-aqua-wave-rookie-auto-199-rc-psa-9)
+- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
+- [Kumar Rocker 2022 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/kumar-rocker-bgs-9-5-10-2022-1st-bowman-chrome-auto-blue-refractor-150-rc-z2-3)
 
 ### 🧸 Funko Pops
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 - [Funko Pop, Piccolo #670 Exclusive](https://bestdeals4u.trade/post/funko-pop-dragon-ball-z-670-piccolo-gamestop-exclusive-w-protector-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 76250 Wolverine's Adamantium Claws Sealed](https://bestdeals4u.trade/post/lego-76250-marvel-wolverine-s-adamantium-claws-new-sealed-retired-x-men-97)
-- [LEGO 75275 A-wing Starfighter Sealed](https://bestdeals4u.trade/post/lego-75275-1673-pcs-star-wars-a-wing-starfighter-factory-sealed-box-new)
+- [LEGO 75100 First Order Snowspeeder Sealed](https://bestdeals4u.trade/post/nib-lego-star-wars-first-order-snowspeeder-75100-new-sealed-retired)
+- [LEGO 10197 Fire Brigade Sealed](https://bestdeals4u.trade/post/lego-10197-fire-brigade-modular-buildings-collection-misb-new-sealed-retired-toy)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 Pokémon JPN Promo Pack 25th Anv Ed #012 Umbreon-Gold Star PSA 10](https://bestdeals4u.trade/post/2021-pokemon-jpn-promo-card-pack-25th-anv-ed-012-umbreon-gold-star-psa-10)
-- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+- [Market Review: Special Illustration Rare Pokemon Card SALAMENCE EX 187/159 Journey Together](https://bestdeals4u.trade/post/special-illustration-rare-pokemon-card-salamence-ex-187-159-journey-together)
+- [Market Review: PSA10 Charizard 212/172 Mewtwo 221/172 SAR VSTAR Universe](https://bestdeals4u.trade/post/psa10-charizard-212-172-mewtwo-221-172-sar-vstar-universe-pokemon-card-japanese)
 
 ### 🎮 Video Games
 - [Bust-A-Move 3000 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/bust-a-move-3000-nintendo-gamecube-2003-authentic-cib-tested-working)
