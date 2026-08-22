@@ -36,15 +36,15 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Zack Gelof 2024 Topps Chrome Black RC PSA 10](https://bestdeals4u.trade/post/topps-2024-chrome-black-ivory-auto-zack-gelof-cpa-zg-rc-50-psa-10-a-s)
-- [Antonio Anderson 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-hta-green-lava-refractor-10-99-antonio-anderson-psa-10-auto-02le-2)
+- [Hurston Waldrep 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/hurston-waldrep-2025-topps-chrome-rc-auto-blue-refractor-150-psa-9-braves-s6-4)
+- [Josuar Gonzalez 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/josuar-gonzalez-2025-bowman-chrome-autograph-auto-green-refractor-99-psa-10)
 
 ### 🧸 Funko Pops
 - [Funko POP 1130 Curse of La Llorona Set of 2 – New Vinyl Figures](https://bestdeals4u.trade/post/set-of-2-funko-pop-1130-curse-of-la-llorona-vinyl-figure-chase-new)
 
 ### 🧱 LEGO
+- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
 - [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon Nidoking Holo Rare Shadowless Base Set 1999 Card 11/102 PSA 4 VG-EX](https://bestdeals4u.trade/post/pokemon-nidoking-holo-rare-shadowless-base-set-1999-card-11-102-psa-4-vg-ex)
