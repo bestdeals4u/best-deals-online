@@ -36,15 +36,15 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+- [Market Review: 1962 Topps Warren Spahn #100 SGC 3 Braves Baseball Card HOF](https://bestdeals4u.trade/post/1962-topps-warren-spahn-100-sgc-3-braves-baseball-card-hof)
+- [Diego Velasquez 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/diego-velasquez-2022-1st-bowman-chrome-auto-gold-refractor-50-psa-9-giants-u6-3)
 
 ### 🧸 Funko Pops
 - [Funko POP 1130 Curse of La Llorona Set of 2 – New Vinyl Figures](https://bestdeals4u.trade/post/set-of-2-funko-pop-1130-curse-of-la-llorona-vinyl-figure-chase-new)
 
 ### 🧱 LEGO
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 - [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon Nidoking Holo Rare Shadowless Base Set 1999 Card 11/102 PSA 4 VG-EX](https://bestdeals4u.trade/post/pokemon-nidoking-holo-rare-shadowless-base-set-1999-card-11-102-psa-4-vg-ex)
