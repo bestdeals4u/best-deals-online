@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Bryce Johnson 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/2023-topps-chrome-bryce-johnson-rookie-auto-sgc-10-10-gem-mint-giants-rc)
-- [Nick Swiney 2020 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2020-bowman-draft-chrome-picks-gold-refractor-5-50-nick-swiney-psa-9-auto-08gd)
+- [Thinking About Buying Shohei Ohtani 2021 Topps Now PSA 10 July MVP MLB - Collectib? Read This First](https://bestdeals4u.trade/post/shohei-ohtani-2021-topps-now-psa-10-july-mvp-mlb-baseball-card-rare-collectib)
+- [Keston Hiura 2017 Bowman's Best RC PSA Authentic](https://bestdeals4u.trade/post/keston-hiura-gem-mint-10-psa-dna-signed-2017-bowmans-best-rookie-125-autograph)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
+- [KPop Demon Hunters Jinu w/ Patterns Chase Limited Funko Pop #2259 at $34.34, with recent sales closer to $39.21](https://bestdeals4u.trade/post/funko-pop-kpop-demon-hunters-jinu-w-patterns-chase-limited-edition-2259)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
+- [LEGO 76144 Avengers Hulk Helicopter Rescue Sealed](https://bestdeals4u.trade/post/lego-super-heroes-avengers-hulk-helicopter-rescue-76144-new-sealed-retired)
 - [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🎮 Video Games
 - [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
