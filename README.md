@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Thinking About Buying Shohei Ohtani 2021 Topps Now PSA 10 July MVP MLB - Collectib? Read This First](https://bestdeals4u.trade/post/shohei-ohtani-2021-topps-now-psa-10-july-mvp-mlb-baseball-card-rare-collectib)
-- [Keston Hiura 2017 Bowman's Best RC PSA Authentic](https://bestdeals4u.trade/post/keston-hiura-gem-mint-10-psa-dna-signed-2017-bowmans-best-rookie-125-autograph)
+- [Robert Puason 2020 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2020-bowman-sterling-speckle-refractor-26-99-robert-puason-psa-10-auto-1b9b)
+- [David Sandlin 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-auto-150-blue-refractor-cpadsa-david-sandlin-psa-10)
 
 ### 🧸 Funko Pops
 - [KPop Demon Hunters Jinu w/ Patterns Chase Limited Funko Pop #2259 at $34.34, with recent sales closer to $39.21](https://bestdeals4u.trade/post/funko-pop-kpop-demon-hunters-jinu-w-patterns-chase-limited-edition-2259)
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
+- [LEGO 41627 Luke Skywalker & Yoda Sealed](https://bestdeals4u.trade/post/lego-41627-star-wars-luke-skywalker-yoda-set-retired-new-sealed-2)
 - [LEGO 76144 Avengers Hulk Helicopter Rescue Sealed](https://bestdeals4u.trade/post/lego-super-heroes-avengers-hulk-helicopter-rescue-76144-new-sealed-retired)
-- [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
 
 ### 🎮 Video Games
 - [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
