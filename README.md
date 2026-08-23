@@ -36,19 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Robert Puason 2020 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2020-bowman-sterling-speckle-refractor-26-99-robert-puason-psa-10-auto-1b9b)
-- [David Sandlin 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2025-bowman-chrome-auto-150-blue-refractor-cpadsa-david-sandlin-psa-10)
+- [Topps Johnny Bench SGC 6 EXMT High Number Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/1970-topps-johnny-bench-sgc-6-exmt-high-number-660-baseball-card)
+- [Ezequiel Tovar 2023 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/ezequiel-tovar-auto-topps-chrome-2023-blue-refractor-rc-150-psa-9-mint-raet)
 
 ### 🧸 Funko Pops
 - [KPop Demon Hunters Jinu w/ Patterns Chase Limited Funko Pop #2259 at $34.34, with recent sales closer to $39.21](https://bestdeals4u.trade/post/funko-pop-kpop-demon-hunters-jinu-w-patterns-chase-limited-edition-2259)
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO 41627 Luke Skywalker & Yoda Sealed](https://bestdeals4u.trade/post/lego-41627-star-wars-luke-skywalker-yoda-set-retired-new-sealed-2)
-- [LEGO 76144 Avengers Hulk Helicopter Rescue Sealed](https://bestdeals4u.trade/post/lego-super-heroes-avengers-hulk-helicopter-rescue-76144-new-sealed-retired)
-
-### 🎮 Video Games
-- [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
+- [LEGO 75259 Snowspeeder – 20th Anniversary Edition Sealed](https://bestdeals4u.trade/post/lego-star-wars-snowspeeder-20th-anniversary-75259-new-sealed-retired-set)
+- [LEGO 42036 Motorcycle Sealed](https://bestdeals4u.trade/post/lego-technic-42036-street-motorcycle-375pc-retired-set-2015-brand-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
