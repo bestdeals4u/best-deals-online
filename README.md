@@ -36,19 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Hurston Waldrep 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/hurston-waldrep-2025-topps-chrome-rc-auto-blue-refractor-150-psa-9-braves-s6-4)
-- [Josuar Gonzalez 2025 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/josuar-gonzalez-2025-bowman-chrome-autograph-auto-green-refractor-99-psa-10)
+- [Bryce Johnson 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/2023-topps-chrome-bryce-johnson-rookie-auto-sgc-10-10-gem-mint-giants-rc)
+- [Nick Swiney 2020 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2020-bowman-draft-chrome-picks-gold-refractor-5-50-nick-swiney-psa-9-auto-08gd)
 
 ### 🧸 Funko Pops
-- [Funko POP 1130 Curse of La Llorona Set of 2 – New Vinyl Figures](https://bestdeals4u.trade/post/set-of-2-funko-pop-1130-curse-of-la-llorona-vinyl-figure-chase-new)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
-
-### 🃏 Pokémon Cards
-- [Market Review: Pokemon Nidoking Holo Rare Shadowless Base Set 1999 Card 11/102 PSA 4 VG-EX](https://bestdeals4u.trade/post/pokemon-nidoking-holo-rare-shadowless-base-set-1999-card-11-102-psa-4-vg-ex)
-- [PSA 10 Charmander Illustration Rare 168/165 Gem Mint](https://bestdeals4u.trade/post/pokemon-charmander-168-165-psa-10-gem-mint-151-illustration-rare)
+- [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
+- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🎮 Video Games
 - [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
