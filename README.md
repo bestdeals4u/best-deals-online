@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Elly De La Cruz 2024 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/topps-2024-bowman-chrome-elly-de-la-cruz-gold-mini-diamond-auto-rc-psa-9-50)
-- [George Valera 2022 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/george-valera-2022-bowman-1st-chrome-sapphire-aqua-auto-99-psa-9-guardians-rc)
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
+- [Mac Horvath 2023 Draft RC PSA 10](https://bestdeals4u.trade/post/mac-horvath-2023-bowman-draft-purple-refractor-chrome-auto-1st-rc-250-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
 - [Funko Pop Dustin #828 Exclusive](https://bestdeals4u.trade/post/funko-stranger-things-dustin-target-exclusive-828-w-protector)
-- [Funko Pop, Jennie #362](https://bestdeals4u.trade/post/mint-funko-pop-rocks-blackpink-jennie-362-black-pink-k-pop-shut-down-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 21304 Doctor Who Sealed](https://bestdeals4u.trade/post/lego-ideas-21304-doctor-who-tardis-623pcs-11th-12th-dalek-new-sealed-retired)
-- [LEGO 76248 The Avengers Quinjet Sealed](https://bestdeals4u.trade/post/lego-marvel-the-avengers-quinjet-76248-free-shipping-new-sealed-box)
+- [LEGO 71374 Nintendo Entertainment System Sealed](https://bestdeals4u.trade/post/lego-super-mario-71374-nintendo-entertainment-system-new-sealed-retired-nes-2)
+- [LEGO 76428 Hagrid's Hut: an Unexpected Visit Sealed](https://bestdeals4u.trade/post/lego-76428-hagrid-s-hut-an-unexpected-visit-harry-potter-set-new-in-box-retired)
 
 ### 🃏 Pokémon Cards
 - [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
