@@ -35,7 +35,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 <!-- RSS:START -->
 ## Latest from BestDeals4U.trade
 
-- No posts found.
+### ⚾ Baseball Cards
+- [Scott Kingery 2018 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2018-chrome-rookie-blue-refractor-33-150-scott-kingery-psa-10-gem-mt-auto-a2k)
+- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+
+### 🧸 Funko Pops
+- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
+- [Funko Pop Dustin #828 Exclusive](https://bestdeals4u.trade/post/funko-stranger-things-dustin-target-exclusive-828-w-protector)
+
+### 🧱 LEGO
+- [LEGO 60324 Mobile Crane Sealed](https://bestdeals4u.trade/post/lego-60324-city-mobile-crane-new-sealed-box-retired-340-pieces-2-minifigures-2)
+- [LEGO 76440 Triwizard Tournament: the Arrival Sealed](https://bestdeals4u.trade/post/lego-76440-harry-potter-triwizard-tournament-arrival-new-sealed-retired-ship)
+
+### 🃏 Pokémon Cards
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
+
+### 🎮 Video Games
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
+
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
 
