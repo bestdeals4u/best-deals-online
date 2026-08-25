@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [EMIL MORALES 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-prospects-emil-morales-speckle-refractor-auto-200-299-psa-9)
 - [Matt Moore 2012 Bowman RC BGS 9](https://bestdeals4u.trade/post/2012-bowman-chrome-gold-refractor-rookie-9-50-matt-moore-bgs-9-mint-auto-1b0)
-- [Scott Kingery 2018 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2018-chrome-rookie-blue-refractor-33-150-scott-kingery-psa-10-gem-mt-auto-a2k)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
-- [Funko Pop Dustin #828 Exclusive](https://bestdeals4u.trade/post/funko-stranger-things-dustin-target-exclusive-828-w-protector)
+- [Funko Pop, Spider-Man #725 GITD](https://bestdeals4u.trade/post/spider-man-symbiote-suit-rare-vaulted-gitd-725-funko-pop-w-protector)
+- [Market Review: Funko Pop! Immortal Hulk #840 LE Glow Chase PX Previews Exclusive Marvel](https://bestdeals4u.trade/post/funko-pop-immortal-hulk-840-le-glow-chase-px-previews-exclusive-marvel)
 
 ### 🧱 LEGO
-- [LEGO 31198 The Beatles Sealed](https://bestdeals4u.trade/post/new-in-sealed-box-lego-art-the-beatles-31198-john-paul-george-ringo-retired)
-- [LEGO 75218 X-Wing Starfighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-x-wing-starfighter-75218-new-factory-sealed-retired-set)
+- [LEGO 71721 Ninjago Skull Sorcerer's Dragon Sealed](https://bestdeals4u.trade/post/lego-71721-ninjago-skull-sorcerer-s-dragon-retired-brand-new-factory-sealed-box)
+- [LEGO 75327 Luke Skywalker (Red Five) Helmet Sealed](https://bestdeals4u.trade/post/lego-75327-star-wars-luke-skywalker-red-five-helmet-set-retired-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
