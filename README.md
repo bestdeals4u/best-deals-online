@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Joe Ross 2012 Bowman BGS 10](https://bestdeals4u.trade/post/2012-bowman-chrome-prospects-purple-refractor-2-10-joe-ross-bgs-10-auto-j5r)
-- [Luis Severino 2016 Bowman Chrome RC BGS 9](https://bestdeals4u.trade/post/2016-bowman-chrome-rookie-gold-refractor-5-50-luis-severino-bgs-9-mint-auto-1q7)
+- [Byron Buxton 2015 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2015-bowman-chrome-gold-refractor-48-50-byron-buxton-bgs-9-5-gem-mint-auto-1s10)
+- [Lency Delgado 2020 Bowman PSA 9](https://bestdeals4u.trade/post/2020-bowman-chrome-prospects-gold-refractor-38-50-lency-delgado-psa-9-auto-w7p)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
 - [Funko Pop, Spider-Man #725 GITD](https://bestdeals4u.trade/post/spider-man-symbiote-suit-rare-vaulted-gitd-725-funko-pop-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 3862 Harry Potter Hogwarts Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-3862-retired-lego-games-series-brand-new-sealed)
-- [Is This LEGO 40448 Ideas Vintage Car VIP Exclusive Promo Set New in Factory Se Actually a Good Value?](https://bestdeals4u.trade/post/lego-40448-ideas-vintage-car-vip-exclusive-promo-set-new-in-factory-sealed-box)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 10293 Santa's Visit Sealed](https://bestdeals4u.trade/post/lego-winter-village-collection-10293-santa-s-visit-retired-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: PSA9 Pokemon TCG S-Chinese Sylveon VMAX 171/132 CS4aC HR Holo Alt Art](https://bestdeals4u.trade/post/psa9-pokemon-tcg-s-chinese-sylveon-vmax-171-132-cs4ac-hr-holo-alt-art-card)
