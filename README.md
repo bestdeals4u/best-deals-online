@@ -36,19 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [EMIL MORALES 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2025-bowman-chrome-prospects-emil-morales-speckle-refractor-auto-200-299-psa-9)
-- [Matt Moore 2012 Bowman RC BGS 9](https://bestdeals4u.trade/post/2012-bowman-chrome-gold-refractor-rookie-9-50-matt-moore-bgs-9-mint-auto-1b0)
+- [Sixto Sanchez 2021 Topps Chrome Sapphire Edition RC PSA 9](https://bestdeals4u.trade/post/2021-chrome-sapphire-edition-rookie-purple-9-10-sixto-sanchez-psa-9-auto-0rm0)
+- [Nomar Mazara 2017 Topps Finest BGS 9.5](https://bestdeals4u.trade/post/2017-topps-finest-green-refractor-75-99-nomar-mazara-bgs-9-5-gem-mint-auto-0c3)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
 - [Funko Pop, Spider-Man #725 GITD](https://bestdeals4u.trade/post/spider-man-symbiote-suit-rare-vaulted-gitd-725-funko-pop-w-protector)
-- [Market Review: Funko Pop! Immortal Hulk #840 LE Glow Chase PX Previews Exclusive Marvel](https://bestdeals4u.trade/post/funko-pop-immortal-hulk-840-le-glow-chase-px-previews-exclusive-marvel)
 
 ### 🧱 LEGO
-- [LEGO 71721 Ninjago Skull Sorcerer's Dragon Sealed](https://bestdeals4u.trade/post/lego-71721-ninjago-skull-sorcerer-s-dragon-retired-brand-new-factory-sealed-box)
-- [LEGO 75327 Luke Skywalker (Red Five) Helmet Sealed](https://bestdeals4u.trade/post/lego-75327-star-wars-luke-skywalker-red-five-helmet-set-retired-new-sealed)
+- [LEGO 40139 Gingerbread House Sealed](https://bestdeals4u.trade/post/new-sealed-lego-gingerbread-house-40139-set-retired)
+- [LEGO 60335 Train Station Sealed](https://bestdeals4u.trade/post/retired-lego-city-train-station-60335-brand-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
-- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
+- [Market Review: PSA9 Pokemon TCG S-Chinese Sylveon VMAX 171/132 CS4aC HR Holo Alt Art](https://bestdeals4u.trade/post/psa9-pokemon-tcg-s-chinese-sylveon-vmax-171-132-cs4ac-hr-holo-alt-art-card)
 
 ### 🎮 Video Games
 - [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
