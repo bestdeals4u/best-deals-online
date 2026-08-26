@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Is Donruss Jose Canseco Graded PSA 6 Rookie Rookie Card Priced Fairly at $43.98?](https://bestdeals4u.trade/post/1986-donruss-jose-canseco-39-graded-psa-6-rookie-baseball-card-rc)
-- [Sixto Sanchez 2021 Topps Chrome Sapphire Edition RC PSA 9](https://bestdeals4u.trade/post/2021-chrome-sapphire-edition-rookie-purple-9-10-sixto-sanchez-psa-9-auto-0rm0)
+- [Joe Ross 2012 Bowman BGS 10](https://bestdeals4u.trade/post/2012-bowman-chrome-prospects-purple-refractor-2-10-joe-ross-bgs-10-auto-j5r)
+- [Luis Severino 2016 Bowman Chrome RC BGS 9](https://bestdeals4u.trade/post/2016-bowman-chrome-rookie-gold-refractor-5-50-luis-severino-bgs-9-mint-auto-1q7)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
 - [Funko Pop, Spider-Man #725 GITD](https://bestdeals4u.trade/post/spider-man-symbiote-suit-rare-vaulted-gitd-725-funko-pop-w-protector)
 
 ### 🧱 LEGO
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 3862 Harry Potter Hogwarts Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-3862-retired-lego-games-series-brand-new-sealed)
+- [Is This LEGO 40448 Ideas Vintage Car VIP Exclusive Promo Set New in Factory Se Actually a Good Value?](https://bestdeals4u.trade/post/lego-40448-ideas-vintage-car-vip-exclusive-promo-set-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: PSA9 Pokemon TCG S-Chinese Sylveon VMAX 171/132 CS4aC HR Holo Alt Art](https://bestdeals4u.trade/post/psa9-pokemon-tcg-s-chinese-sylveon-vmax-171-132-cs4ac-hr-holo-alt-art-card)
