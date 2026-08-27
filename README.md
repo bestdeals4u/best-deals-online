@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Byron Buxton 2015 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2015-bowman-chrome-gold-refractor-48-50-byron-buxton-bgs-9-5-gem-mint-auto-1s10)
-- [Lency Delgado 2020 Bowman PSA 9](https://bestdeals4u.trade/post/2020-bowman-chrome-prospects-gold-refractor-38-50-lency-delgado-psa-9-auto-w7p)
+- [Jose Albertos 2018 Bowman's Best PSA 9](https://bestdeals4u.trade/post/2018-bowman-s-best-of-gold-refractor-31-50-jose-albertos-psa-9-mint-auto-8d2)
+- [Lucas Giolito 2016 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2016-bowman-chrome-rookie-green-refractor-72-99-lucas-giolito-psa-9-auto-06z2)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
-- [Funko Pop, Spider-Man #725 GITD](https://bestdeals4u.trade/post/spider-man-symbiote-suit-rare-vaulted-gitd-725-funko-pop-w-protector)
+- [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
-- [LEGO 10293 Santa's Visit Sealed](https://bestdeals4u.trade/post/lego-winter-village-collection-10293-santa-s-visit-retired-new-sealed)
+- [LEGO 70401 Gold Getaway Sealed](https://bestdeals4u.trade/post/lego-castle-gold-getaway-70401-new-sealed-box-retired)
+- [LEGO 40448 Ideas Vintage Car in Box NISB Promo at $26.50, below recent comps](https://bestdeals4u.trade/post/lego-new-40448-ideas-vintage-car-new-in-factory-sealed-box-nisb-promo-gwp)
 
 ### 🃏 Pokémon Cards
-- [Market Review: PSA9 Pokemon TCG S-Chinese Sylveon VMAX 171/132 CS4aC HR Holo Alt Art](https://bestdeals4u.trade/post/psa9-pokemon-tcg-s-chinese-sylveon-vmax-171-132-cs4ac-hr-holo-alt-art-card)
+- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
+- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-3)
 
 ### 🎮 Video Games
-- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
+- [Super Mario Sunshine 2002 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/super-mario-sunshine-nintendo-gamecube-2002-tested-working-no-manual)
+- [Super Smash Bros Melee 2001 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-cib-w-manual-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
