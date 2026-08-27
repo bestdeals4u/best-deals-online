@@ -36,15 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jose Albertos 2018 Bowman's Best PSA 9](https://bestdeals4u.trade/post/2018-bowman-s-best-of-gold-refractor-31-50-jose-albertos-psa-9-mint-auto-8d2)
-- [Lucas Giolito 2016 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2016-bowman-chrome-rookie-green-refractor-72-99-lucas-giolito-psa-9-auto-06z2)
+- [Jose Tena 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospects-orange-refractor-11-25-jose-tena-psa-10-auto-g6p)
+- [Victor Acosta 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-refractor-499-victor-acosta-psa-10-gem-mt-auto-11oq)
 
 ### 🧸 Funko Pops
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 - [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 70401 Gold Getaway Sealed](https://bestdeals4u.trade/post/lego-castle-gold-getaway-70401-new-sealed-box-retired)
-- [LEGO 40448 Ideas Vintage Car in Box NISB Promo at $26.50, below recent comps](https://bestdeals4u.trade/post/lego-new-40448-ideas-vintage-car-new-in-factory-sealed-box-nisb-promo-gwp)
+- [LEGO 4435 Town Car and Caravan Sealed](https://bestdeals4u.trade/post/lego-4435-city-car-and-caravan-set-2011-brand-new-sealed-retired-camper-bicycle)
+- [LEGO 910047 Medieval Seaside Market Sealed](https://bestdeals4u.trade/post/lego-910047-bricklink-medieval-seaside-market-brand-new-sealed-retired-castle)
 
 ### 🃏 Pokémon Cards
 - [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
