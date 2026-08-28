@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Topps Game Hank Aaron SGC 2 HOF Braves Vintage Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1968-topps-game-hank-aaron-4-sgc-2-hof-braves-vintage-baseball-card)
-- [Nolan Arenado 2013 Sterling RC BGS 9](https://bestdeals4u.trade/post/nolan-arenado-2013-bowman-sterling-rookie-auto-green-refractor-94-125-bgs-9-10)
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Trevor Williams 2013 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-draft-blue-refractor-73-99-trevor-williams-bgs-9-5-gem-mint-auto-ib6)
 
 ### 🧸 Funko Pops
 - [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 8046 Helicopter Sealed](https://bestdeals4u.trade/post/lego-technic-2-in-1-helicopter-seaplane-8046-new-sealed-retired-set)
-- [LEGO 21343 Viking Village Sealed](https://bestdeals4u.trade/post/lego-21343-ideas-viking-village-medieval-collection-new-and-sealed)
+- [LEGO 910047 Medieval Seaside Market Sealed](https://bestdeals4u.trade/post/lego-910047-bricklink-medieval-seaside-market-brand-new-sealed-retired-castle)
+- [LEGO 40562 Mystic Witch Sealed](https://bestdeals4u.trade/post/lego-mystic-witch-40562-creator-3-in-1-witch-cat-dragon-sealed-new-retired-gwp)
 
 ### 🃏 Pokémon Cards
+- [Pokemon TCG Clay Burst Grafaiai AR 080/071 SV2D Japanese Illustration Ungraded](https://bestdeals4u.trade/post/pokemon-tcg-clay-burst-grafaiai-ar-080-071-sv2d-japanese-illustration-rare)
 - [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
-- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-3)
 
 ### 🎮 Video Games
-- [Super Mario Sunshine 2002 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/super-mario-sunshine-nintendo-gamecube-2002-tested-working-no-manual)
-- [Super Smash Bros Melee 2001 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/super-smash-bros-melee-nintendo-gamecube-2001-cib-w-manual-tested-working)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
