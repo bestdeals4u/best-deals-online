@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jose Tena 2021 Bowman PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospects-orange-refractor-11-25-jose-tena-psa-10-auto-g6p)
-- [Victor Acosta 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-refractor-499-victor-acosta-psa-10-gem-mt-auto-11oq)
+- [Topps Game Hank Aaron SGC 2 HOF Braves Vintage Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1968-topps-game-hank-aaron-4-sgc-2-hof-braves-vintage-baseball-card)
+- [Nolan Arenado 2013 Sterling RC BGS 9](https://bestdeals4u.trade/post/nolan-arenado-2013-bowman-sterling-rookie-auto-green-refractor-94-125-bgs-9-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Funko Pop, Flash, Tasmanian Devil #844 Exclusive](https://bestdeals4u.trade/post/funko-pop-looney-tunes-taz-as-the-flash-844-fye-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 4435 Town Car and Caravan Sealed](https://bestdeals4u.trade/post/lego-4435-city-car-and-caravan-set-2011-brand-new-sealed-retired-camper-bicycle)
-- [LEGO 910047 Medieval Seaside Market Sealed](https://bestdeals4u.trade/post/lego-910047-bricklink-medieval-seaside-market-brand-new-sealed-retired-castle)
+- [LEGO 8046 Helicopter Sealed](https://bestdeals4u.trade/post/lego-technic-2-in-1-helicopter-seaplane-8046-new-sealed-retired-set)
+- [LEGO 21343 Viking Village Sealed](https://bestdeals4u.trade/post/lego-21343-ideas-viking-village-medieval-collection-new-and-sealed)
 
 ### 🃏 Pokémon Cards
 - [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
