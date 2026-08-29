@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Trevor Williams 2013 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-draft-blue-refractor-73-99-trevor-williams-bgs-9-5-gem-mint-auto-ib6)
+- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
+- [Matt Shaw 2023 Bowman Chrome RC SGC 9.5](https://bestdeals4u.trade/post/matt-shaw-2023-1st-bowman-chrome-auto-black-refractor-75-cubs-sgc-9-5-rc-z4)
 
 ### 🧸 Funko Pops
 - [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 910047 Medieval Seaside Market Sealed](https://bestdeals4u.trade/post/lego-910047-bricklink-medieval-seaside-market-brand-new-sealed-retired-castle)
-- [LEGO 40562 Mystic Witch Sealed](https://bestdeals4u.trade/post/lego-mystic-witch-40562-creator-3-in-1-witch-cat-dragon-sealed-new-retired-gwp)
+- [LEGO 75338 Ambush on Ferrix Sealed](https://bestdeals4u.trade/post/lego-star-wars-ambush-on-ferrix-75338-new-in-sealed-box)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 - [Pokemon TCG Clay Burst Grafaiai AR 080/071 SV2D Japanese Illustration Ungraded](https://bestdeals4u.trade/post/pokemon-tcg-clay-burst-grafaiai-ar-080-071-sv2d-japanese-illustration-rare)
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
