@@ -36,19 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Eduardo Herrera 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/eduardo-herrera-psa-10-2024-1st-bowman-chrome-auto-orange-refractor-25-rc-u6-2)
-- [Bryan Ramos 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/bryan-ramos-psa-10-2021-1st-bowman-chrome-auto-orange-shim-refractor-25-z1-2)
+- [Lee Jung-Hoo 2024 Topps Tier One RC PSA 10](https://bestdeals4u.trade/post/2024-topps-tier-one-jung-hoo-lee-auto-rc-green-foil-redemption-49-psa-10)
+- [Is This David Murphy 2008 SP By The Letter R Auto /50 Patch Texas Rangers Card a Good Deal Right Now?](https://bestdeals4u.trade/post/david-murphy-2008-sp-authentic-by-the-letter-r-auto-50-patch-texas-rangers-card)
 
 ### 🧸 Funko Pops
-- [Funko Pop, The Rock #44 Exclusive](https://bestdeals4u.trade/post/funko-pop-wwe-the-rock-art-series-44-walmart-exclusive-vinyl-w-protector)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
-- [LEGO 6175210 Luke's Landspeeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-75173-luke-s-landspeeder-retired-set-brand-new-in-sealed-box)
+- [LEGO Icons Tranquil Garden 10315 New Sealed](https://bestdeals4u.trade/post/lego-icons-10315-tranquil-garden-in-box-brand-new-factory-sealed)
+- [LEGO 21315 Pop-Up Book Sealed](https://bestdeals4u.trade/post/lego-ideas-pop-up-book-21315-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
 - [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
-- [Pokemon TCG Clay Burst Grafaiai AR 080/071 SV2D Japanese Illustration Ungraded](https://bestdeals4u.trade/post/pokemon-tcg-clay-burst-grafaiai-ar-080-071-sv2d-japanese-illustration-rare)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
