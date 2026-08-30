@@ -36,10 +36,11 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Lee Jung-Hoo 2024 Topps Tier One RC PSA 10](https://bestdeals4u.trade/post/2024-topps-tier-one-jung-hoo-lee-auto-rc-green-foil-redemption-49-psa-10)
-- [Is This David Murphy 2008 SP By The Letter R Auto /50 Patch Texas Rangers Card a Good Deal Right Now?](https://bestdeals4u.trade/post/david-murphy-2008-sp-authentic-by-the-letter-r-auto-50-patch-texas-rangers-card)
+- [Antoni Flores 2018 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-chrome-prospect-blue-refractor-14-150-antoni-flores-bgs-9-5-auto-7m3)
+- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
 
 ### 🧸 Funko Pops
+- [Metallic Muzan Kibutsuji Funko Pop! #2196 — ECCC 2026 Hot Topic Exclusive](https://bestdeals4u.trade/post/funko-pop-metalllic-muzan-kibutsuji-2196-eccc-2026-hot-topic-exclusive)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
