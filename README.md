@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Antoni Flores 2018 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-chrome-prospect-blue-refractor-14-150-antoni-flores-bgs-9-5-auto-7m3)
-- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
+- [C.J. Chatham 2016 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-black-refractor-19-75-cj-chatham-psa-10-auto-bn5)
+- [Alec Hansen 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-74-99-alec-hansen-bgs-9-5-auto-4al)
 
 ### 🧸 Funko Pops
 - [Metallic Muzan Kibutsuji Funko Pop! #2196 — ECCC 2026 Hot Topic Exclusive](https://bestdeals4u.trade/post/funko-pop-metalllic-muzan-kibutsuji-2196-eccc-2026-hot-topic-exclusive)
