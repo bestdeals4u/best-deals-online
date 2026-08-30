@@ -36,24 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [C.J. Chatham 2016 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-black-refractor-19-75-cj-chatham-psa-10-auto-bn5)
-- [Alec Hansen 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-74-99-alec-hansen-bgs-9-5-auto-4al)
+- [Taylor Walls 2017 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2017-bowman-chrome-taylor-walls-purple-refractor-autograph-psa-9-auto-250-rc)
+- [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
 
 ### 🧸 Funko Pops
 - [Metallic Muzan Kibutsuji Funko Pop! #2196 — ECCC 2026 Hot Topic Exclusive](https://bestdeals4u.trade/post/funko-pop-metalllic-muzan-kibutsuji-2196-eccc-2026-hot-topic-exclusive)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO Icons Tranquil Garden 10315 New Sealed](https://bestdeals4u.trade/post/lego-icons-10315-tranquil-garden-in-box-brand-new-factory-sealed)
-- [LEGO 21315 Pop-Up Book Sealed](https://bestdeals4u.trade/post/lego-ideas-pop-up-book-21315-new-sealed-retired)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
-- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
-
-### 🎮 Video Games
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
