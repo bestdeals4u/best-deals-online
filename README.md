@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Matt Olson 2017 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2017-topps-chrome-matt-olson-rookie-auto-blue-refractor-150-psa-9)
-- [Taylor Walls 2017 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2017-bowman-chrome-taylor-walls-purple-refractor-autograph-psa-9-auto-250-rc)
+- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
+- [Mac Horvath 2023 Draft RC PSA 10](https://bestdeals4u.trade/post/mac-horvath-2023-bowman-draft-purple-refractor-chrome-auto-1st-rc-250-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
 - [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
-- [Metallic Muzan Kibutsuji Funko Pop! #2196 — ECCC 2026 Hot Topic Exclusive](https://bestdeals4u.trade/post/funko-pop-metalllic-muzan-kibutsuji-2196-eccc-2026-hot-topic-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 10232 Palace Cinema Sealed](https://bestdeals4u.trade/post/brand-new-lego-creator-expert-palace-cinema-10232-retired)
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 76206 Iron Man Figure Sealed](https://bestdeals4u.trade/post/lego-super-heroes-iron-man-figure-76206-retired-new-sealed-box)
+- [LEGO 76400 Hogwarts Carriage and Thestrals Sealed](https://bestdeals4u.trade/post/lego-76400-hogwarts-carriage-thestrals-harry-potter-retired-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 1999 Pokemon Base Set Ninetales Holo #12 PSA 7](https://bestdeals4u.trade/post/1999-pokemon-base-set-ninetales-holo-12-psa-7)
