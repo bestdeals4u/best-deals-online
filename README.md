@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
-- [Mac Horvath 2023 Draft RC PSA 10](https://bestdeals4u.trade/post/mac-horvath-2023-bowman-draft-purple-refractor-chrome-auto-1st-rc-250-psa-10)
+- [Ryder Jones 2013 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-draft-black-refractor-24-35-ryder-jones-bgs-9-5-gem-mint-auto-0p3)
+- [Wyatt Langford 2025 Topps Museum Collection Auto Autograph Bat Card/75 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/wyatt-langford-2025-topps-museum-collection-auto-autograph-bat-card-4-75)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 - [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
-- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 76206 Iron Man Figure Sealed](https://bestdeals4u.trade/post/lego-super-heroes-iron-man-figure-76206-retired-new-sealed-box)
-- [LEGO 76400 Hogwarts Carriage and Thestrals Sealed](https://bestdeals4u.trade/post/lego-76400-hogwarts-carriage-thestrals-harry-potter-retired-brand-new-sealed)
+- [LEGO 40531 Lars Family Homestead Kitchen Sealed](https://bestdeals4u.trade/post/lego-star-wars-lars-family-homestead-kitchen-40531-limited-ed-retired-sealed)
+- [LEGO 76100 Royal Talon Fighter Attack Sealed](https://bestdeals4u.trade/post/lego-marvel-royal-talon-fighter-attack-76100-new-sealed)
 
 ### 🃏 Pokémon Cards
+- [Blastoise Base Set Holo 3/102 - A Collectible Gem](https://bestdeals4u.trade/post/pokemon-card-blastoise-base-set-holo-3-102)
 - [Market Review: 1999 Pokemon Base Set Ninetales Holo #12 PSA 7](https://bestdeals4u.trade/post/1999-pokemon-base-set-ninetales-holo-12-psa-7)
-- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
+
+### 🎮 Video Games
+- [Market Review: Sega Genesis HERZOG ZWEI Wata 9.6 Factory Sealed](https://bestdeals4u.trade/post/sega-genesis-herzog-zwei-wata-9-6-a-new-factory-sealed-game-vga-cgc-rare)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
