@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Buckbeak #103 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-harry-potter-buckbeak-flocked-hot-topic-exclusive-103)
 
 ### 🧱 LEGO
+- [LEGO 60107 Fire Ladder Truck Sealed](https://bestdeals4u.trade/post/lego-city-fire-ladder-truck-60107-new-and-sealed-box-retired-from-2016)
 - [LEGO 21018 United Nations Headquarters Sealed](https://bestdeals4u.trade/post/lego-architecture-united-nations-headquarters-21018-new-sealed-retired-set)
-- [LEGO 40496 Voldemort Nagini & Bellatrix Sealed](https://bestdeals4u.trade/post/lego-40496-harry-potter-brickheadz-voldemort-nagini-bellatrix-retired-sealed-new)
 
 ### 🃏 Pokémon Cards
 - [Blastoise Base Set Holo 3/102 - A Collectible Gem](https://bestdeals4u.trade/post/pokemon-card-blastoise-base-set-holo-3-102)
