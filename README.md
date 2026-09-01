@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Is This Minnesota Twins Team 1979 Topps PSA 10 Graded Gem Actually a Good Value?](https://bestdeals4u.trade/post/minnesota-twins-team-1979-topps-baseball-card-41-psa-10-graded-gem-mint)
-- [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-speckle-refractor-299-cooper-pratt-psa-10-auto-0c3e)
+- [Raimel Tapia 2014 Bowman BGS 10](https://bestdeals4u.trade/post/2014-bowman-blue-wave-refractor-7-50-raimel-tapia-bgs-10-pristine-auto-c6i)
+- [Onelki Garcia 2014 Topps Finest RC BGS 9.5](https://bestdeals4u.trade/post/2014-finest-rookie-atomic-refractor-1-5-onelki-garcia-bgs-9-5-gem-mint-auto-0o9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Buckbeak #103 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-harry-potter-buckbeak-flocked-hot-topic-exclusive-103)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
 
 ### 🧱 LEGO
-- [LEGO 10582 Forest: Animals Sealed](https://bestdeals4u.trade/post/lego-duplo-forest-animals-10582-new-in-sealed-box-retired)
-- [LEGO 75214 Anakin's Jedi Starfighter Sealed](https://bestdeals4u.trade/post/brand-new-lego-star-wars-anakin-s-jedi-starfighter-75214-sealed-retired-2020)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
 - [Blastoise Base Set Holo 3/102 - A Collectible Gem](https://bestdeals4u.trade/post/pokemon-card-blastoise-base-set-holo-3-102)
