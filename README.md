@@ -40,16 +40,15 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Onelki Garcia 2014 Topps Finest RC BGS 9.5](https://bestdeals4u.trade/post/2014-finest-rookie-atomic-refractor-1-5-onelki-garcia-bgs-9-5-gem-mint-auto-0o9)
 
 ### 🧸 Funko Pops
+- [FUNKO POP! Vinyl Heroes RARE DC Universe #07 Superman Metallic Chase [VAULTED] - Is $220 undervalued?](https://bestdeals4u.trade/post/funko-pop-vinyl-heroes-rare-dc-universe-07-superman-metallic-chase-vaulted)
 - [Funko Pop, Buckbeak #103 Flocked Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-harry-potter-buckbeak-flocked-hot-topic-exclusive-103)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 21018 United Nations Headquarters Sealed](https://bestdeals4u.trade/post/lego-architecture-united-nations-headquarters-21018-new-sealed-retired-set)
+- [LEGO 40496 Voldemort Nagini & Bellatrix Sealed](https://bestdeals4u.trade/post/lego-40496-harry-potter-brickheadz-voldemort-nagini-bellatrix-retired-sealed-new)
 
 ### 🃏 Pokémon Cards
 - [Blastoise Base Set Holo 3/102 - A Collectible Gem](https://bestdeals4u.trade/post/pokemon-card-blastoise-base-set-holo-3-102)
-- [Market Review: 1999 Pokemon Base Set Ninetales Holo #12 PSA 7](https://bestdeals4u.trade/post/1999-pokemon-base-set-ninetales-holo-12-psa-7)
 
 ### 🎮 Video Games
 - [Market Review: Sega Genesis HERZOG ZWEI Wata 9.6 Factory Sealed](https://bestdeals4u.trade/post/sega-genesis-herzog-zwei-wata-9-6-a-new-factory-sealed-game-vga-cgc-rare)
