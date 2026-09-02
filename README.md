@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Matt Price 2010 Donruss Elite Extra Edition RC BGS 9.5](https://bestdeals4u.trade/post/2010-donruss-elite-extra-edition-rookie-11-25-matt-price-180-bgs-9-5-auto-0s3)
-- [Robert Hassell III 2020 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2020-bowman-draft-chrome-robert-hassell-purple-auto-250-psa-9-refractor-padres)
+- [Trey Supak 2014 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-draft-chrome-pick-green-refractor-81-99-trey-supak-bgs-9-5-auto-2a9)
+- [Is Bowman 1st Jose Abreu Rookie Card BGS GEM 9.5 White Sox (f3) Priced Fairly at $12.20?](https://bestdeals4u.trade/post/2014-bowman-1st-jose-abreu-rc-bgs-gem-9-5-bp17-white-sox-baseball-card-f3)
 
 ### 🧸 Funko Pops
 - [Market Review: Funko Pop! Vinyl Marvel Venom Chase (Glows in the Dark) #749](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-venom-chase-glows-in-the-dark-exclusive-749)
 - [FUNKO POP! Vinyl Heroes RARE DC Universe #07 Superman Metallic Chase [VAULTED] - Is $220 undervalued?](https://bestdeals4u.trade/post/funko-pop-vinyl-heroes-rare-dc-universe-07-superman-metallic-chase-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO 76400 Hogwarts Carriage and Thestrals Sealed](https://bestdeals4u.trade/post/lego-harry-potter-76400-hogwarts-carriage-and-thestrals-retired-sealed-nib)
+- [LEGO 40622 Disney 100th Celebration Sealed](https://bestdeals4u.trade/post/lego-brickheadz-disney-100th-celebration-40622-new-in-sealed-box-retired)
 
 ### 🃏 Pokémon Cards
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
