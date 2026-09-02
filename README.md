@@ -44,12 +44,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
+- [LEGO 76216 Iron Man Armoury Sealed](https://bestdeals4u.trade/post/lego-76216-marvel-iron-man-armoury-new-brand-sealed-superheroes-retired)
 - [LEGO 75302 Imperial Shuttle Sealed](https://bestdeals4u.trade/post/lego-star-wars-imperial-shuttle-75302-retired-set-new-and-sealed-box)
-- [LEGO 79002 Attack of the Wargs Sealed](https://bestdeals4u.trade/post/lego-the-hobbit-attack-of-the-wargs-79002-new-in-original-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
+
+### 🎮 Video Games
+- [Market Review: The Settlers Rise of an Empire PC Complete in Box](https://bestdeals4u.trade/post/the-settlers-rise-of-an-empire-pc-complete-in-box)
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
