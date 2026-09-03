@@ -36,19 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Clayton Blackburn 2013 Bowman BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-gold-refractor-36-50-clayton-blackburn-bgs-9-5-gem-mint-auto-5c9)
+- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
+- [Bryce Johnson 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/2023-topps-chrome-bryce-johnson-rookie-auto-sgc-10-10-gem-mint-giants-rc)
 
 ### 🧸 Funko Pops
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 - [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 76418 Advent Calendar 2023 Sealed](https://bestdeals4u.trade/post/lego-76418-harry-potter-advent-calendar-retired-sealed-free-shipping)
-- [LEGO Ideas: Family Tree Building Set 21346, 1040 pieces, Set sealed at $71.07](https://bestdeals4u.trade/post/new-sealed-lego-ideas-family-tree-building-set-21346-1040-pieces-retired-set)
+- [LEGO 40761 LOTR Smeagol & Deagol GWP, in Sealed](https://bestdeals4u.trade/post/lego-lotr-smeagol-deagol-gwp-set-40761-brand-new-in-sealed-box-2)
+- [LEGO 70401 Gold Getaway Sealed](https://bestdeals4u.trade/post/lego-castle-gold-getaway-70401-new-sealed-box-retired)
 
 ### 🃏 Pokémon Cards
+- [Mewtwo Holo BGS 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1999-pokemon-base-shadowless-10-mewtwo-holo-r-bgs-8-nm-mt)
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
-- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
