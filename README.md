@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
-- [Bryce Johnson 2023 Topps Chrome RC SGC 10](https://bestdeals4u.trade/post/2023-topps-chrome-bryce-johnson-rookie-auto-sgc-10-10-gem-mint-giants-rc)
+- [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
+- [Lenyn Sosa 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-lenyn-sosa-1st-bowman-yellow-refractor-auto-gem-mint-psa-10-cpa-ls)
 
 ### 🧸 Funko Pops
+- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
-- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 40761 LOTR Smeagol & Deagol GWP, in Sealed](https://bestdeals4u.trade/post/lego-lotr-smeagol-deagol-gwp-set-40761-brand-new-in-sealed-box-2)
-- [LEGO 70401 Gold Getaway Sealed](https://bestdeals4u.trade/post/lego-castle-gold-getaway-70401-new-sealed-box-retired)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO 9440 Venomari Shrine Sealed](https://bestdeals4u.trade/post/lego-ninjago-9440-venomari-shrine-new-factory-sealed-retired-set-2012)
 
 ### 🃏 Pokémon Cards
+- [Koga's Ditto Holo PSA 8 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2000-pokemon-gym-challenge-1st-edition-10-koga-s-ditto-holo-psa-8-nm-mt)
 - [Mewtwo Holo BGS 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1999-pokemon-base-shadowless-10-mewtwo-holo-r-bgs-8-nm-mt)
-- [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
