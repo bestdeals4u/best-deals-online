@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
-- [Cavan Biggio 2016 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2016-bowman-draft-orange-refractor-4-25-cavan-biggio-psa-10-gem-mt-auto-12kh)
+- [Clayton Blackburn 2013 Bowman BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-gold-refractor-36-50-clayton-blackburn-bgs-9-5-gem-mint-auto-5c9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
-- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
+
+### 🧱 LEGO
+- [LEGO 76418 Advent Calendar 2023 Sealed](https://bestdeals4u.trade/post/lego-76418-harry-potter-advent-calendar-retired-sealed-free-shipping)
+- [LEGO Ideas: Family Tree Building Set 21346, 1040 pieces, Set sealed at $71.07](https://bestdeals4u.trade/post/new-sealed-lego-ideas-family-tree-building-set-21346-1040-pieces-retired-set)
 
 ### 🃏 Pokémon Cards
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
-- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese-3)
+- [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
+- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
-- [Monster Farm 1997 Sony PlayStation 1 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/1997-ps1-monster-farm-graded-cgc-9-9-a-y-fold-sealed-playstation-tecmo-japan-jp)
-- [Beach Spikers Virtua Beach Volleyball Gamecube Ita Nintendo for Nintendo GameCube Complete](https://bestdeals4u.trade/post/beach-spikers-virtua-beach-volleyball-gamecube-complete-ita-nintendo)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [Resident Evil Zero GameCube - Black Label - Works - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/resident-evil-zero-gamecube-authentic-black-label-cib-tested-works)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
