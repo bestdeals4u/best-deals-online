@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: Duane Pillette 1954 Topps PSA 4 Card #107](https://bestdeals4u.trade/post/duane-pillette-psa-4-1954-topps-baltimore-orioles-baseball-set-card-107)
-- [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
+- [Wyatt Langford 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-wyatt-langford-magenta-purple-lava-lamp-rc-auto-173-299-psa-9)
+- [Daniel Hudson 2009 Bowman Sterling BGS 9.5](https://bestdeals4u.trade/post/2009-bowman-sterling-gold-refractor-39-50-daniel-hudson-dan-bgs-9-5-auto-2u8)
 
 ### 🧸 Funko Pops
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
-- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO (10297) Creator Expert - Boutique Hotel - Modular Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/lego-10297-creator-expert-boutique-hotel-modular-sealed-brand-new)
+- [LEGO 75396 Desert Skiff & Sarlacc Pit Sealed](https://bestdeals4u.trade/post/lego-75396-desert-skiff-sarlacc-pit-star-wars-set-retired-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
-- [Koga's Ditto Holo PSA 8 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/2000-pokemon-gym-challenge-1st-edition-10-koga-s-ditto-holo-psa-8-nm-mt)
-- [Mewtwo Holo BGS 8 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/1999-pokemon-base-shadowless-10-mewtwo-holo-r-bgs-8-nm-mt)
+- [Generations Charizard PSA 9 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2016-xy-generations-charizard-rc5-rc32-holo-radiant-collection-psa-9-nm)
+- [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
 
 ### 🎮 Video Games
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
+- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
