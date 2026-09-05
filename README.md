@@ -44,12 +44,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Is Vinyl: Marvel - The Amazing Spider-Man Funko Pop #1159 Priced Fairly at $14.00?](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-the-amazing-spider-man-1159)
 
 ### 🧱 LEGO
+- [LEGO 7111 Droid Fighter Sealed](https://bestdeals4u.trade/post/lego-vulture-droid-fighter-7111-star-wars-brand-new-sealed-box-vintage-1999-toy)
 - [LEGO 75190 Star Wars First Order Star Destroyer Sealed](https://bestdeals4u.trade/post/brand-new-factory-sealed-lego-star-wars-75190-first-order-star-destroyer)
-- [LEGO 40483 Luke Skywalker’s Lightsaber Sealed](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-s-lightsaber-40483-new-sealed-set)
 
 ### 🃏 Pokémon Cards
+- [Market Review: 1999 Pokémon Game Gyarados Holo PSA 7](https://bestdeals4u.trade/post/1999-pok-mon-game-gyarados-holo-psa-7)
 - [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
-- [PSA 10 Haxorus 057/076 Megalo Cannon BW9 1st Ed Japanese Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/psa-10-haxorus-057-076-megalo-cannon-bw9-1st-ed-japanese-holo-rare-pokemon-card)
 
 ### 🎮 Video Games
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
