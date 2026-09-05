@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [LENYN SOSA 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-green-shimmer-refractor-35-99-lenyn-sosa-cpa-ls-psa-9-mint-auto-2l4)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Topps Baseball Chris Arnold San Francisco Giants Card High Number (c) Price Check - Worth It or Not?](https://bestdeals4u.trade/post/1973-topps-baseball-chris-arnold-san-francisco-giants-card-high-number-584-c)
+- [Logan O'Hoppe 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/logan-o-hoppe-2023-topps-chrome-rc-auto-purple-refractor-250-psa-10)
 
 ### 🧸 Funko Pops
+- [Is Vinyl: Marvel - The Amazing Spider-Man Funko Pop #1159 Priced Fairly at $14.00?](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-the-amazing-spider-man-1159)
 - [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
-- [LEGO Ideas 21303 Wall - E Original WALL E Robot at $269.95, below recent comps](https://bestdeals4u.trade/post/new-lego-ideas-21303-wall-e-retired-original-wall-e-robot-nib-sealed)
+- [LEGO Icons Jazz Club 10312 New Sealed Modular](https://bestdeals4u.trade/post/lego-icons-jazz-club-10312-new-sealed-modular-retired-free-shipping)
+- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
 
 ### 🃏 Pokémon Cards
+- [PSA 10 Haxorus 057/076 Megalo Cannon BW9 1st Ed Japanese Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/psa-10-haxorus-057-076-megalo-cannon-bw9-1st-ed-japanese-holo-rare-pokemon-card)
 - [Graded JP PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/graded-2023-pokemon-jp-sv2a-charizard-ex-185-super-rare-japanese-card-psa-10)
-- [Generations Charizard PSA 9 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2016-xy-generations-charizard-rc5-rc32-holo-radiant-collection-psa-9-nm)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
