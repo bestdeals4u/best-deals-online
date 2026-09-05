@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Topps Baseball Chris Arnold San Francisco Giants Card High Number (c) Price Check - Worth It or Not?](https://bestdeals4u.trade/post/1973-topps-baseball-chris-arnold-san-francisco-giants-card-high-number-584-c)
-- [Logan O'Hoppe 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/logan-o-hoppe-2023-topps-chrome-rc-auto-purple-refractor-250-psa-10)
+- [Walker Buehler 2015 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2015-bowman-draft-chrome-pick-refractor-walker-buehler-bgs-9-5-gem-mint-auto-uk2)
+- [Corbin Carroll 2023 Chrome RC SGC 9.5](https://bestdeals4u.trade/post/2023-topps-chrome-corbin-carroll-ra-cca-auto-purple-refractor-250-rc-sgc-9-5)
 
 ### 🧸 Funko Pops
+- [Market Review: Funko Pop! X-Men: Wolverine ECCC 2026 Exclusive LE 5000](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-eccc-2026-exclusive-le-5000)
 - [Is Vinyl: Marvel - The Amazing Spider-Man Funko Pop #1159 Priced Fairly at $14.00?](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-the-amazing-spider-man-1159)
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 
 ### 🧱 LEGO
-- [LEGO Icons Jazz Club 10312 New Sealed Modular](https://bestdeals4u.trade/post/lego-icons-jazz-club-10312-new-sealed-modular-retired-free-shipping)
-- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
+- [LEGO 75190 Star Wars First Order Star Destroyer Sealed](https://bestdeals4u.trade/post/brand-new-factory-sealed-lego-star-wars-75190-first-order-star-destroyer)
+- [LEGO 40483 Luke Skywalker’s Lightsaber Sealed](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-s-lightsaber-40483-new-sealed-set)
 
 ### 🃏 Pokémon Cards
+- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
 - [PSA 10 Haxorus 057/076 Megalo Cannon BW9 1st Ed Japanese Holo Rare Pokemon Card – Market Review](https://bestdeals4u.trade/post/psa-10-haxorus-057-076-megalo-cannon-bw9-1st-ed-japanese-holo-rare-pokemon-card)
-- [Graded JP PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/graded-2023-pokemon-jp-sv2a-charizard-ex-185-super-rare-japanese-card-psa-10)
 
 ### 🎮 Video Games
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
