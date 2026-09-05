@@ -40,16 +40,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Corbin Carroll 2023 Chrome RC SGC 9.5](https://bestdeals4u.trade/post/2023-topps-chrome-corbin-carroll-ra-cca-auto-purple-refractor-250-rc-sgc-9-5)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 - [Market Review: Funko Pop! X-Men: Wolverine ECCC 2026 Exclusive LE 5000](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-eccc-2026-exclusive-le-5000)
-- [Is Vinyl: Marvel - The Amazing Spider-Man Funko Pop #1159 Priced Fairly at $14.00?](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-the-amazing-spider-man-1159)
 
 ### 🧱 LEGO
-- [LEGO 7111 Droid Fighter Sealed](https://bestdeals4u.trade/post/lego-vulture-droid-fighter-7111-star-wars-brand-new-sealed-box-vintage-1999-toy)
-- [LEGO 75190 Star Wars First Order Star Destroyer Sealed](https://bestdeals4u.trade/post/brand-new-factory-sealed-lego-star-wars-75190-first-order-star-destroyer)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
+- [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
 - [Market Review: 1999 Pokémon Game Gyarados Holo PSA 7](https://bestdeals4u.trade/post/1999-pok-mon-game-gyarados-holo-psa-7)
-- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
 
 ### 🎮 Video Games
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
