@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Walker Buehler 2015 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2015-bowman-draft-chrome-pick-refractor-walker-buehler-bgs-9-5-gem-mint-auto-uk2)
-- [Corbin Carroll 2023 Chrome RC SGC 9.5](https://bestdeals4u.trade/post/2023-topps-chrome-corbin-carroll-ra-cca-auto-purple-refractor-250-rc-sgc-9-5)
+- [Yiddi Cappe 2021 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-refractor-223-499-yiddi-cappe-psa-9-mint-auto-00rs)
+- [Juan Corniel 2023 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-orange-wave-refractor-auto-juan-corniel-25-dbacks-psa-9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 - [Market Review: Funko Pop! X-Men: Wolverine ECCC 2026 Exclusive LE 5000](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-eccc-2026-exclusive-le-5000)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
+- [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
 
 ### 🃏 Pokémon Cards
+- [Dark Houndoom-Holo PSA 6 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/2002-pokemon-neo-destiny-7-dark-houndoom-holo-psa-6)
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
-- [Market Review: 1999 Pokémon Game Gyarados Holo PSA 7](https://bestdeals4u.trade/post/1999-pok-mon-game-gyarados-holo-psa-7)
 
 ### 🎮 Video Games
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
