@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Manny Margot 2014 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-chrome-prospect-refractor-manny-margot-bgs-9-5-gem-mint-auto-2a9)
-- [Lucius Fox 2016 Bowman Platinum BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-platinum-presence-orange-25-lucius-fox-bgs-9-5-gem-mint-auto-g6p)
+- [Payton Henry 2019 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-47-99-payton-henry-psa-10-auto-8d2)
+- [Austin Dean 2015 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2015-bowman-chrome-prospects-gold-refractor-29-50-austin-dean-psa-9-auto-4al)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 10242 Mini Cooper Sealed](https://bestdeals4u.trade/post/lego-creator-expert-mini-cooper-10242-retired-sealed-excellent)
-- [LEGO 7049 Alien Striker Sealed](https://bestdeals4u.trade/post/lego-7049-alien-striker-conquest-adu-soldier-trooper-vintage-new-sealed-box)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-2)
-- [Dark Houndoom-Holo PSA 6 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/2002-pokemon-neo-destiny-7-dark-houndoom-holo-psa-6)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
 
 ### 🎮 Video Games
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
