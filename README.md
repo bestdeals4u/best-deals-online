@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Thinking About Buying LUIS ROBERT 2020 Topps Living White Sox Rookie Card Rookie PSA 10 GEM? Read This First](https://bestdeals4u.trade/post/luis-robert-2020-topps-living-white-sox-rc-rookie-baseball-card-psa-10-gem-mint)
-- [Dustin Harris 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-182-499-dustin-harris-psa-9-mint-auto-10no)
+- [Manny Margot 2014 Bowman Chrome BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-chrome-prospect-refractor-manny-margot-bgs-9-5-gem-mint-auto-2a9)
+- [Lucius Fox 2016 Bowman Platinum BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-platinum-presence-orange-25-lucius-fox-bgs-9-5-gem-mint-auto-g6p)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
