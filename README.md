@@ -36,20 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Adeiny Hechavarria 2013 Topps Chrome RC BGS 9](https://bestdeals4u.trade/post/2013-chrome-pink-refractor-rookie-4-5-adeiny-hechavarria-bgs-9-mint-auto-3p4-2)
-- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
+- [Payton Henry 2019 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-47-99-payton-henry-psa-10-auto-8d2)
+- [Brennan Malone 2019 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2019-bowman-draft-chrome-pick-blue-refractor-150-brennan-malone-psa-10-auto-ya6)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 - [Market Review: Funko Pop Demon Slayer Muzan Kibutsuji #2196 Metallic ECCC 2026 Exclusive](https://bestdeals4u.trade/post/funko-pop-demon-slayer-muzan-kibutsuji-2196-metallic-eccc-2026-exclusive)
-- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
+- [LEGO 7250 Clone Scout Walker Sealed](https://bestdeals4u.trade/post/new-lego-star-wars-7250-clone-scout-walker-sealed-box-free-shipping)
 
 ### 🃏 Pokémon Cards
+- [Game PSA 7 at $65.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/1999-pokemon-game-11-nidoking-holo-psa-7)
 - [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+
+### 🎮 Video Games
+- [Market Review: MATO ANOMALIES NEW FACTORY SEALED 2023 Authentic Xbox Series X S One](https://bestdeals4u.trade/post/mato-anomalies-new-factory-sealed-2023-authentic-xbox-series-x-s-one)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
