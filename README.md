@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Payton Henry 2019 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-47-99-payton-henry-psa-10-auto-8d2)
-- [Brennan Malone 2019 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2019-bowman-draft-chrome-pick-blue-refractor-150-brennan-malone-psa-10-auto-ya6)
+- [Thinking About Buying Shohei Ohtani 2021 Topps Now PSA 10 July MVP MLB - Collectib? Read This First](https://bestdeals4u.trade/post/shohei-ohtani-2021-topps-now-psa-10-july-mvp-mlb-baseball-card-rare-collectib)
+- [Joey Gallo 2012 Bowman Sterling PSA 9](https://bestdeals4u.trade/post/2012-bowman-sterling-prospect-black-refractor-4-25-joey-gallo-psa-9-auto-ws9)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 - [Market Review: Funko Pop Demon Slayer Muzan Kibutsuji #2196 Metallic ECCC 2026 Exclusive](https://bestdeals4u.trade/post/funko-pop-demon-slayer-muzan-kibutsuji-2196-metallic-eccc-2026-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
-- [LEGO 7250 Clone Scout Walker Sealed](https://bestdeals4u.trade/post/new-lego-star-wars-7250-clone-scout-walker-sealed-box-free-shipping)
+- [LEGO Ideas 21303 WALL-E | New Factory-Sealed Retired Set](https://bestdeals4u.trade/post/lego-ideas-21303-wall-e-brand-new-sealed-retired-rare)
+- [LEGO 40751 Legolas and Gimli Sealed](https://bestdeals4u.trade/post/lego-40751-lord-of-the-rings-legolas-gimli-brickheadz-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Game PSA 7 at $65.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/1999-pokemon-game-11-nidoking-holo-psa-7)
