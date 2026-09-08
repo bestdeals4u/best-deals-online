@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Thinking About Buying Shohei Ohtani 2021 Topps Now PSA 10 July MVP MLB - Collectib? Read This First](https://bestdeals4u.trade/post/shohei-ohtani-2021-topps-now-psa-10-july-mvp-mlb-baseball-card-rare-collectib)
-- [Joey Gallo 2012 Bowman Sterling PSA 9](https://bestdeals4u.trade/post/2012-bowman-sterling-prospect-black-refractor-4-25-joey-gallo-psa-9-auto-ws9)
+- [Denzer Guzman 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-228-499-denzer-guzman-psa-9-mint-auto-03ox-2)
+- [Blake Beavan 2007 Bowman Draft Picks & Prospects RC BGS 9.5](https://bestdeals4u.trade/post/2007-bowman-draft-rookie-orange-refractor-25-blake-beavan-bgs-9-5-auto-0s3)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 - [Market Review: Funko Pop Demon Slayer Muzan Kibutsuji #2196 Metallic ECCC 2026 Exclusive](https://bestdeals4u.trade/post/funko-pop-demon-slayer-muzan-kibutsuji-2196-metallic-eccc-2026-exclusive)
 
 ### 🧱 LEGO
-- [LEGO Ideas 21303 WALL-E | New Factory-Sealed Retired Set](https://bestdeals4u.trade/post/lego-ideas-21303-wall-e-brand-new-sealed-retired-rare)
-- [LEGO 40751 Legolas and Gimli Sealed](https://bestdeals4u.trade/post/lego-40751-lord-of-the-rings-legolas-gimli-brickheadz-new-sealed-retired)
+- [Market Review: LEGO Star Wars Nebulon-B Frigate 77904 (New Factory Sealed)](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-new-factory-sealed)
+- [LEGO 6250897 San Francisco Sealed](https://bestdeals4u.trade/post/lego-architecture-21043-san-francisco-skyline-new-factory-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Game PSA 7 at $65.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/1999-pokemon-game-11-nidoking-holo-psa-7)
