@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Payton Henry 2019 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-47-99-payton-henry-psa-10-auto-8d2)
 - [Denzer Guzman 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-228-499-denzer-guzman-psa-9-mint-auto-03ox-2)
-- [Blake Beavan 2007 Bowman Draft Picks & Prospects RC BGS 9.5](https://bestdeals4u.trade/post/2007-bowman-draft-rookie-orange-refractor-25-blake-beavan-bgs-9-5-auto-0s3)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
