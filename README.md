@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 
 ### 🧱 LEGO
+- [LEGO 43227 Villain Icons Sealed](https://bestdeals4u.trade/post/lego-43227-disney-villain-icons-1540-pieces-set-new-sealed-in-box)
 - [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
