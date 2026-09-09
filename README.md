@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Payton Henry 2019 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2019-bowman-chrome-hta-green-atomic-refractor-47-99-payton-henry-psa-10-auto-8d2)
-- [Denzer Guzman 2022 Bowman PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-228-499-denzer-guzman-psa-9-mint-auto-03ox-2)
+- [Thinking About Buying Shohei Ohtani 2021 Topps Now PSA 10 July MVP MLB - Collectib? Read This First](https://bestdeals4u.trade/post/shohei-ohtani-2021-topps-now-psa-10-july-mvp-mlb-baseball-card-rare-collectib)
+- [Adeiny Hechavarria 2013 Topps Chrome RC BGS 9](https://bestdeals4u.trade/post/2013-chrome-pink-refractor-rookie-4-5-adeiny-hechavarria-bgs-9-mint-auto-3p4)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Cayde-6 #962 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-destiny-cayde-6-glow-bungie-store-exclusive-962)
 - [Market Review: Funko Pop Demon Slayer Muzan Kibutsuji #2196 Metallic ECCC 2026 Exclusive](https://bestdeals4u.trade/post/funko-pop-demon-slayer-muzan-kibutsuji-2196-metallic-eccc-2026-exclusive)
 
 ### 🧱 LEGO
-- [Market Review: LEGO Star Wars Nebulon-B Frigate 77904 (New Factory Sealed)](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-new-factory-sealed)
-- [LEGO 6250897 San Francisco Sealed](https://bestdeals4u.trade/post/lego-architecture-21043-san-francisco-skyline-new-factory-sealed-retired)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [Market Review: LEGO BATMAN THE ANIMATED SERIES GOTHAM CITY 76271 BRAND NEW SEALED](https://bestdeals4u.trade/post/lego-batman-the-animated-series-gotham-city-76271-brand-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Game PSA 7 at $65.98 - Buy Now or Wait?](https://bestdeals4u.trade/post/1999-pokemon-game-11-nidoking-holo-psa-7)
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
+- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
+- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
 - [Market Review: MATO ANOMALIES NEW FACTORY SEALED 2023 Authentic Xbox Series X S One](https://bestdeals4u.trade/post/mato-anomalies-new-factory-sealed-2023-authentic-xbox-series-x-s-one)
