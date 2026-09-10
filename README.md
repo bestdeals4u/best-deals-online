@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Welbyn Francisca 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-welbyn-francisca-prospect-purple-refractor-auto-250-psa-10)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Welbyn Francisca 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-welbyn-francisca-prospect-purple-refractor-auto-250-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
 
 ### 🧱 LEGO
-- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-3)
