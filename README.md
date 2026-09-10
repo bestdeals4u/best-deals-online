@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Welbyn Francisca 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-welbyn-francisca-prospect-purple-refractor-auto-250-psa-10)
+- [Thinking About Buying Topps Chrome NPB Nippon Baseball Aqua Refractor /199 Daika Asama Card PWE? Read This First](https://bestdeals4u.trade/post/2021-topps-chrome-npb-nippon-baseball-aqua-refractor-199-daika-asama-card-pwe)
+- [Landon Marceaux 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-landon-marceaux-1st-bowman-chrome-auto-black-refractor-75-psa)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
