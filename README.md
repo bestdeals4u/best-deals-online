@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Welbyn Francisca 2023 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-welbyn-francisca-prospect-purple-refractor-auto-250-psa-10)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Thinking About Buying Shohei Ohtani 2021 Topps Now PSA 10 July MVP MLB - Collectib? Read This First](https://bestdeals4u.trade/post/shohei-ohtani-2021-topps-now-psa-10-july-mvp-mlb-baseball-card-rare-collectib)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
@@ -48,8 +48,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
 
 ### 🃏 Pokémon Cards
+- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-3)
 - [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
-- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
 - [Market Review: MATO ANOMALIES NEW FACTORY SEALED 2023 Authentic Xbox Series X S One](https://bestdeals4u.trade/post/mato-anomalies-new-factory-sealed-2023-authentic-xbox-series-x-s-one)
