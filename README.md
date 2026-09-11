@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Anfernee Grier 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-green-refractor-81-99-anfernee-grier-bgs-9-5-gem-mint-auto-4k8)
 - [Thinking About Buying Topps Chrome NPB Nippon Baseball Aqua Refractor /199 Daika Asama Card PWE? Read This First](https://bestdeals4u.trade/post/2021-topps-chrome-npb-nippon-baseball-aqua-refractor-199-daika-asama-card-pwe)
-- [Landon Marceaux 2021 Bowman Draft PSA 9](https://bestdeals4u.trade/post/2021-bowman-draft-landon-marceaux-1st-bowman-chrome-auto-black-refractor-75-psa)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 - [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
 
 ### 🧱 LEGO
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 75281 Anakin's Jedi Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75281-anakin-s-jedi-interceptor-brand-new-sealed-retired-rare-3)
 
 ### 🃏 Pokémon Cards
 - [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint-2)
