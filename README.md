@@ -37,19 +37,21 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### ⚾ Baseball Cards
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Ezequiel Tovar 2023 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/ezequiel-tovar-auto-topps-chrome-2023-blue-refractor-rc-150-psa-9-mint-raet)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, Jim, Slipknot #378](https://bestdeals4u.trade/post/vaulted-funko-pop-rocks-slipknot-jim-root-378-protector)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
-- [LEGO Ideas 21303 WALL-E | New Factory-Sealed Retired Set](https://bestdeals4u.trade/post/lego-ideas-21303-wall-e-brand-new-sealed-retired-rare)
+- [LEGO 10355 Blacktron Renegade Sealed](https://bestdeals4u.trade/post/retired-lego-blacktron-renegade-10355-brand-new-and-sealed-ships-fast)
 - [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
 
 ### 🃏 Pokémon Cards
-- [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint-2)
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-3)
+- [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
+- [Is Shining Steelix PSA 5 Priced Fairly at $361.08?](https://bestdeals4u.trade/post/psa-5-shining-steelix-112-105-neo-destiny-pokemon-description)
+
+### 🎮 Video Games
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
