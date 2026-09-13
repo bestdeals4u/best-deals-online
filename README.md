@@ -43,12 +43,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Woodsy Owl #96 Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-woodsy-owl-ad-icons-flocked-limited-edition-96)
 
 ### 🧱 LEGO
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 - [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
 
 ### 🃏 Pokémon Cards
-- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
-- [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
