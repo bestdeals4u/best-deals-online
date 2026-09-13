@@ -43,12 +43,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Woodsy Owl #96 Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-woodsy-owl-ad-icons-flocked-limited-edition-96)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
 
 ### 🃏 Pokémon Cards
+- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
 - [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
-- [Is Shining Steelix PSA 5 Priced Fairly at $361.08?](https://bestdeals4u.trade/post/psa-5-shining-steelix-112-105-neo-destiny-pokemon-description)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
