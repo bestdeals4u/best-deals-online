@@ -36,19 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+- [Mac Horvath 2023 Draft RC PSA 10](https://bestdeals4u.trade/post/mac-horvath-2023-bowman-draft-purple-refractor-chrome-auto-1st-rc-250-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, Woodsy Owl #96 Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-woodsy-owl-ad-icons-flocked-limited-edition-96)
+- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
-- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
+- [LEGO 40553 Woody and Bo Peep Sealed](https://bestdeals4u.trade/post/lego-40553-brickheadz-woody-and-bo-peep-brick-heads-new-sealed-retired)
+- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
+- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-2)
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
