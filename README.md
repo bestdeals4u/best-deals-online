@@ -44,12 +44,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 75276 Stormtrooper Helmet Sealed](https://bestdeals4u.trade/post/new-in-factory-sealed-box-lego-star-wars-75276-stormtrooper-helmet-retired)
+- [LEGO 76430 Hogwarts Castle Owlery Sealed](https://bestdeals4u.trade/post/lego-76430-harry-potter-hogwarts-castle-owlery-sealed-new-retired-set)
 
 ### 🃏 Pokémon Cards
+- [CGC 10 Umbreon ex SIR Alt Art](https://bestdeals4u.trade/post/cgc-10-umbreon-ex-prismatic-evolutions-sir-alt-art-pokemon-card-161-gem-mint)
 - [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-2)
-- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
