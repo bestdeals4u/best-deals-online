@@ -48,8 +48,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [LEGO 76430 Hogwarts Castle Owlery Sealed](https://bestdeals4u.trade/post/lego-76430-harry-potter-hogwarts-castle-owlery-sealed-new-retired-set)
 
 ### 🃏 Pokémon Cards
+- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese)
 - [CGC 10 Umbreon ex SIR Alt Art](https://bestdeals4u.trade/post/cgc-10-umbreon-ex-prismatic-evolutions-sir-alt-art-pokemon-card-161-gem-mint)
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx-2)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
