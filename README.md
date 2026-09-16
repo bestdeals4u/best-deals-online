@@ -40,8 +40,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
 
 ### 🧸 Funko Pops
+- [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
 - [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
-- [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
 
 ### 🧱 LEGO
 - [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
