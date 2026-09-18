@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Brett Wallace 2011 Topps Finest RC BGS 9](https://bestdeals4u.trade/post/topps-2011-finest-brett-wallace-rookie-auto-green-refractor-199-bgs-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Sigmund #853 Exclusive](https://bestdeals4u.trade/post/funko-pop-sigmund-853-sdcc-exclusive-sigmund-and-the-sea-monsters-protector)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, Mecha Frieza #845 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-dragon-ball-z-mecha-frieza-845-glow-gamestop-exclusive-figure)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
+- [LEGO 75305 Scout Trooper Helmet Sealed](https://bestdeals4u.trade/post/lego-75305-star-wars-scout-trooper-helmet-retired-new-sealed)
+- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
