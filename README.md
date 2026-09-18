@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
+- [LEGO 76195 Spider-Man’s Drone Duel Sealed](https://bestdeals4u.trade/post/lego-marvel-spider-man-s-drone-duel-76195-free-shipping-new-sealed-retired)
 - [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
 
 ### 🃏 Pokémon Cards
 - [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
