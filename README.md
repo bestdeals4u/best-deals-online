@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Lazaro Montes 2023 Bowman RC BGS 9](https://bestdeals4u.trade/post/lazaro-montes-2023-bowman-chrome-blue-lunar-crater-refractor-auto-150-bgs-9-rc)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Brett Wallace 2011 Topps Finest RC BGS 9](https://bestdeals4u.trade/post/topps-2011-finest-brett-wallace-rookie-auto-green-refractor-199-bgs-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Sigmund #853 Exclusive](https://bestdeals4u.trade/post/funko-pop-sigmund-853-sdcc-exclusive-sigmund-and-the-sea-monsters-protector)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
+- [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
 
 ### 🧱 LEGO
-- [LEGO 75305 Scout Trooper Helmet Sealed](https://bestdeals4u.trade/post/lego-75305-star-wars-scout-trooper-helmet-retired-new-sealed)
 - [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
 
 ### 🃏 Pokémon Cards
 - [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
-- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
 
 ### 🎮 Video Games
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
+- [Is This Jimmy Neutron: Boy Genius (2002), Working for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/jimmy-neutron-boy-genius-nintendo-gamecube-2002-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
