@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 - [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
-- [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
 
 ### 🧱 LEGO
-- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
