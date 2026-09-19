@@ -48,7 +48,7 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
 
 ### 🃏 Pokémon Cards
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
+- [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
 
 ### 🎮 Video Games
 - [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
