@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
 - [Lazaro Montes 2023 Bowman RC BGS 9](https://bestdeals4u.trade/post/lazaro-montes-2023-bowman-chrome-blue-lunar-crater-refractor-auto-150-bgs-9-rc)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-2)
 - [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
+- [LEGO 42136 John Deere 9620R 4WD Tractor Sealed](https://bestdeals4u.trade/post/lego-technic-42136-john-deer-9620r-4wd-tractor-retired-set-brand-new-sealed)
+- [LEGO 17101 BOOST Creative Toolbox Sealed](https://bestdeals4u.trade/post/lego-17101-boost-creative-toolbox-set-retired-stem-coding-kit-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint)
