@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
 
 ### 🧱 LEGO
-- [LEGO 42136 John Deere 9620R 4WD Tractor Sealed](https://bestdeals4u.trade/post/lego-technic-42136-john-deer-9620r-4wd-tractor-retired-set-brand-new-sealed)
-- [LEGO 17101 BOOST Creative Toolbox Sealed](https://bestdeals4u.trade/post/lego-17101-boost-creative-toolbox-set-retired-stem-coding-kit-new-sealed)
+- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
 - [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese-3)
