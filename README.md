@@ -44,16 +44,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Vegeta #713 Exclusive GITD](https://bestdeals4u.trade/post/funko-pop-vegeta-powering-up-713-dragon-ball-z-chalice-exclusive-gitd)
 
 ### 🧱 LEGO
-- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
+- [LEGO 75100 First Order Snowspeeder Sealed](https://bestdeals4u.trade/post/lego-star-wars-first-order-snowspeeder-75100-episode-vii-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
 - [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
 - [Market Review: The Settlers Rise of an Empire PC Complete in Box](https://bestdeals4u.trade/post/the-settlers-rise-of-an-empire-pc-complete-in-box)
-- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
