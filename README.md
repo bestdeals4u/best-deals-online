@@ -36,19 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [CJ Abrams 2022 Bowman RC PSA 10](https://bestdeals4u.trade/post/2022-bowman-s-best-cj-abrams-rc-best-of-2022-gold-refractor-autograph-psa-10)
-- [Max Meyer 2023 Inception RC PSA 8](https://bestdeals4u.trade/post/max-meyer-miami-marlins-2023-topps-inception-rc-patch-auto-psa9-149-baseball)
+- [Ezequiel Tovar 2023 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/ezequiel-tovar-psa-9-2023-topps-chrome-rc-auto-rookie-orange-refractor-25-z2-2)
+- [Cam Smith 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-cam-smith-refractor-rc-auto-psa-10-astros)
 
 ### 🧸 Funko Pops
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
+- [Funko Pop, Wanda Maximoff #1216 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-wanda-maximoff-1216-entertainment-earth-exclusive-glow-marvel-vinyl)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 75207 Imperial Patrol Battle Pack Sealed](https://bestdeals4u.trade/post/lego-75207-star-wars-imperial-patrol-battle-pack-retired-sealed)
-- [LEGO 76285 Spider-Man's Mask Sealed](https://bestdeals4u.trade/post/new-sealed-lego-marvel-super-heroes-76285-spider-man-s-mask-helmet-retired-set)
-
-### 🎮 Video Games
-- [Mlb the Show 25 2024 Nintendo Switch Sealed](https://bestdeals4u.trade/post/mlb-the-show-25-nintendo-switch-brand-new-factory-sealed-us-version)
+- [LEGO 76005 Spider-Man: Daily Bugle Showdown Sealed](https://bestdeals4u.trade/post/lego-marvel-super-heroes-spider-man-daily-bugle-showdown-76005-new-sealed)
+- [LEGO 10317 Land Rover Classic Defender 90 Sealed](https://bestdeals4u.trade/post/lego-icons-land-rover-classic-defender-90-10317-new-in-sealed-box)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
