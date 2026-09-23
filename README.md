@@ -36,20 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Estevan Florial 2018 Bowman's Best PSA 10](https://bestdeals4u.trade/post/2018-bowman-s-best-atomic-refractor-25-estevan-florial-psa-10-gem-mt-auto-n0c)
-- [David Fletcher 2019 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2019-topps-chrome-rookie-refractor-499-david-fletcher-psa-10-gem-mt-auto-0i6p)
+- [Yanquiel Fernandez 2022 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/topps-2022-bowman-chrome-yanquiel-fernandez-rc-auto-speckle-refractor-299-psa-9)
+- [Sam Hilliard 2018 Bowman BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-gold-shimmer-refractor-41-50-sam-hilliard-bgs-9-5-gem-mint-auto-v9t)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-f2)
-- [Funko Pop, Buddy Elf #484 Chase](https://bestdeals4u.trade/post/funko-pop-vinyl-buddy-elf-elf-chase-limited-edition-484-movies-vinyl-figure)
+- [Funko Pop, ! Vinyl: #203 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-wwe-john-cena-walmart-exclusive-203-protector)
 
 ### 🧱 LEGO
-- [LEGO 75341 Luke Skywalker's Landspeeder Sealed](https://bestdeals4u.trade/post/retired-lego-star-wars-luke-skywalker-s-landspeeder-75341-new-sealed-packed)
-- [LEGO 21050 Studio Sealed](https://bestdeals4u.trade/post/lego-21050-architecture-architecture-studio-brand-new-sealed-box)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
+- [LEGO 77904 Nebulon-B Frigate Sealed](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-comic-con-exclusive-sealed-retired)
 
-### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
-- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
+### 🎮 Video Games
+- [Mlb the Show 25 2024 Nintendo Switch Sealed](https://bestdeals4u.trade/post/mlb-the-show-25-nintendo-switch-brand-new-factory-sealed-us-version)
+- [Yoshi's Cookie for SUPER NES Complete](https://bestdeals4u.trade/post/yoshi-s-cookie-super-nintendo-snes-complete-in-box-cib)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
