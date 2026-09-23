@@ -36,19 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Yanquiel Fernandez 2022 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/topps-2022-bowman-chrome-yanquiel-fernandez-rc-auto-speckle-refractor-299-psa-9)
-- [Sam Hilliard 2018 Bowman BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-gold-shimmer-refractor-41-50-sam-hilliard-bgs-9-5-gem-mint-auto-v9t)
+- [Jase Bowen 2023 Bowman PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-true-green-refractor-99-jase-bowen-cpa-jbn-auto-psa-10)
+- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, ! Vinyl: #203 Exclusive](https://bestdeals4u.trade/post/funko-pop-vinyl-wwe-john-cena-walmart-exclusive-203-protector)
+- [Funko Pop, ! Mark Hoppus #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted)
+- [Funko Pop, Spikey #933 Exclusive](https://bestdeals4u.trade/post/funko-pop-933-spikey-blacklight-killer-klowns-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
-- [LEGO 77904 Nebulon-B Frigate Sealed](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-comic-con-exclusive-sealed-retired)
+- [LEGO 75276 Stormtrooper Helmet Sealed](https://bestdeals4u.trade/post/new-in-factory-sealed-box-lego-star-wars-75276-stormtrooper-helmet-retired)
+- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
 
 ### 🎮 Video Games
-- [Mlb the Show 25 2024 Nintendo Switch Sealed](https://bestdeals4u.trade/post/mlb-the-show-25-nintendo-switch-brand-new-factory-sealed-us-version)
-- [Yoshi's Cookie for SUPER NES Complete](https://bestdeals4u.trade/post/yoshi-s-cookie-super-nintendo-snes-complete-in-box-cib)
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-2)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
