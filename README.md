@@ -47,6 +47,9 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [LEGO 42083 Bugatti Chiron Sealed](https://bestdeals4u.trade/post/lego-technic-bugatti-chiron-42083-retired-brand-new-factory-sealed)
 - [LEGO 71395 Super Mario 64 Question Mark Block Sealed](https://bestdeals4u.trade/post/lego-super-mario-64-question-mark-block-71395-new-factory-sealed)
 
+### 🃏 Pokémon Cards
+- [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
+
 ### 🎮 Video Games
 - [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
 - [Donkey Kong Country 3: Dixie Kong's Double Trouble! 1996 for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-3-snes-super-nintendo-complete-in-box)
