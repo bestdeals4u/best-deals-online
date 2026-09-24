@@ -37,7 +37,7 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### ⚾ Baseball Cards
 - [Jase Bowen 2023 Bowman PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-true-green-refractor-99-jase-bowen-cpa-jbn-auto-psa-10)
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+- [Hyeseong Kim 2025 Chrome Sapphire RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-sapphire-hyeseong-kim-rc-green-refractor-auto-99-psa-10)
 
 ### 🧸 Funko Pops
 - [Funko Pop, ! Mark Hoppus #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted)
