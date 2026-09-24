@@ -41,11 +41,10 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### 🧸 Funko Pops
 - [Funko Pop, ! Mark Hoppus #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted)
-- [Funko Pop, Spikey #933 Exclusive](https://bestdeals4u.trade/post/funko-pop-933-spikey-blacklight-killer-klowns-gamestop-exclusive-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 21019 The Eiffel Tower Sealed](https://bestdeals4u.trade/post/lego-architecture-eiffel-tower-21019-brand-new-sealed-retired-see-description)
-- [LEGO 42083 Bugatti Chiron Sealed](https://bestdeals4u.trade/post/lego-technic-bugatti-chiron-42083-retired-brand-new-factory-sealed)
+- [LEGO 75353 Endor Speeder Chase Diorama Sealed](https://bestdeals4u.trade/post/lego-star-wars-endor-speeder-chase-diorama-75353-new-sealed-retired)
+- [LEGO 910043 Sith Fury-class Interceptor Sealed](https://bestdeals4u.trade/post/lego-910043-bricklink-designer-program-forest-stronghold-new-sealed-retired-set)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
