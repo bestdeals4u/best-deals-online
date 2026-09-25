@@ -36,15 +36,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jase Bowen 2023 Bowman PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-1st-true-green-refractor-99-jase-bowen-cpa-jbn-auto-psa-10)
-- [Hyeseong Kim 2025 Chrome Sapphire RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-sapphire-hyeseong-kim-rc-green-refractor-auto-99-psa-10)
-
-### 🧸 Funko Pops
-- [Funko Pop, ! Mark Hoppus #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted)
+- [Lazaro Montes 2023 Bowman RC BGS 9](https://bestdeals4u.trade/post/lazaro-montes-2023-bowman-chrome-blue-lunar-crater-refractor-auto-150-bgs-9-rc)
+- [Roger Clemens 2024 Stadium Club RC PSA 9](https://bestdeals4u.trade/post/roger-clemens-2024-topps-stadium-club-rc-red-refractor-chrome-auto-25-psa-9)
 
 ### 🧱 LEGO
-- [LEGO 75353 Endor Speeder Chase Diorama Sealed](https://bestdeals4u.trade/post/lego-star-wars-endor-speeder-chase-diorama-75353-new-sealed-retired)
-- [LEGO 910043 Sith Fury-class Interceptor Sealed](https://bestdeals4u.trade/post/lego-910043-bricklink-designer-program-forest-stronghold-new-sealed-retired-set)
+- [LEGO 21108 Ghostbusters Ecto-1 Sealed](https://bestdeals4u.trade/post/lego-ideas-ghostbusters-ecto-1-21108-retired-new-factory-sealed)
+- [LEGO 75391 and 40557 Captain Rex Y-Wing Microfighter, Defense of Hoth Sealed](https://bestdeals4u.trade/post/lego-star-wars-captain-rex-y-wing-75391-defense-of-hoth-40557-sets-all-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
