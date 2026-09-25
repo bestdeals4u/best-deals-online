@@ -40,8 +40,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Roger Clemens 2024 Stadium Club RC PSA 9](https://bestdeals4u.trade/post/roger-clemens-2024-topps-stadium-club-rc-red-refractor-chrome-auto-25-psa-9)
 
 ### 🧱 LEGO
+- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
 - [LEGO 21108 Ghostbusters Ecto-1 Sealed](https://bestdeals4u.trade/post/lego-ideas-ghostbusters-ecto-1-21108-retired-new-factory-sealed)
-- [LEGO 75391 and 40557 Captain Rex Y-Wing Microfighter, Defense of Hoth Sealed](https://bestdeals4u.trade/post/lego-star-wars-captain-rex-y-wing-75391-defense-of-hoth-40557-sets-all-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
