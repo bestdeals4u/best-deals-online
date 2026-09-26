@@ -40,11 +40,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
 
 ### 🧱 LEGO
-- [LEGO 21046 Empire State Building Sealed](https://bestdeals4u.trade/post/lego-architecture-empire-state-building-21046-new-sealed-retired)
-- [LEGO 41230 Batgirl Batjet Chase Sealed](https://bestdeals4u.trade/post/lego-dc-super-hero-girls-41230-batgirl-batjet-chase-retired-new-sealed)
-
-### 🃏 Pokémon Cards
-- [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
+- [LEGO 75442 The Mandalorian's N-1 Starfighter Sealed](https://bestdeals4u.trade/post/lego-75442-star-wars-the-mandalorian-s-n-1-starfighter-new-sealed)
+- [LEGO 10264 Corner Garage Sealed](https://bestdeals4u.trade/post/lego-10264-creator-expert-corner-garage-modular-building-new-sealed-retired)
 
 ### 🎮 Video Games
 - [Is This Jimmy Neutron: Boy Genius (2002), Working for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/jimmy-neutron-boy-genius-nintendo-gamecube-2002-tested-working)
