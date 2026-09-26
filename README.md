@@ -39,13 +39,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Victor Mesa Jr. 2019 Bowman PSA 10](https://bestdeals4u.trade/post/2019-bowman-victor-mesa-jr-prospect-auto-chrome-refractor-psa-10-499-cpa-vmj)
 - [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
 
+### 🧸 Funko Pops
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+
 ### 🧱 LEGO
-- [LEGO 75442 The Mandalorian's N-1 Starfighter Sealed](https://bestdeals4u.trade/post/lego-75442-star-wars-the-mandalorian-s-n-1-starfighter-new-sealed)
-- [LEGO 10264 Corner Garage Sealed](https://bestdeals4u.trade/post/lego-10264-creator-expert-corner-garage-modular-building-new-sealed-retired)
+- [LEGO 75291 Death Star Final Duel Sealed](https://bestdeals4u.trade/post/lego-75291-star-wars-death-star-final-duel-775-pcs-new-sealed-retired)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
 
 ### 🎮 Video Games
-- [Is This Jimmy Neutron: Boy Genius (2002), Working for GameCube a Good Deal Right Now?](https://bestdeals4u.trade/post/jimmy-neutron-boy-genius-nintendo-gamecube-2002-tested-working)
-- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
