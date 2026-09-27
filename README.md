@@ -43,8 +43,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
-- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
+- [LEGO 40602 Market Stall Sealed](https://bestdeals4u.trade/post/lego-40602-winter-market-stall-retired-271-pieces-new-sealed)
+- [LEGO 60426 Jungle Explorer Truck Sealed](https://bestdeals4u.trade/post/lego-city-60426-jungle-explorer-truck-brand-new-sealed-box)
 
 ### 🎮 Video Games
 - [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
