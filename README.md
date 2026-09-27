@@ -36,6 +36,7 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Case Williams 2020 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2020-bowman-chrome-draft-case-williams-1st-blue-wave-refractor-auto-150-psa-9)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
@@ -43,12 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 40602 Market Stall Sealed](https://bestdeals4u.trade/post/lego-40602-winter-market-stall-retired-271-pieces-new-sealed)
-- [LEGO 60426 Jungle Explorer Truck Sealed](https://bestdeals4u.trade/post/lego-city-60426-jungle-explorer-truck-brand-new-sealed-box)
-
-### 🎮 Video Games
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
+- [LEGO 41230 Batgirl Batjet Chase Sealed](https://bestdeals4u.trade/post/lego-dc-super-hero-girls-41230-batgirl-batjet-chase-retired-new-sealed)
+- [LEGO 75326 Boba Fett's Throne Room Sealed](https://bestdeals4u.trade/post/new-retired-lego-star-wars-75326-boba-fett-s-throne-room-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
