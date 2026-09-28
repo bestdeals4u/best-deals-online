@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Stephen Drew 2005 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/2005-stephen-drew-bowman-chrome-xfractor-auto-250-true-gem-mint-bgs-9-5-10-rc)
 - [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
-- [Osiris Johnson 2018 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2018-bowman-draft-green-refractor-43-99-osiris-johnson-bgs-9-5-gem-mint-auto-7m3)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
 - [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 40564 Winter Elves Scene Sealed](https://bestdeals4u.trade/post/lego-winter-elves-scene-40564-retired-limited-edition-gwp-new-sealed-2022)
-- [LEGO 75887 Porsche 919 Hybrid Sealed](https://bestdeals4u.trade/post/lego-speed-champions-75887-porsche-919-hybrid-new-in-sealed-box)
+- [LEGO 60289 Airshow Jet Transporter Sealed](https://bestdeals4u.trade/post/lego-city-60289-airshow-jet-transporter-new-and-factory-sealed-retired-rare)
+- [LEGO 21052 Dubai Sealed](https://bestdeals4u.trade/post/lego-architecture-dubai-21052-new-sealed-retired)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
