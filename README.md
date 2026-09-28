@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Jung-Hoo Lee 2024 Chrome RC PSA 9](https://bestdeals4u.trade/post/jung-hoo-lee-2024-topps-chrome-aqua-wave-refractor-rookie-rc-auto-199-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Jaylen Waddle #227 Exclusive](https://bestdeals4u.trade/post/funko-jaylen-waddle-227-dolphins-fanatics-exclusive-w-hard-case-protector)
-- [Funko Pop, Eddie Van Halen #258](https://bestdeals4u.trade/post/funko-pop-rocks-eddie-van-halen-jumping-frankenstrat-258-protector-new-vaulted)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
+- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
 - [LEGO 60289 Airshow Jet Transporter Sealed](https://bestdeals4u.trade/post/lego-city-60289-airshow-jet-transporter-new-and-factory-sealed-retired-rare)
-- [LEGO 21052 Dubai Sealed](https://bestdeals4u.trade/post/lego-architecture-dubai-21052-new-sealed-retired)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
