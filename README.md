@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
+- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
+- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
 
 ### 🧸 Funko Pops
 - [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 7749 Echo Base Sealed](https://bestdeals4u.trade/post/lego-7749-star-wars-echo-base-han-solo-tauntaun-new-sealed-retired)
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
