@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
-- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
+- [Ezequiel Tovar 2023 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/ezequiel-tovar-auto-topps-chrome-2023-blue-refractor-rc-150-psa-9-mint-raet)
+- [Noelvi Marte 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-upd-noelvi-marte-rookie-true-gold-auto-50-psa-mint-9-reds-rc)
 
 ### 🧸 Funko Pops
 - [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
