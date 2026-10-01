@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Stephen Drew 2005 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/2005-stephen-drew-bowman-chrome-xfractor-auto-250-true-gem-mint-bgs-9-5-10-rc)
 - [Cam Smith 2025 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2025-topps-chrome-cam-smith-refractor-rc-auto-psa-10-astros)
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
 
 ### 🧸 Funko Pops
 - [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
