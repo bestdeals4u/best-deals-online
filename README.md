@@ -44,8 +44,11 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
 
 ### 🧱 LEGO
+- [LEGO 75887 Porsche 919 Hybrid Sealed](https://bestdeals4u.trade/post/lego-speed-champions-75887-porsche-919-hybrid-new-in-sealed-box)
 - [LEGO 7749 Echo Base Sealed](https://bestdeals4u.trade/post/lego-7749-star-wars-echo-base-han-solo-tauntaun-new-sealed-retired)
-- [LEGO 42083 Bugatti Chiron Sealed](https://bestdeals4u.trade/post/lego-technic-bugatti-chiron-42083-retired-brand-new-factory-sealed)
+
+### 🃏 Pokémon Cards
+- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
 
 ### 🎮 Video Games
 - [Mario Kart: Double Dash!! 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/mario-kart-double-dash-nintendo-gamecube-2003-tested)
