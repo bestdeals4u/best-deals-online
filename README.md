@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Trevor Williams 2013 Bowman Draft Picks & Prospects BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-draft-blue-refractor-73-99-trevor-williams-bgs-9-5-gem-mint-auto-ib6)
-- [Noelvi Marte 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-upd-noelvi-marte-rookie-true-gold-auto-50-psa-mint-9-reds-rc)
+- [Lucas Giolito 2013 Bowman BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-orange-refractor-22-25-lucas-giolito-bgs-9-5-gem-mint-auto-read-01dg)
+- [Nick Bitsko 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-gold-wave-refractor-33-50-nick-bitsko-psa-10-gem-mt-auto-09an)
 
 ### 🧸 Funko Pops
 - [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
