@@ -40,20 +40,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Nick Bitsko 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-bowman-draft-gold-wave-refractor-33-50-nick-bitsko-psa-10-gem-mt-auto-09an)
 
 ### 🧸 Funko Pops
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
-- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
+- [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
 
 ### 🃏 Pokémon Cards
 - [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
 - [Is Shining Steelix PSA 5 Priced Fairly at $361.08?](https://bestdeals4u.trade/post/psa-5-shining-steelix-112-105-neo-destiny-pokemon-description)
 
 ### 🎮 Video Games
+- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 - [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
-- [Official Nintendo Switch 2 Online GameCube Controller US VERSION SEALED IN HAND](https://bestdeals4u.trade/post/official-nintendo-switch-2-online-gamecube-controller-us-version-sealed-in-hand)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
