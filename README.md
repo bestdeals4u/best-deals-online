@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Chad Sobotka 2014 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-draft-black-wave-refractor-7-15-chad-sobotka-bgs-9-5-auto-2u8)
 - [Alec Hansen 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-74-99-alec-hansen-bgs-9-5-auto-4al)
+- [Ezequiel Tovar 2023 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/ezequiel-tovar-auto-topps-chrome-2023-blue-refractor-rc-150-psa-9-mint-raet)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Speed Racer #737 Chase](https://bestdeals4u.trade/post/funko-pop-speed-racer-737-chase-nightmare-variant-vaulted-mint-w-protect)
@@ -52,8 +52,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint)
 
 ### 🎮 Video Games
+- [Market Review: The Settlers Rise of an Empire PC Complete in Box](https://bestdeals4u.trade/post/the-settlers-rise-of-an-empire-pc-complete-in-box)
 - [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
-- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
