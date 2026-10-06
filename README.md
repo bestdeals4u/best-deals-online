@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Tyler Fitzgerald 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-ra-tf-tyler-fitzgerald-rc-autograph-blue-refractor-150-psa-9)
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
+- [Chad Sobotka 2014 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-draft-black-wave-refractor-7-15-chad-sobotka-bgs-9-5-auto-2u8)
+- [Alec Hansen 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-74-99-alec-hansen-bgs-9-5-auto-4al)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Speed Racer #737 Chase](https://bestdeals4u.trade/post/funko-pop-speed-racer-737-chase-nightmare-variant-vaulted-mint-w-protect)
 - [Funko Pop, Demogorgon #428 Chase](https://bestdeals4u.trade/post/funko-pop-television-stranger-things-demogorgon-chase-limited-edition-428)
-- [Funko Pop, Crota #241 Chase Glow](https://bestdeals4u.trade/post/destiny-crota-funko-pop-limited-edition-glow-chase-241)
 
 ### 🧱 LEGO
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
-- [Market Review: LEGO Star Wars Snowspeeder 20th Anniversary Edition (75259) – New / Sealed](https://bestdeals4u.trade/post/lego-star-wars-snowspeeder-20th-anniversary-edition-75259-new-sealed)
+- [LEGO Avengers Endgame Final Battle 76323 Sealed](https://bestdeals4u.trade/post/lego-avengers-endgame-final-battle-76323-new-sealed)
+- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
-- [Charizard 006 Shining Darkness PSA 9](https://bestdeals4u.trade/post/2007-pokemon-japanese-shining-darkness-006-charizard-holo-1st-ed-psa-9)
-- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
+- [Lugia NA Promo Neo Premium File 3 PSA 6](https://bestdeals4u.trade/post/psa-6-5-ho-oh-lugia-premium-file-neo-3-promo-seq-set-pokemon-card-japanese-2000)
+- [Ninetales SV53 Shiny Holo Rare Hidden Fates PSA PSA 10](https://bestdeals4u.trade/post/psa-10-2019-pokemon-hidden-fates-alolan-ninetales-gx-full-art-sv53-gem-mint)
 
 ### 🎮 Video Games
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-gamecube-complete)
-- [Mario Golf: Toadstool Tour (GameCube, 2003) Disc + Booklet, Authentic](https://bestdeals4u.trade/post/mario-golf-toadstool-tour-nintendo-gamecube-2003-disc-booklet-authentic)
+- [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
+- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
