@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Max Meyer 2023 Topps Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-topps-chrome-logofractor-max-meyer-autograph-green-rookie-99-rcamm-psa-10)
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
+- [Tony Sanchez 2009 Bowman Sterling BGS 9.5](https://bestdeals4u.trade/post/2009-bowman-sterling-gold-refractor-32-50-tony-sanchez-bgs-9-5-gem-mint-auto-n1u)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
@@ -48,8 +48,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
+- [2023 Japan SV4A Shiny Treasure Charizard EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-jpn-sv4a-shiny-treasure-ex-special-art-rare-charizard-ex-psa-10)
 - [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
-- [Charizard Holofoil Rare Dragon Storm PSA PSA 10](https://bestdeals4u.trade/post/2018-pok-mon-sun-moon-dragon-storm-charizard-3-psa-10-gem-mint-japanese-2)
 
 ### 🎮 Video Games
 - [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
