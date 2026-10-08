@@ -40,16 +40,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Tony Sanchez 2009 Bowman Sterling BGS 9.5](https://bestdeals4u.trade/post/2009-bowman-sterling-gold-refractor-32-50-tony-sanchez-bgs-9-5-gem-mint-auto-n1u)
 
 ### 🧸 Funko Pops
+- [Market Review: Funko Pop!: Dragon Ball - Jiren (Glows In The Dark) - Funko (Exclusive) #1285](https://bestdeals4u.trade/post/funko-pop-dragon-ball-jiren-glows-in-the-dark-funko-exclusive-1285)
 - [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
 - [LEGO 75281 Anakin's Jedi Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75281-anakin-s-jedi-interceptor-brand-new-sealed-retired-rare-3)
 - [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [2023 Japan SV4A Shiny Treasure Charizard EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-jpn-sv4a-shiny-treasure-ex-special-art-rare-charizard-ex-psa-10)
-- [Charizard Secret Rare Champions Path PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-2)
+- [Market Review: 1997 Pokémon Japanese Rocket Dark Dragonite Holo #149 NM-MT PSA 8](https://bestdeals4u.trade/post/1997-pok-mon-japanese-rocket-dark-dragonite-holo-149-nm-mt-psa-8)
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 ### 🎮 Video Games
 - [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
