@@ -36,15 +36,15 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 - [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
-- [A.J. Puk 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-chrome-pick-green-refractor-18-99-aj-puk-bgs-9-5-auto-2a9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 - [Market Review: Funko Pop!: Dragon Ball - Jiren (Glows In The Dark) - Funko (Exclusive) #1285](https://bestdeals4u.trade/post/funko-pop-dragon-ball-jiren-glows-in-the-dark-funko-exclusive-1285)
-- [Funko Pop, Andy Bernard #878 Exclusive](https://bestdeals4u.trade/post/funko-pop-878-andy-bernard-w-banjo-the-office-exclusive-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 75281 Anakin's Jedi Interceptor Sealed](https://bestdeals4u.trade/post/lego-star-wars-75281-anakin-s-jedi-interceptor-brand-new-sealed-retired-rare-3)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
 - [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
@@ -52,8 +52,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Market Review: 1997 Pokémon Japanese Rocket Dark Dragonite Holo #149 NM-MT PSA 8](https://bestdeals4u.trade/post/1997-pok-mon-japanese-rocket-dark-dragonite-holo-149-nm-mt-psa-8)
 
 ### 🎮 Video Games
+- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
 - [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
-- [Market Review: Nintendo Gamecube Final Fantasy Crystal Chronicles NEW FACTORY SEALED](https://bestdeals4u.trade/post/nintendo-gamecube-final-fantasy-crystal-chronicles-new-factory-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
