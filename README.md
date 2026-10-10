@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
+- [Anfernee Grier 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-green-refractor-81-99-anfernee-grier-bgs-9-5-gem-mint-auto-4k8)
+- [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Cayde-6 #234](https://bestdeals4u.trade/post/funko-pop-destiny-cayde-6-234-vaulted-new-in-box-mint-rare-games-figure)
 - [Funko Pop Ursula #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-trains-disney-ursula-funko-exclusive-17-with-protector)
-- [Marvel The Punisher ECCC 2026 Shared Exclusive Funko Pop #1577 at $23.99, with recent sales closer to $28.55](https://bestdeals4u.trade/post/marvel-the-punisher-funko-pop-1577-eccc-2026-shared-exclusive)
 
 ### 🧱 LEGO
-- [LEGO 31198 The Beatles Sealed](https://bestdeals4u.trade/post/new-in-sealed-box-lego-art-the-beatles-31198-john-paul-george-ringo-retired)
-- [Market Review: Lego Star Wars 4+ SEALED SET 75268 Snowspeeder w/ Wedge Antilles & Speeder Bike!](https://bestdeals4u.trade/post/lego-star-wars-4-sealed-set-75268-snowspeeder-w-wedge-antilles-speeder-bike)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
 
 ### 🃏 Pokémon Cards
-- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
-- [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
 
 ### 🎮 Video Games
 - [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
