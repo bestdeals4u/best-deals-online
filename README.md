@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
 
 ### 🧸 Funko Pops
+- [Marvel The Punisher ECCC 2026 Shared Exclusive Funko Pop #1577 at $23.99, with recent sales closer to $28.55](https://bestdeals4u.trade/post/marvel-the-punisher-funko-pop-1577-eccc-2026-shared-exclusive)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Market Review: Funko Pop!: Dragon Ball - Jiren (Glows In The Dark) - Funko (Exclusive) #1285](https://bestdeals4u.trade/post/funko-pop-dragon-ball-jiren-glows-in-the-dark-funko-exclusive-1285)
 
 ### 🧱 LEGO
-- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
-- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
+- [Market Review: Lego Star Wars 4+ SEALED SET 75268 Snowspeeder w/ Wedge Antilles & Speeder Bike!](https://bestdeals4u.trade/post/lego-star-wars-4-sealed-set-75268-snowspeeder-w-wedge-antilles-speeder-bike)
+- [LEGO 75089 Geonosis Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-75089-geonosis-troopers-battle-pack-clone-army-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
