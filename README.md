@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Jonatan Clase 2022 Bowman Sterling PSA 10](https://bestdeals4u.trade/post/2022-bowman-sterling-jonatan-clase-auto-pajce-speckle-refractor-99-psa-10)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop Ursula #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-trains-disney-ursula-funko-exclusive-17-with-protector)
 - [Marvel The Punisher ECCC 2026 Shared Exclusive Funko Pop #1577 at $23.99, with recent sales closer to $28.55](https://bestdeals4u.trade/post/marvel-the-punisher-funko-pop-1577-eccc-2026-shared-exclusive)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
+- [LEGO 31198 The Beatles Sealed](https://bestdeals4u.trade/post/new-in-sealed-box-lego-art-the-beatles-31198-john-paul-george-ringo-retired)
 - [Market Review: Lego Star Wars 4+ SEALED SET 75268 Snowspeeder w/ Wedge Antilles & Speeder Bike!](https://bestdeals4u.trade/post/lego-star-wars-4-sealed-set-75268-snowspeeder-w-wedge-antilles-speeder-bike)
-- [LEGO 75089 Geonosis Troopers Sealed](https://bestdeals4u.trade/post/lego-star-wars-75089-geonosis-troopers-battle-pack-clone-army-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [Zeraora GX Sun & Moon PSA PSA 9](https://bestdeals4u.trade/post/2018-pokemon-sun-moon-full-art-psa-9-mint-zeraora-gx-stakataka-gx)
 - [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
-- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
 - [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
