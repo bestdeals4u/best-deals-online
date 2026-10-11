@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Anfernee Grier 2016 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2016-bowman-draft-green-refractor-81-99-anfernee-grier-bgs-9-5-gem-mint-auto-4k8)
 - [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
+- [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-speckle-refractor-299-cooper-pratt-psa-10-auto-0c3e)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, Cayde-6 #234](https://bestdeals4u.trade/post/funko-pop-destiny-cayde-6-234-vaulted-new-in-box-mint-rare-games-figure)
+- [Funko Pop Inosuke Hashibira #875 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-demon-slayer-inosuke-hashibira-flocked-chase-875-w-protector)
+- [Funko Pop, Venom #10 Exclusive GITD Glow](https://bestdeals4u.trade/post/funko-pop-comic-covers-venom-lethal-10-marvel-10-px-preview-exclusive-glow-gitd)
 
 ### 🧱 LEGO
-- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
-- [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
+- [Market Review: LEGO 71253 Fantastic Beasts Story Pack](https://bestdeals4u.trade/post/lego-71253-fantastic-beasts-where-to-find-them-new-sealed-story-pack)
+- [LEGO 10312 Jazz Club Icons Modular Building – New, Sealed, Moderate-Confidence Seller Overview](https://bestdeals4u.trade/post/lego-10312-jazz-club-icons-modular-building-retired-brand-new-and-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
