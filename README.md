@@ -36,20 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Archie Bradley 2015 Bowman Chrome RC PSA 9](https://bestdeals4u.trade/post/2015-bowman-chrome-rookie-refractor-273-499-archie-bradley-psa-9-mint-auto-g6p)
 - [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
-- [Cooper Pratt 2024 Bowman PSA 10](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-speckle-refractor-299-cooper-pratt-psa-10-auto-0c3e)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Skeletor #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-17-skeletor-motu-funko-exclusive-w-hard-stack-vaulted)
 - [Funko Pop Inosuke Hashibira #875 Chase Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-demon-slayer-inosuke-hashibira-flocked-chase-875-w-protector)
-- [Funko Pop, Venom #10 Exclusive GITD Glow](https://bestdeals4u.trade/post/funko-pop-comic-covers-venom-lethal-10-marvel-10-px-preview-exclusive-glow-gitd)
 
 ### 🧱 LEGO
-- [Market Review: LEGO 71253 Fantastic Beasts Story Pack](https://bestdeals4u.trade/post/lego-71253-fantastic-beasts-where-to-find-them-new-sealed-story-pack)
-- [LEGO 10312 Jazz Club Icons Modular Building – New, Sealed, Moderate-Confidence Seller Overview](https://bestdeals4u.trade/post/lego-10312-jazz-club-icons-modular-building-retired-brand-new-and-sealed)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [Market Review: Brand New, Sealed LEGO Ideas Space Rocket Ride (40335)](https://bestdeals4u.trade/post/brand-new-sealed-lego-ideas-space-rocket-ride-40335)
 
 ### 🃏 Pokémon Cards
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
-- [Guzzlord GX SV71 Sun & Moon PSA PSA 10](https://bestdeals4u.trade/post/2019-pokemon-hidden-fates-guzzlord-gx-sv71-psa-10-gem-mint)
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
+- [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
 
 ### 🎮 Video Games
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
