@@ -40,8 +40,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
 
 ### 🧸 Funko Pops
+- [Funko Pop Solo Leveling Sung Jinwoo Glow Chase Figure #1982 with Protector](https://bestdeals4u.trade/post/funko-pop-solo-leveling-sung-jinwoo-glow-chase-figure-1982-w-pop-protector)
 - [Funko Pop, LIONEL MESSI #50](https://bestdeals4u.trade/post/funko-pop-50-lionel-messi-psg-argentina-miami-soccer-new-w-protector-vaulted)
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 
 ### 🧱 LEGO
 - [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
