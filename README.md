@@ -44,12 +44,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
-- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [Market Review: LEGO Star Wars Nebulon-B Frigate 77904 (New Factory Sealed)](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-new-factory-sealed)
+- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
 
 ### 🃏 Pokémon Cards
+- [Market Review: 2023 Pokemon Mew En #181 PSA 10 Gem Mint Dragonair Illustration](https://bestdeals4u.trade/post/2023-pokemon-mew-en-181-psa-10-gem-mint-rare-dragonair-illustration)
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
-- [Is This Mewtwo Base PSA 7 a Good Deal Right Now?](https://bestdeals4u.trade/post/pokemon-mewtwo-base-unlimited-psa-7-10-102)
 
 ### 🎮 Video Games
 - [Wario World 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/wario-world-nintendo-gamecube-2003-e-everyone-ntsc-u-c-manual-included)
