@@ -36,16 +36,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 - [Clayton Blackburn 2013 Bowman BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-gold-refractor-12-50-clayton-blackburn-bgs-9-5-gem-mint-auto-0x1)
-- [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
 
 ### 🧸 Funko Pops
 - [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 - [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 21326 Winnie the Pooh Sealed](https://bestdeals4u.trade/post/lego-21326-winnie-the-pooh-new-sealed-piglet-tigger-eeyore-disney-nib-retired)
-- [Market Review: LEGO Star Wars Nebulon-B Frigate 77904 (New Factory Sealed)](https://bestdeals4u.trade/post/lego-star-wars-nebulon-b-frigate-77904-new-factory-sealed)
+- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
+- [LEGO Star Wars Luke Skywalker Red Five Helmet 75327 New Sealed 675pcs](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-red-five-helmet-75327-retired-new-sealed-675pcs)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2023 Pokemon Mew En #181 PSA 10 Gem Mint Dragonair Illustration](https://bestdeals4u.trade/post/2023-pokemon-mew-en-181-psa-10-gem-mint-rare-dragonair-illustration)
