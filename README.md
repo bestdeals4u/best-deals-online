@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Clayton Blackburn 2013 Bowman BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-gold-refractor-12-50-clayton-blackburn-bgs-9-5-gem-mint-auto-0x1)
 - [Mason Montgomery 2025 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-mason-montgomery-rc-auto-blue-raywave-150-psa-9-pop2)
-- [Bo Bichette 2020 Topps Chrome RC BGS 9.5](https://bestdeals4u.trade/post/bo-bichette-2020-topps-chrome-rc-auto-blue-wave-refractor-150-bgs-9-5-auto-10)
 
 ### 🧸 Funko Pops
 - [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
