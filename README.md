@@ -52,8 +52,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
 
 ### 🎮 Video Games
+- [Devil May Cry 3: Dante's Awakening 2006 Sony PlayStation 2 Sealed CGC 9.9 A](https://bestdeals4u.trade/post/sealed-devil-may-cry-3-dante-s-awakening-cgc-9-9-a-ps2-capcom-2006-us)
 - [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
-- [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
