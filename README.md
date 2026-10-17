@@ -44,16 +44,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
 
 ### 🧱 LEGO
-- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
-- [LEGO Star Wars Luke Skywalker Red Five Helmet 75327 New Sealed 675pcs](https://bestdeals4u.trade/post/lego-star-wars-luke-skywalker-red-five-helmet-75327-retired-new-sealed-675pcs)
+- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2023 Pokemon Mew En #181 PSA 10 Gem Mint Dragonair Illustration](https://bestdeals4u.trade/post/2023-pokemon-mew-en-181-psa-10-gem-mint-rare-dragonair-illustration)
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
 
 ### 🎮 Video Games
-- [Wario World 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/wario-world-nintendo-gamecube-2003-e-everyone-ntsc-u-c-manual-included)
-- [Donkey Kong Country 3: Dixie Kong's Double Trouble! 1996 for Nintendo SNES Complete](https://bestdeals4u.trade/post/donkey-kong-country-3-snes-super-nintendo-complete-in-box)
+- [Is This PS2 Dragon Ball Z Sparking & Meteor & NEO set Japan Tested a Good Deal Right Now?](https://bestdeals4u.trade/post/ps2-dragon-ball-z-sparking-meteor-neo-set-japan-tested)
+- [Luigi's Mansion-Player's Choice 2003 for Nintendo GameCube Manual included](https://bestdeals4u.trade/post/luigi-s-mansion-player-s-choice-nintendo-gamecube-2003-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
