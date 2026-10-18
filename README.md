@@ -52,8 +52,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
 
 ### 🎮 Video Games
+- [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
 - [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
-- [GearUP for Fortnite](https://bestdeals4u.trade/post/gearup-for-fortnite)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
