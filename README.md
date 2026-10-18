@@ -40,8 +40,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Clayton Blackburn 2013 Bowman BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-gold-refractor-12-50-clayton-blackburn-bgs-9-5-gem-mint-auto-0x1)
 
 ### 🧸 Funko Pops
+- [Neutral Market Review: Funko Pop! Chainsaw Man - Power with Meowy #1776 Flocked Chase](https://bestdeals4u.trade/post/funko-pop-chainsaw-man-power-with-meowy-1776-flocked-chase-protector)
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 
 ### 🧱 LEGO
 - [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
