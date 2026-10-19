@@ -36,8 +36,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Luke Adams 2024 Bowman PSA 9](https://bestdeals4u.trade/post/luke-adams-2024-1st-bowman-chrome-auto-mini-diamond-refractor-100-psa-9-mint-h6)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Clayton Blackburn 2013 Bowman BGS 9.5](https://bestdeals4u.trade/post/2013-bowman-gold-refractor-12-50-clayton-blackburn-bgs-9-5-gem-mint-auto-0x1)
 
 ### 🧸 Funko Pops
 - [Neutral Market Review: Funko Pop! Chainsaw Man - Power with Meowy #1776 Flocked Chase](https://bestdeals4u.trade/post/funko-pop-chainsaw-man-power-with-meowy-1776-flocked-chase-protector)
@@ -48,12 +48,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
+- [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
 - [Market Review: 2023 Pokemon Mew En #181 PSA 10 Gem Mint Dragonair Illustration](https://bestdeals4u.trade/post/2023-pokemon-mew-en-181-psa-10-gem-mint-rare-dragonair-illustration)
-- [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079)
 
 ### 🎮 Video Games
+- [One Piece Pirates Carnival Nintendo GameCube Factory Sealed Review](https://bestdeals4u.trade/post/one-piece-pirates-carnival-nintendo-gamecube-brand-new-factory-sealed)
 - [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
-- [GearUP for Apex Legends](https://bestdeals4u.trade/post/gearup-for-apex-legends)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
