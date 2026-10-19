@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
-- [LEGO 6100272 Demolition Site Sealed](https://bestdeals4u.trade/post/lego-city-60076-demolition-site-new-unopened-sealed-set-retired-2015)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2023 Pokemon Mew En #181 PSA 10 Gem Mint Dragonair Illustration](https://bestdeals4u.trade/post/2023-pokemon-mew-en-181-psa-10-gem-mint-rare-dragonair-illustration)
