@@ -40,16 +40,16 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
-- [Neutral Market Review: Funko Pop! Chainsaw Man - Power with Meowy #1776 Flocked Chase](https://bestdeals4u.trade/post/funko-pop-chainsaw-man-power-with-meowy-1776-flocked-chase-protector)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
+- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
 - [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
 - [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
-- [Charizard Series Ultra PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/psa-10-charizard-ex-pokemon-ex-series-ultra-rare-pokemon-card)
-- [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
+- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 ### 🎮 Video Games
 - [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
