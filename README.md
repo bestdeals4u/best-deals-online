@@ -44,8 +44,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
 
 ### 🧱 LEGO
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 - [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
 
 ### 🃏 Pokémon Cards
 - [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
