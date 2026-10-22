@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Wyatt Langford 2024 Topps RC PSA 9](https://bestdeals4u.trade/post/2024-topps-baseball-wyatt-langford-black-baseball-stars-rc-auto-199-psa-9)
 - [Noelvi Marte 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-topps-chrome-upd-noelvi-marte-rookie-true-gold-auto-50-psa-mint-9-reds-rc)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop! Dragon Ball Vegeta Powering Up #713 Chase Chalice Exclusive – New](https://bestdeals4u.trade/post/funko-pop-dragon-ball-vegeta-powering-up-713-chase-chalice-exclusive)
-- [Funko Pop, ! Rocks #83](https://bestdeals4u.trade/post/funko-pop-rocks-83-mark-hoppus-blink-182-w-protector-vaulted-3)
+- [Funko Pop, Brutus, Brutus (Call of Duty) #71 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-call-of-duty-brutus-71-gamestop-exclusive-vaulted)
+- [Funko Pop, Pegasus #26 Exclusive](https://bestdeals4u.trade/post/pegasus-funko-pop-myths-vinyl-26-funko-exclusive-limited-edition-figure)
 
 ### 🧱 LEGO
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
 - [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [Lego 76300 Arkham Asylum DC Batman Sealed Set](https://bestdeals4u.trade/post/lego-76300-arkham-asylum-dc-batman-new-sealed)
 
 ### 🃏 Pokémon Cards
 - [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
 - [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
+- [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
 - [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
-- [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
