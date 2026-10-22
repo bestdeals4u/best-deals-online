@@ -44,12 +44,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Brutus, Brutus (Call of Duty) #71 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-call-of-duty-brutus-71-gamestop-exclusive-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 21329 Fender Stratocaster Sealed](https://bestdeals4u.trade/post/21329-new-sealed-retired-set-of-lego-ideas-037-fender-stratocaster)
-- [LEGO 40769 Sonic The Hedgehog Sealed](https://bestdeals4u.trade/post/lego-sega-genesis-controller-sonic-the-hedgehog-40769-new-sealed-box)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
+- [LEGO 60408 Car Transporter Truck with Sports Cars Sealed](https://bestdeals4u.trade/post/lego-city-60408-car-transporter-truck-with-sports-cars-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
+- [Market Review: PSA 9 2024 Giratina V Alt Art Chinese Lost Abyss #150/131 Pokemon Card SR](https://bestdeals4u.trade/post/psa-9-2024-giratina-v-alt-art-chinese-lost-abyss-150-131-pokemon-card-sr)
 - [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
-- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
 - [Forza Horizon 6 2026 Microsoft Xbox Series X|S Sealed](https://bestdeals4u.trade/post/forza-horizon-6-xbox-series-x-brand-new-factory-sealed)
