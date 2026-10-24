@@ -36,16 +36,19 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
+- [Griffin Jax 2017 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/griffin-jax-2017-bowman-chrome-autograph-rookie-purple-250-rc-bgs-9-5-auto-10)
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Zack Gelof 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2024-chrome-rookie-aqua-wave-refractor-199-zack-gelof-psa-9-mint-auto-02le-2)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-exclusive-hot-topic-protector)
 - [Funko Pop, Woodsy Owl #96 Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-woodsy-owl-ad-icons-flocked-limited-edition-96)
 
 ### 🧱 LEGO
-- [LEGO 75012 Barc Speeder with Sidecar Sealed](https://bestdeals4u.trade/post/lego-75012-star-wars-barc-speeder-with-sidecar-new-sealed-retired)
-- [LEGO 71818 Tournament Battle Arena Sealed](https://bestdeals4u.trade/post/lego-ninjago-tournament-battle-arena-71818-new-sealed-box)
+- [LEGO Gringotts Wizarding Bank Collector Set 76417](https://bestdeals4u.trade/post/lego-harry-potter-gringotts-wizarding-bank-collectors-edition-76417-new-sealed)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+
+### 🎮 Video Games
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
