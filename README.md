@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 - [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-exclusive-hot-topic-protector)
-- [Funko Pop, Woodsy Owl #96 Flocked](https://bestdeals4u.trade/post/funko-pop-vinyl-woodsy-owl-ad-icons-flocked-limited-edition-96)
 
 ### 🧱 LEGO
-- [LEGO 9448 Samurai Mech MISB New Sealed Ninjago EOL Rise of the Snakes RARE](https://bestdeals4u.trade/post/lego-9448-samurai-mech-misb-new-sealed-ninjago-eol-rise-of-the-snakes-rare)
-- [LEGO Star Wars Venator-Class UCS 75367 New Sealed](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-new-in-box-sealed)
+- [LEGO 10270 Bookshop Sealed](https://bestdeals4u.trade/post/lego-creator-expert-10270-bookshop-2020-new-sealed)
+- [LEGO 2015 Gollum Fun Pack Sealed](https://bestdeals4u.trade/post/lego-dimensions-gollum-shelob-lord-of-the-rings-2015-retired-sealed-71218)
 
 ### 🎮 Video Games
 - [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
