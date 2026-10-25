@@ -41,11 +41,10 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### 🧸 Funko Pops
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [Funko Pop, Ghost #500 Exclusive](https://bestdeals4u.trade/post/funko-pop-rocks-ghost-papa-v-perpetua-500-exclusive-hot-topic-protector)
 
 ### 🧱 LEGO
-- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
-- [LEGO 75311 Imperial Armored Marauder Sealed](https://bestdeals4u.trade/post/lego-star-wars-imperial-armored-marauder-75311-new-retired)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO 4525 Road and Rail Repair Sealed](https://bestdeals4u.trade/post/lego-4525-system-train-9v-road-rail-repair-vintage-1994-new-sealed-retired)
 
 ### 🎮 Video Games
 - [Beach Spikers Virtua Beach Volleyball Gamecube Ita Nintendo for Nintendo GameCube Complete](https://bestdeals4u.trade/post/beach-spikers-virtua-beach-volleyball-gamecube-complete-ita-nintendo)
