@@ -43,8 +43,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
-- [LEGO 4525 Road and Rail Repair Sealed](https://bestdeals4u.trade/post/lego-4525-system-train-9v-road-rail-repair-vintage-1994-new-sealed-retired)
+- [LEGO 910043 Sith Fury-class Interceptor Sealed](https://bestdeals4u.trade/post/lego-910043-bricklink-designer-program-forest-stronghold-new-sealed-retired-set)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+
+### 🃏 Pokémon Cards
+- [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
+- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
 
 ### 🎮 Video Games
 - [Beach Spikers Virtua Beach Volleyball Gamecube Ita Nintendo for Nintendo GameCube Complete](https://bestdeals4u.trade/post/beach-spikers-virtua-beach-volleyball-gamecube-complete-ita-nintendo)
