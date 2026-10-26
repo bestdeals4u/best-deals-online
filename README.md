@@ -43,8 +43,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO 910043 Sith Fury-class Interceptor Sealed](https://bestdeals4u.trade/post/lego-910043-bricklink-designer-program-forest-stronghold-new-sealed-retired-set)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
