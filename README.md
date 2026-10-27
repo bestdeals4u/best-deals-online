@@ -35,20 +35,17 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 <!-- RSS:START -->
 ## Latest from BestDeals4U.trade
 
-### ⚾ Baseball Cards
-- [Griffin Jax 2017 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/griffin-jax-2017-bowman-chrome-autograph-rookie-purple-250-rc-bgs-9-5-auto-10)
-
 ### 🧸 Funko Pops
 - [Market Review: Funko POP! Batman (Bat-Manga!) ECCC 2026 Exclusive LE 5000 IN HAND #621](https://bestdeals4u.trade/post/funko-pop-batman-bat-manga-eccc-2026-exclusive-le-5000-in-hand-621)
 - [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
 
 ### 🧱 LEGO
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
 - [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
-- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
-- [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
-- [Market Review: 2021 POKEMON SWSH CELEBRATIONS GRENINJA GOLD STAR SWSH144 ETB PROMO HOLO PSA 8](https://bestdeals4u.trade/post/2021-pokemon-swsh-celebrations-greninja-gold-star-swsh144-etb-promo-holo-psa-8-d)
+- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
+- [Is Mega Evolution Steelix Illustration Priced Fairly at $200.00?](https://bestdeals4u.trade/post/2025-pokemon-mega-evolution-150-132-steelix-illustration-rare-tag-10)
 
 ### 🎮 Video Games
 - [Beach Spikers Virtua Beach Volleyball Gamecube Ita Nintendo for Nintendo GameCube Complete](https://bestdeals4u.trade/post/beach-spikers-virtua-beach-volleyball-gamecube-complete-ita-nintendo)
