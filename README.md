@@ -37,15 +37,14 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### ⚾ Baseball Cards
 - [Griffin Jax 2017 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/griffin-jax-2017-bowman-chrome-autograph-rookie-purple-250-rc-bgs-9-5-auto-10)
-- [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
 
 ### 🧸 Funko Pops
+- [Market Review: Funko POP! Batman (Bat-Manga!) ECCC 2026 Exclusive LE 5000 IN HAND #621](https://bestdeals4u.trade/post/funko-pop-batman-bat-manga-eccc-2026-exclusive-le-5000-in-hand-621)
 - [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
+- [LEGO 910037 The Mushroom House Sealed](https://bestdeals4u.trade/post/lego-bricklink-designer-program-set-910037-mushroom-house-new-in-sealed-box)
+- [LEGO 75277 Boba Fett Helmet Sealed](https://bestdeals4u.trade/post/lego-boba-fett-helmet-75277-retired-star-wars-brand-new-factory-sealed)
 
 ### 🃏 Pokémon Cards
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
