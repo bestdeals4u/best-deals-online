@@ -43,8 +43,8 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Funko Pop, Michael Jordan #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-exclusive-die-cast-michael-jordan-figure-limited-edition-11-sealed)
 
 ### 🧱 LEGO
-- [LEGO 910037 The Mushroom House Sealed](https://bestdeals4u.trade/post/lego-bricklink-designer-program-set-910037-mushroom-house-new-in-sealed-box)
-- [LEGO 75277 Boba Fett Helmet Sealed](https://bestdeals4u.trade/post/lego-boba-fett-helmet-75277-retired-star-wars-brand-new-factory-sealed)
+- [LEGO 76187 Venom Sealed](https://bestdeals4u.trade/post/new-lego-marvel-venom-76187-spider-man-universe-villain-retired-sealed)
+- [LEGO 76040 Brainiac Attack Sealed](https://bestdeals4u.trade/post/lego-super-heroes-76040-brainiac-attack-retired-brand-new-sealed-super-minty)
 
 ### 🃏 Pokémon Cards
 - [Mew Machoke PSA 10 Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/2023-pokemon-mew-en-151-machoke-177-illustration-rare-psa-10)
