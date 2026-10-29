@@ -36,16 +36,15 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### 🧸 Funko Pops
-- [Funko Pop, Mario Lemieux #49 Chase Exclusive](https://bestdeals4u.trade/post/funko-pop-hockey-mario-lemieux-chase-canada-exclusive-49-vinyl-figure)
 - [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 40355 Year of the Rat Sealed](https://bestdeals4u.trade/post/lego-seasonal-year-of-the-rat-40355-new-in-sealed-box)
-- [LEGO 76420 Triwizard Tournament: the Black Lake Sealed](https://bestdeals4u.trade/post/new-sealed-retired-lego-harry-potter-triwizard-tournament-black-lake-76420)
+- [LEGO 60289 Airshow Jet Transporter Sealed](https://bestdeals4u.trade/post/lego-city-60289-airshow-jet-transporter-new-and-factory-sealed-retired-rare)
+- [LEGO 21052 Dubai Sealed](https://bestdeals4u.trade/post/lego-architecture-dubai-21052-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
-- [Is Charizard Xex MA MEGA PSA10 Priced Fairly at $485.97?](https://bestdeals4u.trade/post/psa10-pokemon-charizard-xex-ma-mega-dream-ex-223-193-japanese-version)
 
 ### 🎮 Video Games
 - [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
