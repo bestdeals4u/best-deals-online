@@ -35,19 +35,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 <!-- RSS:START -->
 ## Latest from BestDeals4U.trade
 
+### ⚾ Baseball Cards
+- [Market Review: 1909 Piedmont T206 Fred Tenney Braves/Giants PSA 4](https://bestdeals4u.trade/post/1909-piedmont-t206-fred-tenney-boston-braves-new-york-giants-baseball-card-psa-4)
+- [Mac Horvath 2023 Draft RC PSA 10](https://bestdeals4u.trade/post/mac-horvath-2023-bowman-draft-purple-refractor-chrome-auto-1st-rc-250-psa-10)
+
 ### 🧸 Funko Pops
+- [Funko Pop, Moon Knight #796 Exclusive](https://bestdeals4u.trade/post/funko-pop-marvel-796-zombie-moon-knight-funko-exclusive-w-protector-vaulted)
 - [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
-- [Market Review: NIB Funko Pop The Seven Deadly Sins Meliodas 1344 Glow Chase PX With Protector](https://bestdeals4u.trade/post/nib-funko-pop-the-seven-deadly-sins-meliodas-1344-glow-chase-px-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 60289 Airshow Jet Transporter Sealed](https://bestdeals4u.trade/post/lego-city-60289-airshow-jet-transporter-new-and-factory-sealed-retired-rare)
-- [LEGO 21052 Dubai Sealed](https://bestdeals4u.trade/post/lego-architecture-dubai-21052-new-sealed-retired)
+- [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
+- [LEGO 75381 Droideka Sealed](https://bestdeals4u.trade/post/lego-star-wars-25th-anniversary-droideka-75381-brand-new-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
-- [Market Review: 10% CGC PRISTINE 10 RATE Raikou V GG41/GG70 Alt Art Crown Zenith 2023 Pokemon](https://bestdeals4u.trade/post/10-cgc-pristine-10-rate-raikou-v-gg41-gg70-alt-art-crown-zenith-2023-pokemon)
 
 ### 🎮 Video Games
+- [Harvest Moon: A Wonderful Life 2004 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-a-wonderful-life-nintendo-gamecube-new-factory-sealed-2004)
 - [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
