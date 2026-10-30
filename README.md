@@ -44,15 +44,15 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
 
 ### 🧱 LEGO
+- [LEGO 42157 John Deere 948l-II Skidder Sealed](https://bestdeals4u.trade/post/lego-technic-john-deere-948l-ii-skidder-42157-new-in-a-sealed-box-1492-pieces)
 - [LEGO 75060 Slave I Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-slave-1-75060-retired-factory-brand-new-sealed-mint)
-- [LEGO 75381 Droideka Sealed](https://bestdeals4u.trade/post/lego-star-wars-25th-anniversary-droideka-75381-brand-new-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Market Review: 2022 Pokemon SWSH Lost Origin Giratina V #186/196 Alt Art TCG English Card PSA](https://bestdeals4u.trade/post/2022-pokemon-swsh-lost-origin-giratina-v-186-196-alt-art-tcg-english-card-psa)
 
 ### 🎮 Video Games
+- [Market Review: TMNT (Nintendo GameCube, 2007) Sealed Brand New CIB](https://bestdeals4u.trade/post/tmnt-nintendo-gamecube-2007-sealed-brand-new-cib-complete-mutant-ninja)
 - [Harvest Moon: A Wonderful Life 2004 Nintendo GameCube Sealed](https://bestdeals4u.trade/post/harvest-moon-a-wonderful-life-nintendo-gamecube-new-factory-sealed-2004)
-- [The Legend of Zelda: The Wind Waker 2003 for Nintendo GameCube](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2003)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
