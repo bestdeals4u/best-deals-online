@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Lazaro Montes 2023 Bowman RC BGS 9](https://bestdeals4u.trade/post/lazaro-montes-2023-bowman-chrome-blue-lunar-crater-refractor-auto-150-bgs-9-rc)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Itachi #578 Exclusive](https://bestdeals4u.trade/post/funko-pop-naruto-itachi-578-vinyl-special-edition-exclusive-mint)
-- [Is This Wolverine (Classic Unmasked) w/ Protector ECCC Funko Pop #1576 LE 5000 Actually a Good Value?](https://bestdeals4u.trade/post/funko-pop-wolverine-classic-unmasked-1576-w-protector-le-5000-eccc)
+- [Funko Pop Rock Michael Jackson Bad MJ #25 – Excellent New Vaulted Collectible](https://bestdeals4u.trade/post/funko-pop-rock-michael-jackson-bad-mj-25-excellent-condition-vaulted-rare-grail)
+- [Funko Pop, Skeletor #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-17-skeletor-motu-funko-exclusive-w-hard-stack-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 4435 Town Car and Caravan Sealed](https://bestdeals4u.trade/post/lego-4435-city-car-and-caravan-set-2011-brand-new-sealed-retired-camper-bicycle)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [LEGO 10227 B-wing Starfighter Sealed](https://bestdeals4u.trade/post/lego-star-wars-ucs-b-wing-starfighter-10227-new-sealed-retired)
+- [LEGO 60305 Car Transporter Sealed](https://bestdeals4u.trade/post/lego-city-car-transporter-60305-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
 - [Charizard Secret Rare Champions Path PSA PSA 10](https://bestdeals4u.trade/post/psa-10-secret-rare-shiny-charizard-v-card-pokemon-champions-path-gem-mint-079-3)
