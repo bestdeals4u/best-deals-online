@@ -40,12 +40,12 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 - [Lazaro Montes 2023 Bowman RC BGS 9](https://bestdeals4u.trade/post/lazaro-montes-2023-bowman-chrome-blue-lunar-crater-refractor-auto-150-bgs-9-rc)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Moon Knight #796 Exclusive](https://bestdeals4u.trade/post/funko-pop-marvel-796-zombie-moon-knight-funko-exclusive-w-protector-vaulted)
+- [Funko Pop, Skeletor #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-17-skeletor-motu-funko-exclusive-w-hard-stack-vaulted)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO NINJAGO 71794 Lloyd & Arin's Ninja Team Mechs – Factory Sealed](https://bestdeals4u.trade/post/lego-ninjago-71794-lloyd-arin-s-ninja-team-mechs-factory-sealed-rare)
-- [LEGO 9447 Lasha's Bite Cycle Sealed](https://bestdeals4u.trade/post/lego-9447-ninjago-lasha-s-bite-cycle-new-retired-rare-sealed-misb-2012-new)
+- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
