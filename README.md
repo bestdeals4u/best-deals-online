@@ -37,15 +37,14 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 
 ### ⚾ Baseball Cards
 - [Sheng-En Lin 2024 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2024-bowman-chrome-prospect-auto-sheng-en-lin-green-lava-refractor-99-psa-9)
-- [Lazaro Montes 2023 Bowman RC BGS 9](https://bestdeals4u.trade/post/lazaro-montes-2023-bowman-chrome-blue-lunar-crater-refractor-auto-150-bgs-9-rc)
 
 ### 🧸 Funko Pops
 - [Funko Pop, Skeletor #17 Exclusive](https://bestdeals4u.trade/post/funko-pop-art-series-17-skeletor-motu-funko-exclusive-w-hard-stack-vaulted)
 - [Funko Pop! Vinyl Roller Drive-In Franny (SDCC) 1500 Piece Con Sticker](https://bestdeals4u.trade/post/funko-pop-vinyl-funko-roller-drive-in-franny-sdcc-1500-piece-con-sticker)
 
 ### 🧱 LEGO
-- [LEGO 75005 Rancor Pit Sealed](https://bestdeals4u.trade/post/lego-75005-star-wars-rancor-pit-retired-set-in-sealed-box)
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-21336-new-sealed-retired-set-1164-pcs)
+- [LEGO Star Wars Venator-Class Attack Cruiser Replica UCS 75367](https://bestdeals4u.trade/post/lego-star-wars-venator-class-republic-attack-cruiser-75367-ucs-model-replica)
+- [LEGO 10283 NASA Space Shuttle Discovery Sealed](https://bestdeals4u.trade/post/lego-nasa-space-shuttle-discovery-10283-sealed-retired-set-2354-pcs-18)
 
 ### 🃏 Pokémon Cards
 - [Market Review: Pokemon 2021 PSA Gem Mint 10 Rayquaza V Alt Art #194 Evolving Skies](https://bestdeals4u.trade/post/pokemon-2021-psa-gem-mint-10-rayquaza-v-alt-art-194-evolving-skies)
