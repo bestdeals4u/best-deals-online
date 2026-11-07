@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jon Gray 2013 Bowman Sterling RC BGS 9.5](https://bestdeals4u.trade/post/jon-gray-2013-bowman-sterling-prospect-purple-refractor-3-10-rc-bgs-9-5-rangers)
-- [Is Tony Kubek Signed 1988 Pacific On-Card Auto York Yankees Auto Autograph Priced Fairly at $21.40?](https://bestdeals4u.trade/post/tony-kubek-signed-1988-pacific-29-on-card-auto-new-york-yankees-auto-autograph)
+- [Victor Acosta 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-prospect-refractor-499-victor-acosta-psa-10-gem-mt-auto-11oq)
+- [Yeison Morrobel 2022 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/2022-bowman-chrome-prospect-refractor-499-yeison-morrobel-psa-9-mint-auto-09an)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Brutus, Brutus (Call of Duty) #71 Exclusive](https://bestdeals4u.trade/post/funko-pop-games-call-of-duty-brutus-71-gamestop-exclusive-vaulted)
-- [X - Men Wolverine (Classic Unmasked) ECCC PCS Funko Pop #1576 LE 5000 at $65.00, below recent sales](https://bestdeals4u.trade/post/funko-pop-x-men-wolverine-classic-unmasked-eccc-1576-le-5000-pcs)
+- [SHRIMP MORTY! 2019 Rick And Morty Hot Topic Exclusive Funko Pop #645 at $13.99, near recent sales](https://bestdeals4u.trade/post/shrimp-morty-funko-pop-2019-rick-and-morty-hot-topic-exclusive-645-vaulted-nib)
+- [Funko Pop, Master Chief #11 Exclusive](https://bestdeals4u.trade/post/funko-pop-halo-master-chief-w-energy-sword-11-gamestop-exclusive-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 75378 Barc Speeder Escape Sealed](https://bestdeals4u.trade/post/lego-75378-star-wars-barc-speeder-escape-grogu-clone-trooper-new-sealed-retired)
-- [LEGO 70591 Kryptarium Prison Breakout Sealed](https://bestdeals4u.trade/post/lego-ninjago-kryptarium-prison-breakout-70591-new-in-sealed-box)
+- [LEGO Harry Potter: Hogwarts Wizard Chess (76392) Set at $134.99, below recent comps](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-wizard-chess-76392-new-sealed-retired-set)
+- [LEGO 41926 Creative Party Kit Sealed](https://bestdeals4u.trade/post/lego-41926-dots-creative-party-kit-arts-and-crafts-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Fossil PSA 7 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/1999-pokemon-fossil-1st-edition-61-recycle-psa-7)
-- [CGC 1 Chansey 1999 Base Set 1st Edition Shadowless Holo](https://bestdeals4u.trade/post/cgc-1-chansey-1999-base-set-1st-edition-shadowless-3-102-holo-pokemon-card)
+- [Is Shining Steelix PSA 5 Priced Fairly at $361.08?](https://bestdeals4u.trade/post/psa-5-shining-steelix-112-105-neo-destiny-pokemon-description)
+- [Obf Ultra Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/2023-pokemon-obf-en-obsidian-flames-ultra-rare-215-charizard-ex-psa-gem-mt-10)
 
 ### 🎮 Video Games
-- [Far Cry 4 - Limited Edition (Microsoft Xbox One, 2015) Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/far-cry-4-limited-edition-microsoft-xbox-one-2015-factory-sealed)
-- [Market Review: WCW/NWO Revenge w/ Poster Nintendo 64 N64 Complete in Box CIB](https://bestdeals4u.trade/post/wcw-nwo-revenge-w-poster-nintendo-64-n64-complete-in-box-cib)
+- [Thinking About Buying 3D Pandora Wifi Saga EX Box 8000 in 1 DIY Kit Arcade Retro Video game? Read This First](https://bestdeals4u.trade/post/3d-pandora-wifi-saga-ex-box-8000-in-1-diy-kit-arcade-retro-video-game-console)
+- [Super Monkey Ball, Super Monkey Ball 2 2001, 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/nintendo-gamecube-super-monkey-ball-super-monkey-ball-2-complete-with-manual)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
