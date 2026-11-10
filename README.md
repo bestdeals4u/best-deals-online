@@ -36,23 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
-- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
+- [Yosy Galan 2023 Bowman Chrome RC PSA 10](https://bestdeals4u.trade/post/2023-bowman-chrome-auto-yosy-galan-cpa-yga-rc-blue-raywave-refractor-150-psa-10)
+- [Max Meyer 2020 Bowman Draft PSA 10](https://bestdeals4u.trade/post/2020-max-meyer-1st-bowman-draft-chrome-auto-green-refractor-37-99-psa-10-marlins)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
-- [FUNKO POP! Vinyl Heroes RARE DC Universe #07 Superman Metallic Chase [VAULTED] - Is $220 undervalued?](https://bestdeals4u.trade/post/funko-pop-vinyl-heroes-rare-dc-universe-07-superman-metallic-chase-vaulted)
+- [Market Review: Funko Pop! Papa Smurf with Magic Book - The Smurfs 1525 (SDCC 2024 Exclusive)](https://bestdeals4u.trade/post/funko-pop-papa-smurf-with-magic-book-the-smurfs-1525-sdcc-2024-exclusive)
+- [Vinyl: Marvel - Lilith Funko Pop #1264 at $12.00, with recent sales closer to $13.73](https://bestdeals4u.trade/post/funko-pop-vinyl-marvel-lilith-1264-2023-summer-convention-exclusive-rare)
 
 ### 🧱 LEGO
-- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
-- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
+- [Market Review: LEGO 75979 Hedwig Harry Potter BRAND NEW SEALED](https://bestdeals4u.trade/post/lego-75979-hedwig-harry-potter-brand-new-sealed)
+- [LEGO 71813 Wolf Mask Shadow Dojo Sealed](https://bestdeals4u.trade/post/lego-ninjago-71813-wolf-mask-shadow-dojo-dragons-rising-s2-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
-- [______'s Pikachu Classic Collection Celebrations: Classic Collection PSA 10](https://bestdeals4u.trade/post/2021-pok-mon-birthday-pikachu-celebrations-classic-collection-holo-psa-10-24-53)
+- [How Good of a Deal Is This Lugia PSA 5?](https://bestdeals4u.trade/post/2000-pokemon-lugia-neo-genesis-holo-rare-9-111-unlimited-psa-5-new-slab)
+- [CGC 10 Umbreon Gold Star Celebrations 17/17](https://bestdeals4u.trade/post/cgc-10-umbreon-gold-star-pokemon-celebrations-pop-series-5-holo-17-17)
 
 ### 🎮 Video Games
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [Is Incredibles (2004) for GameCube Priced Fairly at $9.99?](https://bestdeals4u.trade/post/incredibles-nintendo-gamecube-2004)
+- [Hidden Agenda (2017) PS4 New Factory Sealed – Market Review](https://bestdeals4u.trade/post/hidden-agenda-new-factory-sealed-2017-authentic-sony-playstation-4-ps4)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
