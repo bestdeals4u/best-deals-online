@@ -36,24 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jeremiah Jackson 2018 Bowman Draft RC PSA 9](https://bestdeals4u.trade/post/2018-bowman-chrome-jeremiah-jackson-cda-jj-refractor-auto-149-499-psa-9-rc)
-- [Eduardo Herrera 2024 Bowman RC PSA 9](https://bestdeals4u.trade/post/eduardo-herrera-2024-1st-bowman-chrome-auto-orange-refractor-25-psa-9-rc-z3)
+- [Rosman Verdugo 2022 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-rosman-verdugo-speckle-refractor-auto-sp-299-gem-mint-psa-10)
+- [Market Review: 2021 Leaf Trinity Bronze Michael McGreevy Auto Patch + 25 MLB Cards](https://bestdeals4u.trade/post/2021-leaf-trinity-bronze-michael-mcgreevy-auto-patch-cardinals-25-mlb-cards)
 
 ### 🧸 Funko Pops
-- [Market Review: Funko Pop Brass Dragon Wyrmling 1201 ECCC 2026 Exclusive LE 8000 with Protector](https://bestdeals4u.trade/post/funko-pop-brass-dragon-wyrmling-1201-eccc-2026-exclusive-le-8000-with-protector)
-- [Market Review: Funko Pop! RoboCop 2 : RoboCop #1989 Metallic Chase With Protector](https://bestdeals4u.trade/post/funko-pop-robocop-2-robocop-1989-metallic-chase-with-protector)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [FUNKO POP! Vinyl Heroes RARE DC Universe #07 Superman Metallic Chase [VAULTED] - Is $220 undervalued?](https://bestdeals4u.trade/post/funko-pop-vinyl-heroes-rare-dc-universe-07-superman-metallic-chase-vaulted)
 
 ### 🧱 LEGO
-- [LEGO 3416 Women’s Soccer Team Sealed](https://bestdeals4u.trade/post/lego-sports-women-s-soccer-team-3416-in-2001-new-sealed-retired)
-- [LEGO 75169 Duel on Naboo Sealed](https://bestdeals4u.trade/post/lego-star-wars-duel-on-naboo-75169-new-sealed-damage-to-box-kids-age-7-12)
+- [LEGO 75105 Millennium Falcon Sealed](https://bestdeals4u.trade/post/lego-star-wars-millennium-falcon-75105-new-in-factory-sealed-box-retired-2)
+- [LEGO 76421 Dobby the House-Elf Sealed](https://bestdeals4u.trade/post/lego-76421-harry-potter-dobby-the-house-elf-retired-new-in-factory-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Articuno 2/110 Legendary Collection Holo 2002 PSA 8 Pokémon TCG POP 239 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/articuno-2-110-legendary-collection-holo-rare-2002-psa-8-pok-mon-tcg-pop-239)
-- [Mewtwo 052 Promo Sv: Scarlet & Violet 151 PSA 9](https://bestdeals4u.trade/post/2023-pokemon-psa-9-mewtwo-52-black-star-promo-scarlet-violet-151-upc-promo)
+- [Is Indonesian PSA 6 Priced Fairly at $80.99?](https://bestdeals4u.trade/post/2021-pokemon-indonesian-s-promo-kfc-chaki-kids-meal-016-full-art-pikachu-psa-6)
+- [______'s Pikachu Classic Collection Celebrations: Classic Collection PSA 10](https://bestdeals4u.trade/post/2021-pok-mon-birthday-pikachu-celebrations-classic-collection-holo-psa-10-24-53)
 
 ### 🎮 Video Games
-- [Market Review: SOCOM II: U.S. Navy SEALs (Sony PlayStation 2, 2003) Video Game](https://bestdeals4u.trade/post/socom-ii-u-s-navy-seals-sony-playstation-2-2003-video-game)
-- [Market Review: Samurai Champloo Brand New Factory Sealed Japan Playstation 2 PS2 Small Tear](https://bestdeals4u.trade/post/samurai-champloo-brand-new-factory-sealed-japan-playstation-2-ps2-small-tear)
+- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
