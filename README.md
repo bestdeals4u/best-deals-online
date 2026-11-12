@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Mac Horvath 2023 Draft RC PSA 10](https://bestdeals4u.trade/post/mac-horvath-2023-bowman-draft-purple-refractor-chrome-auto-1st-rc-250-psa-10)
-- [Mike Zunino 2013 Topps Finest RC BGS 9.5](https://bestdeals4u.trade/post/2013-finest-jumbo-relic-rookie-refractor-mike-zunino-bgs-9-5-gem-mint-auto-0s3)
+- [Jordan Lawlar 2024 Topps Chrome RC SGC 9.5](https://bestdeals4u.trade/post/jordan-lawlar-2024-topps-chrome-rc-auto-blue-refractor-150-sgc-9-5-10-ra-jla-p6-2)
+- [Adley Rutschman 2019 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-draft-adley-rutschman-rc-auto-250-bgs-9-5-10-0-autograph)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Charlie the Tuna #54 Exclusive](https://bestdeals4u.trade/post/charlie-the-tuna-pop-54-starkist-funko-exclusive-2019-vaulted-with-protector-l3-3)
-- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Market Review: NEW STAR WARS KARRE EXCLUSIVE FUNKO ENAMEL POP PIN 2022 RARE SEALED](https://bestdeals4u.trade/post/new-star-wars-karre-exclusive-funko-enamel-pop-pin-2022-rare-sealed)
+- [Ash Chase ~ Movies The Evil Dead in Protector Funko Pop #1142 at $38.98, with recent sales closer to $40.74](https://bestdeals4u.trade/post/ash-chase-1142-funko-pop-movies-the-evil-dead-in-protector)
 
 ### 🧱 LEGO
-- [LEGO 75532 Scout Trooper & Speeder Bike Sealed](https://bestdeals4u.trade/post/lego-star-wars-75532-scout-trooper-speeder-bike-set-452-pcs-sealed-retired)
-- [LEGO 21317 Steamboat Willie Sealed](https://bestdeals4u.trade/post/lego-ideas-steamboat-willie-21317-mickey-mouse-retired-nib-new-factory-sealed)
+- [LEGO 60186 Mining Heavy Driller Sealed](https://bestdeals4u.trade/post/lego-city-60186-mining-heavy-driller-brand-new-sealed-box)
+- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-set-21336-retired-set-new-sealed)
 
 ### 🃏 Pokémon Cards
-- [Is This PSA10 Dancer SR Fusion Arts Dancer Fusion Arts Charizard Mew Mewtwo Gengar Actually a Good Value?](https://bestdeals4u.trade/post/psa10-dancer-sr-fusion-arts-dancer-fusion-arts-charizard-mew-mewtwo-gengar)
-- [Thinking About Buying Pikachu PSA 10? Read This First](https://bestdeals4u.trade/post/2024-pokemon-sv8-japanese-pikachu-ex-122-super-rare-psa-10-gem-mt)
+- [Mew En Ultra CHARIZARD PSA 8 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2023-mew-en-151-ultra-rare-charizard-ex-183-psa-8-rare)
+- [Is This Entei Unseen Gold Star PSA 1 Actually a Good Value?](https://bestdeals4u.trade/post/entei-gold-star-pokemon-2005-ex-unseen-forces-holo-psa-1)
 
 ### 🎮 Video Games
-- [Market Review: Pokemon MEGA Dream ex M2a Booster Box Japanese w/Shrink?New Sealed ++](https://bestdeals4u.trade/post/pokemon-mega-dream-ex-m2a-booster-box-japanese-w-shrink-new-sealed)
-- [Mystic Defender 1989 for Sega Genesis Complete](https://bestdeals4u.trade/post/mystic-defender-sega-genesis-1989-complete-in-box-hang-tab)
+- [Yu-Gi-Oh Duelists Magical Hero Box 1st Edition Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/yu-gi-oh-legendary-duelists-magical-hero-box-1st-edition-factory-sealed)
+- [Market Review: WATA 9.2 A Sealed ESPN National Hockey Night NHL Sega Genesis USA Seal PSA Sony](https://bestdeals4u.trade/post/wata-9-2-a-sealed-espn-national-hockey-night-nhl-sega-genesis-usa-seal-psa-sony)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
