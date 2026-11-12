@@ -36,24 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Jordan Lawlar 2024 Topps Chrome RC SGC 9.5](https://bestdeals4u.trade/post/jordan-lawlar-2024-topps-chrome-rc-auto-blue-refractor-150-sgc-9-5-10-ra-jla-p6-2)
-- [Adley Rutschman 2019 Bowman Chrome RC BGS 9.5](https://bestdeals4u.trade/post/2019-bowman-chrome-draft-adley-rutschman-rc-auto-250-bgs-9-5-10-0-autograph)
+- [Cody Freeman 2025 Bowman PSA 9](https://bestdeals4u.trade/post/cody-freeman-2025-bowman-cpacfr-orange-shimmer-refractor-auto-24-25-psa-9)
+- [Yoelqui Cespedes 2021 Bowman Chrome PSA 10](https://bestdeals4u.trade/post/2021-bowman-chrome-1st-yoelqui-cespedes-orange-refractor-auto-25-psa-10-2)
 
 ### 🧸 Funko Pops
-- [Market Review: NEW STAR WARS KARRE EXCLUSIVE FUNKO ENAMEL POP PIN 2022 RARE SEALED](https://bestdeals4u.trade/post/new-star-wars-karre-exclusive-funko-enamel-pop-pin-2022-rare-sealed)
-- [Ash Chase ~ Movies The Evil Dead in Protector Funko Pop #1142 at $38.98, with recent sales closer to $40.74](https://bestdeals4u.trade/post/ash-chase-1142-funko-pop-movies-the-evil-dead-in-protector)
+- [Market Review: Funko Pop! MOVIES 1063 The 40 Year Old Virgin Andy Stitzer Waxed New](https://bestdeals4u.trade/post/funko-pop-movies-1063-the-40-year-old-virgin-andy-stitzer-waxed-new)
+- [Funko Pop, Negan #390](https://bestdeals4u.trade/post/funko-pop-the-walking-dead-negan-390-vinyl-figure-mib-vaulted-w-protector)
 
 ### 🧱 LEGO
-- [LEGO 60186 Mining Heavy Driller Sealed](https://bestdeals4u.trade/post/lego-city-60186-mining-heavy-driller-brand-new-sealed-box)
-- [LEGO 21336 The Office Sealed](https://bestdeals4u.trade/post/lego-ideas-the-office-set-21336-retired-set-new-sealed)
+- [LEGO 75252 Imperial Star Destroyer Sealed](https://bestdeals4u.trade/post/lego-star-wars-imperial-star-destroyer-75252-retired-new-sealed-box)
+- [LEGO Star Wars: The Justifier Bad Batch (75323) at $139.95, below recent comps](https://bestdeals4u.trade/post/lego-star-wars-the-justifier-bad-batch-75323-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Mew En Ultra CHARIZARD PSA 8 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/pokemon-2023-mew-en-151-ultra-rare-charizard-ex-183-psa-8-rare)
-- [Is This Entei Unseen Gold Star PSA 1 Actually a Good Value?](https://bestdeals4u.trade/post/entei-gold-star-pokemon-2005-ex-unseen-forces-holo-psa-1)
+- [Topps Chrome PSA 10 Deal Check: Worth It or Not?](https://bestdeals4u.trade/post/2000-topps-chrome-pokemon-t-v-132-ditto-psa-10-gem-mint-modern-grade-stunner)
+- [Is This Pokémon Charizard VSTAR Ultra-Premium Collection PSA 8 Promo Holo 2022 a Good Buy?](https://bestdeals4u.trade/post/pok-mon-charizard-vstar-ultra-premium-collection-psa-8-262-promo-holo-2022)
 
 ### 🎮 Video Games
-- [Yu-Gi-Oh Duelists Magical Hero Box 1st Edition Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/yu-gi-oh-legendary-duelists-magical-hero-box-1st-edition-factory-sealed)
-- [Market Review: WATA 9.2 A Sealed ESPN National Hockey Night NHL Sega Genesis USA Seal PSA Sony](https://bestdeals4u.trade/post/wata-9-2-a-sealed-espn-national-hockey-night-nhl-sega-genesis-usa-seal-psa-sony)
+- [Market Review: Sony Playstation 5 PS5 Doom The Dark Ages (NEW/SEALED)](https://bestdeals4u.trade/post/sony-playstation-5-ps5-doom-the-dark-ages-new-sealed)
+- [The Legend of Zelda: The Wind Waker 2009 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/the-legend-of-zelda-the-wind-waker-nintendo-gamecube-2009-cib)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
