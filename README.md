@@ -36,23 +36,20 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Fleer Sports Illustrated Greats of the Game "Al Hrabosky" Autograph Card at $18.99 - Buy Now or Wait?](https://bestdeals4u.trade/post/1999-fleer-sports-illustrated-greats-of-the-game-al-hrabosky-autograph-card)
-- [Kyle Teel 2024 Bowman RC PSA 10](https://bestdeals4u.trade/post/2024-bowman-kyle-teel-1st-chrome-prospect-auto-hta-choice-ref-150-rc-psa-10)
+- [Esteban Mejia 2025 Bowman PSA 9](https://bestdeals4u.trade/post/esteban-mejia-2025-bowman-cpaem-orange-wave-refractor-auto-21-25-psa-9)
+- [Will Smith 2019 Topps Chrome RC SGC 9](https://bestdeals4u.trade/post/topps-chrome-will-smith-rookie-auto-refractor-499-ra-ws-sgc-9-auto-10)
 
 ### 🧸 Funko Pops
-- [Funko Pop, John Lennon #247 Chase Exclusive](https://bestdeals4u.trade/post/john-lennon-funko-pop-247-peacoat-exclusive-common-chase-set-vaulted-nib)
+- [Funko Pop Vecna #1464 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-stranger-things-vecna-glow-hot-topic-exclusive-1464)
+- [Funko Bitty Pop! Naruto: Shippuden Series 1 4-Pack Naruto (6th Path) Chase](https://bestdeals4u.trade/post/funko-bitty-pop-naruto-shippuden-4-pack-series-1-naruto-6th-path-chase)
 
 ### 🧱 LEGO
-- [LEGO 76261 Spider-Man Final Battle Sealed](https://bestdeals4u.trade/post/new-sealed-lego-marvel-76261-spider-man-final-battle-900pcs-retired)
-- [LEGO 6242 Destiny's Bounty Sealed](https://bestdeals4u.trade/post/lego-6242-pirates-soldiers-fort-new-sealed-retired-building-set-367pcs)
-
-### 🃏 Pokémon Cards
-- [Team Rockets Mewtwo Destined PSA 10 Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/team-rockets-mewtwo-ex-psa-10-english-pokemon-card-240-destined-rivals-gold-2025)
-- [2023 Japan SV4A Shiny Treasure Charizard EX PSA 10](https://bestdeals4u.trade/post/2023-pokemon-jpn-sv4a-shiny-treasure-ex-special-art-rare-charizard-ex-psa-10)
+- [LEGO 76430 Hogwarts Castle Owlery Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-castle-owlery-76430-retired-set-brand-new-sealed-l3)
+- [LEGO 10246 Detective's Office Sealed](https://bestdeals4u.trade/post/lego-10246-creator-expert-detective-s-office-retired-sealed-new)
 
 ### 🎮 Video Games
-- [Retro Style Fallout New Vegas Vintage Y2K Long Sleeve Washed T-Shirt (New with Tags)](https://bestdeals4u.trade/post/retro-style-fallout-new-vegas-vintage-y2k-video-game-long-sleeve-washed-t-shir)
-- [Nintendo Super Smash Bros. Melee 2001 T Rated Manual Included for GameCube - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/nintendo-super-smash-bros-melee-gamecube-2001-t-rated-manual-included)
+- [Market Review: Complete SpongeBob SquarePants Movie (Nintendo GameCube, 2004) CIB Tested Works](https://bestdeals4u.trade/post/complete-spongebob-squarepants-movie-nintendo-gamecube-2004-cib-tested-works)
+- [Sega Dreamcast HKT-3020 White Video Game Console w/ OEM Controller & - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/sega-dreamcast-hkt-3020-white-video-game-console-w-oem-controller-vmu-tested)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
