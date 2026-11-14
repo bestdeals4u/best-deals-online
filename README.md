@@ -36,22 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Luke Keaschall 2023 Bowman Chrome Draft Sapphire Edition RC PSA 9](https://bestdeals4u.trade/post/2023-topps-bowman-draft-sapphire-luke-keaschall-rookie-auto-199-psa-9-twins)
-- [Kyle Tucker 2019 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2019-topps-chrome-kyle-tucker-rookie-auto-ra-kt-refractor-499-rc-psa-9)
+- [Kenny Fenelon 2025 Bowman Chrome PSA 9](https://bestdeals4u.trade/post/kenny-fenelon-2025-1st-bowman-chrome-auto-orange-refractor-25-psa-9-brewers-y6-3)
+- [Rayne Doncon 2022 Bowman Chrome Prospects Autograph Refractor PSA 10](https://bestdeals4u.trade/post/2022-bowman-chrome-cpard-rayne-doncon-refractor-auto-499-psa-10-dodgers)
 
 ### 🧸 Funko Pops
-- [MOCKINGBIRD MARVEL Disney ULTRA 1/ Pcs WEST COAST Funko Pop #3220 at $25.00, with recent sales closer to $27.75](https://bestdeals4u.trade/post/mockingbird-funko-pop-marvel-disney-ultra-1-3220-pcs-west-coast-avengers-rare)
+- [Funko Pop, Korra #761 Exclusive Glow](https://bestdeals4u.trade/post/the-legend-of-korra-korra-761-glow-box-warehouse-exclusive-funko-pop-vinyl)
+- [Market Review: Superman Funko Pop LE 1500 Pieces (ECCC 2026 Official Sticker) IN HAND](https://bestdeals4u.trade/post/superman-funko-pop-le-1500-pieces-eccc-2026-official-sticker-in-hand)
 
 ### 🧱 LEGO
-- [LEGO 6863 Batwing Battle Over Gotham City Sealed](https://bestdeals4u.trade/post/lego-6863-dc-super-heroes-batwing-battle-over-gotham-city-new-sealed-retired)
-- [LEGO 10317 Land Rover Classic Defender 90 Sealed](https://bestdeals4u.trade/post/lego-icons-land-rover-classic-defender-90-10317-new-in-sealed-box)
+- [LEGO 2520 Ninjago Battle Arena Sealed](https://bestdeals4u.trade/post/lego-2520-ninjago-battle-arena-new-sealed-nib-retired-2011-vintage)
+- [LEGO 75186 The Arrowhead Sealed](https://bestdeals4u.trade/post/lego-star-wars-75186-the-arrowhead-retired-new-sealed-free-shipping)
 
 ### 🃏 Pokémon Cards
-- [Is Gardevoir PSA 10 Priced Fairly at $249.99?](https://bestdeals4u.trade/post/2023-pokemon-gardevoir-ex-245-198-psa-10-special-illustration-rare)
-- [Black Star Promos Pikachu PSA 8 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/2023-pokemon-scarlet-violet-black-star-promos-pikachu-psa-8-027)
+- [Gengar Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/gengar-poke-ball-0302-07-gem-pack-vol-3-chinese-pokemon-tcg)
+- [German Hitmonchan Nolan Holo PSA 8 - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/1999-pokemon-german-hitmonchan-nolan-holo-base-set-7-1st-edition-psa-8)
 
 ### 🎮 Video Games
-- [Bust-A-Move 3000 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/bust-a-move-3000-nintendo-gamecube-2003-authentic-cib-tested-working)
+- [Old School Rally (PlayStation 5,2026) Price Analysis - Should You Jump In?](https://bestdeals4u.trade/post/old-school-rally-playstation-5-2026-new-sealed)
+- [NBA Live 2001 - Sony Tested 1Y Guarantee for PlayStation 2 Price Check - Worth It or Not?](https://bestdeals4u.trade/post/nba-live-2001-sony-playstation-2-ps2-tested-authentic-1y-guarantee)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
