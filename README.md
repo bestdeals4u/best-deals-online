@@ -36,20 +36,24 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Esteban Mejia 2025 Bowman PSA 9](https://bestdeals4u.trade/post/esteban-mejia-2025-bowman-cpaem-orange-wave-refractor-auto-21-25-psa-9)
-- [Will Smith 2019 Topps Chrome RC SGC 9](https://bestdeals4u.trade/post/topps-chrome-will-smith-rookie-auto-refractor-499-ra-ws-sgc-9-auto-10)
+- [Market Review: Topps 1991 Traded Luis Gonzalez #48T Houston Astros BGS 9.5 Baseball Card](https://bestdeals4u.trade/post/topps-1991-traded-luis-gonzalez-48t-houston-astros-bgs-9-5-baseball-card)
+- [Jordan Lawlar 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/jordan-lawlar-2024-topps-chrome-rc-auto-blue-refractor-150-psa-9-ra-jla-t6-3)
 
 ### 🧸 Funko Pops
-- [Funko Pop Vecna #1464 Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-vinyl-stranger-things-vecna-glow-hot-topic-exclusive-1464)
-- [Funko Bitty Pop! Naruto: Shippuden Series 1 4-Pack Naruto (6th Path) Chase](https://bestdeals4u.trade/post/funko-bitty-pop-naruto-shippuden-4-pack-series-1-naruto-6th-path-chase)
+- [Funko Pop, Jennie #362](https://bestdeals4u.trade/post/mint-funko-pop-rocks-blackpink-jennie-362-black-pink-k-pop-shut-down-vaulted)
+- [Market Review: Funko Pop! Digital #385 Festival Of Fun Franny As Ice Skater Legendary LE 1900](https://bestdeals4u.trade/post/funko-pop-digital-385-festival-of-fun-franny-as-ice-skater-legendary-le-1900)
 
 ### 🧱 LEGO
-- [LEGO 76430 Hogwarts Castle Owlery Sealed](https://bestdeals4u.trade/post/lego-harry-potter-hogwarts-castle-owlery-76430-retired-set-brand-new-sealed-l3)
-- [LEGO 10246 Detective's Office Sealed](https://bestdeals4u.trade/post/lego-10246-creator-expert-detective-s-office-retired-sealed-new)
+- [LEGO 40567 Forest Hideout Sealed](https://bestdeals4u.trade/post/lego-40567-forest-hideout-gwp-new-sealed-retired-classic-castle)
+- [Market Review: LEGO (21324) Ideas 123 Sesame Street New Sealed Retired NISB Rare Display Set](https://bestdeals4u.trade/post/lego-21324-ideas-123-sesame-street-new-sealed-retired-nisb-rare-display-set)
+
+### 🃏 Pokémon Cards
+- [Mewtwo Holo Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-base-set-unlimited-mewtwo-holo-10-102-vintage-pok-mon-card-cgc-8-5-nm)
+- [Market Review: CGC 10 Miltank 199/172 AR Art Rare VSTAR Universe s12a Pokemon Card](https://bestdeals4u.trade/post/cgc-10-miltank-199-172-ar-art-rare-vstar-universe-s12a-pokemon-card)
 
 ### 🎮 Video Games
-- [Market Review: Complete SpongeBob SquarePants Movie (Nintendo GameCube, 2004) CIB Tested Works](https://bestdeals4u.trade/post/complete-spongebob-squarepants-movie-nintendo-gamecube-2004-cib-tested-works)
-- [Sega Dreamcast HKT-3020 White Video Game Console w/ OEM Controller & - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/sega-dreamcast-hkt-3020-white-video-game-console-w-oem-controller-vmu-tested)
+- [Yu Gi Oh World Championship 2004 Nintendo Game Boy Refurbished 1 Year - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/yu-gi-oh-world-championship-2004-nintendo-game-boy-refurbished-1-year-warranty)
+- [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
