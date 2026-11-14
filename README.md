@@ -36,24 +36,22 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Market Review: Topps 1991 Traded Luis Gonzalez #48T Houston Astros BGS 9.5 Baseball Card](https://bestdeals4u.trade/post/topps-1991-traded-luis-gonzalez-48t-houston-astros-bgs-9-5-baseball-card)
-- [Jordan Lawlar 2024 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/jordan-lawlar-2024-topps-chrome-rc-auto-blue-refractor-150-psa-9-ra-jla-t6-3)
+- [Luke Keaschall 2023 Bowman Chrome Draft Sapphire Edition RC PSA 9](https://bestdeals4u.trade/post/2023-topps-bowman-draft-sapphire-luke-keaschall-rookie-auto-199-psa-9-twins)
+- [Kyle Tucker 2019 Topps Chrome RC PSA 9](https://bestdeals4u.trade/post/2019-topps-chrome-kyle-tucker-rookie-auto-ra-kt-refractor-499-rc-psa-9)
 
 ### 🧸 Funko Pops
-- [Funko Pop, Jennie #362](https://bestdeals4u.trade/post/mint-funko-pop-rocks-blackpink-jennie-362-black-pink-k-pop-shut-down-vaulted)
-- [Market Review: Funko Pop! Digital #385 Festival Of Fun Franny As Ice Skater Legendary LE 1900](https://bestdeals4u.trade/post/funko-pop-digital-385-festival-of-fun-franny-as-ice-skater-legendary-le-1900)
+- [MOCKINGBIRD MARVEL Disney ULTRA 1/ Pcs WEST COAST Funko Pop #3220 at $25.00, with recent sales closer to $27.75](https://bestdeals4u.trade/post/mockingbird-funko-pop-marvel-disney-ultra-1-3220-pcs-west-coast-avengers-rare)
 
 ### 🧱 LEGO
-- [LEGO 40567 Forest Hideout Sealed](https://bestdeals4u.trade/post/lego-40567-forest-hideout-gwp-new-sealed-retired-classic-castle)
-- [Market Review: LEGO (21324) Ideas 123 Sesame Street New Sealed Retired NISB Rare Display Set](https://bestdeals4u.trade/post/lego-21324-ideas-123-sesame-street-new-sealed-retired-nisb-rare-display-set)
+- [LEGO 6863 Batwing Battle Over Gotham City Sealed](https://bestdeals4u.trade/post/lego-6863-dc-super-heroes-batwing-battle-over-gotham-city-new-sealed-retired)
+- [LEGO 10317 Land Rover Classic Defender 90 Sealed](https://bestdeals4u.trade/post/lego-icons-land-rover-classic-defender-90-10317-new-in-sealed-box)
 
 ### 🃏 Pokémon Cards
-- [Mewtwo Holo Price Check - Worth It or Not?](https://bestdeals4u.trade/post/pokemon-base-set-unlimited-mewtwo-holo-10-102-vintage-pok-mon-card-cgc-8-5-nm)
-- [Market Review: CGC 10 Miltank 199/172 AR Art Rare VSTAR Universe s12a Pokemon Card](https://bestdeals4u.trade/post/cgc-10-miltank-199-172-ar-art-rare-vstar-universe-s12a-pokemon-card)
+- [Is Gardevoir PSA 10 Priced Fairly at $249.99?](https://bestdeals4u.trade/post/2023-pokemon-gardevoir-ex-245-198-psa-10-special-illustration-rare)
+- [Black Star Promos Pikachu PSA 8 - Is This Card a Smart Buy Right Now?](https://bestdeals4u.trade/post/2023-pokemon-scarlet-violet-black-star-promos-pikachu-psa-8-027)
 
 ### 🎮 Video Games
-- [Yu Gi Oh World Championship 2004 Nintendo Game Boy Refurbished 1 Year - Is This a Smart Buy Right Now?](https://bestdeals4u.trade/post/yu-gi-oh-world-championship-2004-nintendo-game-boy-refurbished-1-year-warranty)
-- [Tony Hawk's Pro Skater 3 (2001) for GameCube Quick Take - Buy, Wait, or Pass?](https://bestdeals4u.trade/post/tony-hawk-s-pro-skater-3-nintendo-gamecube-2001)
+- [Bust-A-Move 3000 2002 for Nintendo GameCube Complete](https://bestdeals4u.trade/post/bust-a-move-3000-nintendo-gamecube-2003-authentic-cib-tested-working)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
