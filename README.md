@@ -36,22 +36,23 @@ We track real discounts, rare finds, and high-demand products—so you don’t h
 ## Latest from BestDeals4U.trade
 
 ### ⚾ Baseball Cards
-- [Aramis Garcia 2014 Bowman Draft BGS 9.5](https://bestdeals4u.trade/post/2014-bowman-draft-purple-refractor-4-10-aramis-garcia-bgs-9-5-gem-mint-auto-4h4)
-- [Greg Jones 2025 Topps Chrome PSA 9](https://bestdeals4u.trade/post/2025-topps-chrome-purple-speckle-refractor-rockies-greg-jones-auto-75-299-psa-9)
+- [Evan Carter 2024 Topps Now Road to Opening Day RC PSA 10](https://bestdeals4u.trade/post/2024-topps-now-road-to-opening-day-ec-a-evan-carter-rc-auto-blue-25-49-psa-10)
+- [Charlie Condon 2025 Bowman PSA 9](https://bestdeals4u.trade/post/topps-2025-bowman-chrome-charlie-condon-cpa-cc-auto-refractor-499-psa-9-rco6)
 
 ### 🧸 Funko Pops
-- [Funko Pop, ! ELVIRA #542 Chase Exclusive Glow](https://bestdeals4u.trade/post/funko-pop-542-elvira-mummy-glow-chase-special-exclusive-w-protector-vaulted-2)
+- [Market Review: Murray #1543 Stranger Things Funko Pop with Protector](https://bestdeals4u.trade/post/murray-1543-stranger-things-funko-pop-with-protector)
 
 ### 🧱 LEGO
-- [LEGO 850425 Desk Business Card Holder Sealed](https://bestdeals4u.trade/post/lego-850425-desk-business-card-holder-brand-new-in-sealed-box-office-stationary-3)
-- [LEGO 21028 New York City Sealed](https://bestdeals4u.trade/post/lego-architecture-21028-new-york-city-skyline-new-sealed-retired)
+- [LEGO 76048 Iron Skull Sub Attack Sealed](https://bestdeals4u.trade/post/brand-new-sealed-lego-marvel-super-heroes-iron-skull-sub-attack-76048-retired)
+- [LEGO 40553 Woody and Bo Peep Sealed](https://bestdeals4u.trade/post/lego-40553-brickheadz-woody-and-bo-peep-brick-heads-new-sealed-retired)
 
 ### 🃏 Pokémon Cards
-- [Gengar Rare Sword & Shield PSA 10](https://bestdeals4u.trade/post/psa-10-pokemon-2022-jpn-swsh-dark-phantasma-fa-gengar-074)
-- [Legend Maker Gold Star PSA 5 at $1105.68 - Buy Now or Wait?](https://bestdeals4u.trade/post/2006-pokemon-ex-legend-maker-gold-star-91-regirock-holo-psa-5)
+- [Light Dragonite Holo PSA 8 at $365.00 - Buy Now or Wait?](https://bestdeals4u.trade/post/pokemon-neo-destiny-2002-light-dragonite-holo-card-14-psa-8-english)
+- [PSA 10 Bulbasaur Illustration 143/142 - 2024 Pokémon Sv06 Stellar Crown Price Check - Worth It or Not?](https://bestdeals4u.trade/post/psa-10-bulbasaur-illustration-rare-143-142-2024-pok-mon-sv06-stellar-crown)
 
 ### 🎮 Video Games
-- [Is This Star Wars The Empire Strikes Back Nintendo NES 1992 WATA 9.2 Actually a Good Value?](https://bestdeals4u.trade/post/star-wars-the-empire-strikes-back-nintendo-nes-new-1992-sealed-wata-9-2-a)
+- [CGC 9.8 Nintendo World Championship NES Edition Switch Sealed A+ Deal Breakdown - Worth Buying?](https://bestdeals4u.trade/post/cgc-9-8-nintendo-world-championship-nes-edition-switch-sealed-a)
+- [Is LEGO - Nintendo Entertainment System Mario TV Set 71374 Priced Fairly at $325.00?](https://bestdeals4u.trade/post/lego-nintendo-entertainment-system-mario-tv-set-71374-new-sealed)
 
 _Auto-updated from RSS feed: https://bestdeals4u.trade/posts/rss.xml_
 <!-- RSS:END -->
